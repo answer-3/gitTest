@@ -1,8 +1,8 @@
 name: CI
 on:
   schedule:
-    - cron: '50 8 * * *'
-    - cron: '50 16 * * *'
+    - cron: '55 8 * * *'
+    - cron: '55 16 * * *'
 jobs:
   build:
     runs-on: ubuntu-latest
@@ -31,5 +31,5 @@ jobs:
       - name: Push changes
         uses: ad-m/github-push-action@master
         with:
-          github_token: ${{ secrets.MY_GIT_TOKEN }}
+          github_token: ${{ secrets.GITTEST }}
           branch: master
