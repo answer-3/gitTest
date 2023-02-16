@@ -1,8 +1,7 @@
 name: CI
 on:
   schedule:
-    - cron: '55 8 * * *'
-    - cron: '55 16 * * *'
+    - cron: '35 3 * * *'
 jobs:
   build:
     runs-on: ubuntu-latest
