@@ -3,7 +3,7 @@
 ---
 ### 2023 2月 20：在大自然中漫步
 #### Itaimbezinho峡谷，巴西（© NidoHuebl/Getty Images）
-![在大自然中漫步](./data/MediaContents/ZH-CN/2023/02/OHR.Itaimbezinho_ZH-CN5641449623_UHD.jpg "在大自然中漫步")
+![在大自然中漫步](https://cn.bing.com/th?id=OHR.Itaimbezinho_ZH-CN5641449623_1920x1200.jpg&rf=LaDigue_1920x1200.jpg "在大自然中漫步")
 Itaimbezinho 峡谷是南里奥格兰德州最著名的峡谷。它是巴西自然奇观之一，位于南坎巴拉市，它是巴西南坎巴拉市的自然奇观之一，位于阿帕拉多斯达塞拉国家公园内。Itaimbezinho峡谷两侧的峭壁非常直，如刀切一般。Itaimbezinho峡谷名字便得名于峭壁的特征，在图皮瓜拉尼语中："ita"的意思是石头，"aimbé"的意思是切割和锋利。
 
 峡谷地区也是印第安人的栖息地，也是多部肥皂剧和迷你剧的取景地。

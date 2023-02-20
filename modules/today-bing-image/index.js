@@ -2,10 +2,10 @@ const axios = require('axios')
 const fs = require('fs');
 const path = require('path');
 
-let getFilePath = (parent, date) => {
-    let filePath = './data/' + (parent || 'cache') + '/' + date.substring(0, 4) + '/' + date.substring(4, 6);
+let getFilePath = (date) => {
+    let filePath = './data/' + date.substring(0, 4) + '/' + date.substring(4, 6);
     fs.mkdirSync(filePath, {recursive: true});
-    return filePath + '.json';
+    return filePath + '/image.json';
 }
 
 let getFileContent = (filePath) => {
@@ -26,7 +26,7 @@ let downloadImage = (url, filePath) => {
         }
         url = url.substring(0, url.indexOf('.jpg&'));
         url = url.substring(0, url.lastIndexOf('_')) + "_UHD.jpg";
-        let fileName = filePath.replace('.json', '/') + url.substring(url.indexOf('th?id=') + 6);
+        let fileName = filePath.replace('image.json', '') + url.substring(url.indexOf('th?id=') + 6);
         try {
             fs.openSync(fileName);
         } catch (e) {
@@ -37,23 +37,36 @@ let downloadImage = (url, filePath) => {
     }
 }
 
+let writMarkDown = (images, filePath) => {
+    let content = '## 必应今日图片';
+    images.forEach((imageData) => {
+        content += `
+
+---
+### ${imageData.FullDateString}：${imageData.ImageContent.Headline}
+#### ${imageData.ImageContent.Title}（${imageData.ImageContent.Copyright}）
+![${imageData.ImageContent.Headline}](https://cn.bing.com${imageData.ImageContent.Image.Wallpaper} "${imageData.ImageContent.Headline}")
+${imageData.ImageContent.Description}
+
+${imageData.ImageContent.QuickFact.MainText}`;
+    })
+    fs.writeFileSync(filePath, content, null);
+}
+
+let getDateStr = (imageData) => {
+    if (!imageData.enddate) {
+        let date = imageData.FullDateString.replace('月', '').split(' ');
+        imageData.enddate = date[0] + (date[1] > 9 ? date[1] : '0' + date[1]) + (date[2] > 9 ? date[2] : '0' + date[2]);
+    }
+    return imageData.enddate;
+}
+
 let saveFileContent = (content) => {
     if (content && Array.isArray(content) && content.length > 0) {
-        let parent, dateKey, imageUrl;
-        if (content[0].ImageContent) {
-            parent = 'MediaContents';
-            dateKey = 'Ssd';
-            imageUrl = content[0].ImageContent.Image.Url;
-        } else {
-            parent = 'images';
-            dateKey = 'fullstartdate';
-            imageUrl = content[0].urlbase;
-        }
-        parent += '/' + (imageUrl.indexOf('_ZH-CN') > 0 ? 'ZH-CN' : 'EN-US');
         let fileMap = new Map;
         content.forEach(o => {
-            let date = o[dateKey].substring(0, 8);
-            let filePath = getFilePath(parent, date);
+            let date = getDateStr(o);
+            let filePath = getFilePath(date);
             let monthJSON = fileMap.get(filePath);
             if (!monthJSON) {
                 monthJSON = getFileContent(filePath);
@@ -61,35 +74,30 @@ let saveFileContent = (content) => {
             }
             monthJSON.push(o);
         });
-        fileMap.forEach((v, k) => {
+        fileMap.forEach((v, filePath) => {
             let keySet = new Set();
             let jsonStr = '[\r\n';
             v.sort((a, b) => {
-                return a[dateKey] > b[dateKey] ? 1 : -1;
+                return getDateStr(a) > getDateStr(b) ? 1 : -1;
             }).forEach(o => {
-                if (!keySet.has(o[dateKey])) {
+                if (!keySet.has(getDateStr(o))) {
                     jsonStr += JSON.stringify(o) + ',\r\n';
-                    keySet.add(o[dateKey]);
-                    downloadImage(o.url || o.ImageContent.Image.Url, k);
+                    keySet.add(getDateStr(o));
+                    downloadImage(o.url || o.ImageContent.Image.Wallpaper, filePath);
                 }
             });
-            jsonStr += ']';
-            fs.writeFileSync(k, jsonStr.replace('},\r\n]', '}\r\n]'), null);
+            jsonStr = (jsonStr + ']').replace('},\r\n]', '}\r\n]');
+            fs.writeFileSync(filePath, jsonStr, null);
+            writMarkDown(JSON.parse(jsonStr), filePath.replace('image.json', 'README.md'));
         })
     }
 }
 
-exports.saveJSON = async (number, index, host) => {
-    axios.get((host || 'https://cn.bing.com') + '/HPImageArchive.aspx?format=js&n=' + number + '&idx=' + index).then((response) => {
-        let images = response.data.images;
-        saveFileContent(images);
-    })
+exports.loadBingImage = () => {
+    axios.get('https://cn.bing.com/hp/api/model')
+        .then((response) => {
+            let images = response.data.MediaContents;
+            saveFileContent(images);
+            writMarkDown(images, './README.md');
+        })
 }
-
-exports.saveJSON2model = async (host) => {
-    axios.get((host || 'https://cn.bing.com') + '/hp/api/model').then((response) => {
-        let images = response.data.MediaContents;
-        saveFileContent(images);
-    })
-}
-
