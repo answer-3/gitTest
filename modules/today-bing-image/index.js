@@ -19,14 +19,14 @@ let getFileContent = (filePath) => {
     return content;
 }
 
-let downloadImage = (url, filePath) => {
+let downloadImage = (url, filePath, enddate) => {
     if (url && filePath) {
         if (!url.startsWith('http')) {
             url = 'https://cn.bing.com' + url;
         }
         url = url.substring(0, url.indexOf('.jpg&'));
         url = url.substring(0, url.lastIndexOf('_')) + "_UHD.jpg";
-        let fileName = filePath.replace('image.json', '') + url.substring(url.indexOf('th?id=') + 6);
+        let fileName = filePath.replace('image.json', '') + enddate + '_' + url.substring(url.indexOf('th?id=') + 6);
         try {
             fs.openSync(fileName);
         } catch (e) {
@@ -83,7 +83,7 @@ let saveFileContent = (content) => {
                 if (!keySet.has(getDateStr(o))) {
                     jsonStr += JSON.stringify(o) + ',\r\n';
                     keySet.add(getDateStr(o));
-                    downloadImage(o.url || o.ImageContent.Image.Wallpaper, filePath);
+                    downloadImage(o.url || o.ImageContent.Image.Wallpaper, filePath, getDateStr(o));
                 }
             });
             jsonStr = (jsonStr + ']').replace('},\r\n]', '}\r\n]');
