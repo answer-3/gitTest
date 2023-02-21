@@ -24,7 +24,6 @@ jobs:
           git config --local user.email "answer-3@qq.com"
           git config --local user.name "answer-3"
           git pull
-          git add json/*
           git add data/*
           git commit -m "update by github actions"
 
