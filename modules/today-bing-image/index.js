@@ -45,10 +45,16 @@ let writMarkDown = (images, filePath) => {
 ---
 ### ${imageData.FullDateString}：${imageData.ImageContent.Headline}
 #### ${imageData.ImageContent.Title}（${imageData.ImageContent.Copyright}）
-![${imageData.ImageContent.Headline}](https://cn.bing.com${imageData.ImageContent.Image.Wallpaper} "${imageData.ImageContent.Headline}")
+![${imageData.ImageContent.Headline}](https://cn.bing.com${imageData.ImageContent.Image.Wallpaper.replaceAll('1920x1200', '800x480')} "${imageData.ImageContent.Headline}")
 ${imageData.ImageContent.Description}
 
-${imageData.ImageContent.QuickFact.MainText}`;
+${imageData.ImageContent.QuickFact.MainText}
+
+[下载480](https://cn.bing.com${imageData.ImageContent.Image.Wallpaper.replaceAll('1920x1200', '800x480')} "${imageData.ImageContent.Title}")
+[下载720](https://cn.bing.com${imageData.ImageContent.Image.Wallpaper.replaceAll('1920x1200', '1024x768')} "${imageData.ImageContent.Title}")
+[下载1080](https://cn.bing.com${imageData.ImageContent.Image.Wallpaper.replaceAll('1920x1200', '1920x1080')} "${imageData.ImageContent.Title}")
+[下载UHD](https://cn.bing.com${imageData.ImageContent.Image.Wallpaper.replaceAll('1920x1200', 'UHD')} "${imageData.ImageContent.Title}")
+`;
     })
     fs.writeFileSync(filePath, content, null);
 }
