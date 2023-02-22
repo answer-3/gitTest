@@ -306,3 +306,17 @@ Itaimbezinho 峡谷是南里奥格兰德州最著名的峡谷。它是巴西自�
 [下载720](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_1024x768.jpg&rf=LaDigue_1024x768.jpg "菲希特尔山脉上的和平钟，萨克森州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲希特尔山脉上的和平钟，萨克森州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_UHD.jpg&rf=LaDigue_UHD.jpg "菲希特尔山脉上的和平钟，萨克森州，德国")
+
+
+---
+### 2023 2月 23：宁静的山谷
+#### 克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士（© Matthew Williams Ellis/Plainpicture）
+![宁静的山谷](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_800x480.jpg&rf=LaDigue_800x480.jpg "宁静的山谷")
+今天照片中展示的宁静山谷坐落在北威尔士格的斯诺登尼亚国家公园。克罗伊索（Croesor）峡谷曾经是热闹非凡的采石场，专门生产用于建造屋顶及地板的石板。如今这里没有了采石的喧嚣，只有长满苔藓的石墙、潺潺的溪流、羊群啃过的田野和台阶，还有穿过这里前往莫尔温尼恩（Moelwynion）山脉的徒步者。
+
+威尔士被誉为神话传说之地。传说两条古龙曾在威尔士的迪纳斯埃姆里斯山展开一场大战。
+
+[下载480](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_800x480.jpg&rf=LaDigue_800x480.jpg "克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_1024x768.jpg&rf=LaDigue_1024x768.jpg "克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_UHD.jpg&rf=LaDigue_UHD.jpg "克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士")
