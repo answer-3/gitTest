@@ -334,3 +334,17 @@ Itaimbezinho 峡谷是南里奥格兰德州最著名的峡谷。它是巴西自�
 [下载720](https://cn.bing.com/th?id=OHR.RichmondParkDuck_ZH-CN4956127005_1024x768.jpg&rf=LaDigue_1024x768.jpg "里士满公园的鸳鸯，伦敦，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.RichmondParkDuck_ZH-CN4956127005_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里士满公园的鸳鸯，伦敦，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RichmondParkDuck_ZH-CN4956127005_UHD.jpg&rf=LaDigue_UHD.jpg "里士满公园的鸳鸯，伦敦，英国")
+
+
+---
+### 2023 2月 25：冬天的布莱斯峡谷石林
+#### 布莱斯峡谷国家公园的石林，犹他州，美国（© Piriya Photography/Getty Images）
+![冬天的布莱斯峡谷石林](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_800x480.jpg&rf=LaDigue_800x480.jpg "冬天的布莱斯峡谷石林")
+当太阳在布莱斯峡谷升起时，白雪皑皑的橙红色岩石闪闪发光。这些修长高耸的岩石被称为石林，而布莱斯峡谷国家公园正是因为拥有地球上密度最高的石林而闻名。这些石林的下层是松软的沉积岩，上面则覆盖着一层更为坚硬的石盖。犹他州冬天的冰霜会侵蚀石盖，最终暴露出底下更易被侵蚀的岩石。值得庆幸的是，这些石林现在还屹立不倒，让我们可以在公园成立100周年之时欣赏大自然的鬼斧神工。
+
+布莱斯峡谷并非由流过的溪流侵蚀而成，因此严格来说它并不是一个峡谷。
+
+[下载480](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_800x480.jpg&rf=LaDigue_800x480.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_1024x768.jpg&rf=LaDigue_1024x768.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_UHD.jpg&rf=LaDigue_UHD.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
