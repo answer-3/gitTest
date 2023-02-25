@@ -348,3 +348,17 @@ Itaimbezinho 峡谷是南里奥格兰德州最著名的峡谷。它是巴西自�
 [下载720](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_1024x768.jpg&rf=LaDigue_1024x768.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_UHD.jpg&rf=LaDigue_UHD.jpg "布莱斯峡谷国家公园的石林，犹他州，美国")
+
+
+---
+### 2023 2月 26：随着亚马孙的树冠摇摆
+#### 亚马孙雨林的树冠探险，秘鲁（© Pere Rubi/Getty Images）
+![随着亚马孙的树冠摇摆](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_800x480.jpg&rf=LaDigue_800x480.jpg "随着亚马孙的树冠摇摆")
+穿过亚马孙雨林中的这座吊桥，意味着你要依靠这些树木作为支撑。同样，地球生物的生存也依赖于亚马孙雨林的这些树木。亚马孙流域储存的碳是全球化石燃料年排放量的10倍以上，这里还是地球上10%已知物种的家园。亚马孙河是世界上流域最广、流量最大的河流，其河流入海流量占全球的20%。从安第斯山脉到大西洋，亚马孙河流经了八个国家。今天的照片拍摄于秘鲁的坦博帕塔国家保护区，这里是巨型角雕、金刚鹦鹉、美洲虎、水豚、树懒和巨型水獭的家园。
+
+桑多瓦尔湖是坦博帕塔国家保护区内最受欢迎的景点，湖岸长满了棕榈树，这些树是金刚鹦鹉的家园。
+
+[下载480](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_800x480.jpg&rf=LaDigue_800x480.jpg "亚马孙雨林的树冠探险，秘鲁")
+[下载720](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_1024x768.jpg&rf=LaDigue_1024x768.jpg "亚马孙雨林的树冠探险，秘鲁")
+[下载1080](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚马孙雨林的树冠探险，秘鲁")
+[下载UHD](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_UHD.jpg&rf=LaDigue_UHD.jpg "亚马孙雨林的树冠探险，秘鲁")
