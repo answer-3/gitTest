@@ -362,3 +362,31 @@ Itaimbezinho 峡谷是南里奥格兰德州最著名的峡谷。它是巴西自�
 [下载720](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_1024x768.jpg&rf=LaDigue_1024x768.jpg "亚马孙雨林的树冠探险，秘鲁")
 [下载1080](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚马孙雨林的树冠探险，秘鲁")
 [下载UHD](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_UHD.jpg&rf=LaDigue_UHD.jpg "亚马孙雨林的树冠探险，秘鲁")
+
+
+---
+### 2023 2月 27：冰冷的北极，温暖的拥抱
+#### 北极熊在加拿大沉睡（© David Pike/Minden Pictures）
+![冰冷的北极，温暖的拥抱](https://cn.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_800x480.jpg&rf=LaDigue_800x480.jpg "冰冷的北极，温暖的拥抱")
+2月27日是国际北极熊日，旨在让人们意识到北极熊因气候变化而面临的巨大威胁。北极熊需要北极的浮冰才能捕食，但北极浮冰正随着地球变暖而减少。虽然北极熊是非常出色的游泳选手，它们甚至因此被归类为海洋哺乳动物，但北极的浮冰仍是它们赖以生存的关键因素。让我们在这一天来认真想想，如何通过可持续的生活方式来帮助北极熊。
+
+北极熊没有领地意识，它们面临冲突时总是小心翼翼，常常选择逃跑而不是战斗。
+
+[下载480](https://cn.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊在加拿大沉睡")
+[下载720](https://cn.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_1024x768.jpg&rf=LaDigue_1024x768.jpg "北极熊在加拿大沉睡")
+[下载1080](https://cn.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊在加拿大沉睡")
+[下载UHD](https://cn.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊在加拿大沉睡")
+
+
+---
+### 2023 2月 28：一张来自意大利的明信片
+#### 阿特拉尼，阿马尔菲海岸，意大利（© Amazing Aerial/Shutterstock）
+![一张来自意大利的明信片](https://cn.bing.com/th?id=OHR.AtraniAmalfi_ZH-CN6391731688_800x480.jpg&rf=LaDigue_800x480.jpg "一张来自意大利的明信片")
+阿特拉尼位于意大利西南部的阿马尔菲海岸，房屋的红色粘土屋顶在阳光下非常引人注目。阿特拉尼是意大利最小的城镇之一，镇上只有800居民。这个传统渔村也是阿马尔菲海岸世界文化遗产的一部分。这里保留了原有的建筑特色，是一个完美的地中海度假胜地。游客可以在这里沐浴阳光，在海滨咖啡馆里品尝当地海鲜。
+
+阿马尔菲海岸如诗如画般的自然美景使其成为世界富豪们最喜爱的度假胜地，也让其赢得了“神圣海岸”的称号。
+
+[下载480](https://cn.bing.com/th?id=OHR.AtraniAmalfi_ZH-CN6391731688_800x480.jpg&rf=LaDigue_800x480.jpg "阿特拉尼，阿马尔菲海岸，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.AtraniAmalfi_ZH-CN6391731688_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿特拉尼，阿马尔菲海岸，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.AtraniAmalfi_ZH-CN6391731688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿特拉尼，阿马尔菲海岸，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.AtraniAmalfi_ZH-CN6391731688_UHD.jpg&rf=LaDigue_UHD.jpg "阿特拉尼，阿马尔菲海岸，意大利")
