@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LuebeckCityGate_ZH-CN4618826141_1024x768.jpg&rf=LaDigue_1024x768.jpg "吕贝克的霍尔斯滕门，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.LuebeckCityGate_ZH-CN4618826141_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "吕贝克的霍尔斯滕门，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LuebeckCityGate_ZH-CN4618826141_UHD.jpg&rf=LaDigue_UHD.jpg "吕贝克的霍尔斯滕门，德国")
+
+
+---
+### 2023 3月 2：大自然的画作
+#### 内格拉廷湖，格拉纳达，西班牙（© Andres Martinez Olmedo/Getty Images）
+![大自然的画作](https://cn.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的画作")
+今天照片上这个宁静美丽的湖泊是内格拉廷湖，是西班牙安达卢西亚最大的淡水湖之一。内格拉廷湖位于格拉纳达世界地质公园 的中心，由瓜迪亚纳梅诺尔河上的大坝截流而形成，是自然爱好者的天堂。湖边有一个帆船俱乐部，举办各种水上活动，这也使得内格拉廷湖成为了一个亲近大自然和放松身心的度假胜地。湖周围还有壮观的悬崖、沟壑和沙漠。无论春夏秋冬，这里的风景都美得让人窒息。
+
+内格拉廷湖是由瓜迪亚纳梅诺尔河上的大坝截流而形成的。
+
+[下载480](https://cn.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_800x480.jpg&rf=LaDigue_800x480.jpg "内格拉廷湖，格拉纳达，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_1024x768.jpg&rf=LaDigue_1024x768.jpg "内格拉廷湖，格拉纳达，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "内格拉廷湖，格拉纳达，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_UHD.jpg&rf=LaDigue_UHD.jpg "内格拉廷湖，格拉纳达，西班牙")
