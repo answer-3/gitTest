@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_1024x768.jpg&rf=LaDigue_1024x768.jpg "内格拉廷湖，格拉纳达，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "内格拉廷湖，格拉纳达，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_UHD.jpg&rf=LaDigue_UHD.jpg "内格拉廷湖，格拉纳达，西班牙")
+
+
+---
+### 2023 3月 3：这些捕食者在做什么？
+#### 斯皮尔德拉的虎鲸，挪威（© Alex Mustard/Minden Pictures）
+![这些捕食者在做什么？](https://cn.bing.com/th?id=OHR.OrcaNorway_ZH-CN6101327628_800x480.jpg&rf=LaDigue_800x480.jpg "这些捕食者在做什么？")
+今天是世界野生动物日，让我们来了解了解虎鲸（逆戟鲸）相关的知识吧。虎鲸是顶级掠食者，处于食物链的顶端。虎鲸拥有无与伦比的捕猎技能，但目前还没有任何有关虎鲸在野外杀人的记录。虎鲸的食物通常是海洋生物，如鱼、企鹅、鲨鱼和鲸鱼。不过“虎鲸”这个名字其实并不准确。虎鲸不是鲸鱼，而是海豚。
+
+在所有的海洋哺乳动物中，虎鲸的大脑是第二重的。虎鲸可以被圈养训练，它们通常被形容为智商很高。
+
+[下载480](https://cn.bing.com/th?id=OHR.OrcaNorway_ZH-CN6101327628_800x480.jpg&rf=LaDigue_800x480.jpg "斯皮尔德拉的虎鲸，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.OrcaNorway_ZH-CN6101327628_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯皮尔德拉的虎鲸，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.OrcaNorway_ZH-CN6101327628_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯皮尔德拉的虎鲸，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.OrcaNorway_ZH-CN6101327628_UHD.jpg&rf=LaDigue_UHD.jpg "斯皮尔德拉的虎鲸，挪威")
