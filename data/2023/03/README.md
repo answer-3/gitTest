@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OrcaNorway_ZH-CN6101327628_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯皮尔德拉的虎鲸，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.OrcaNorway_ZH-CN6101327628_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯皮尔德拉的虎鲸，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.OrcaNorway_ZH-CN6101327628_UHD.jpg&rf=LaDigue_UHD.jpg "斯皮尔德拉的虎鲸，挪威")
+
+
+---
+### 2023 3月 4：人迹罕至的一条路
+#### 通往皮库山的道路，葡萄牙（© Marco Bottigelli/Getty Images）
+![人迹罕至的一条路](https://cn.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_800x480.jpg&rf=LaDigue_800x480.jpg "人迹罕至的一条路")
+皮库山的海拔高约8000英尺，是亚速尔群岛皮库岛的最高点，也是这里最著名的景点之一。亚速尔群岛位于大西洋，是葡萄牙的一个自治区。皮库山是一座由玄武岩熔岩构成的层状火山。1562年，这里曾爆发了一次长达两年多的火山喷发。自1720年12月以来，皮库山一直处于“休眠”状态。游客可以在这里徒步，有毅力的也可以攀登到山顶。尽管登上山顶并不容易，但却十分值得，因为站在皮库山之巅，可以将周围岛屿的景色尽收眼底。
+
+在冬季，皮科山的山顶通常是亚速尔群岛唯一被雪覆盖的地方。
+
+[下载480](https://cn.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_800x480.jpg&rf=LaDigue_800x480.jpg "通往皮库山的道路，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_1024x768.jpg&rf=LaDigue_1024x768.jpg "通往皮库山的道路，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "通往皮库山的道路，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_UHD.jpg&rf=LaDigue_UHD.jpg "通往皮库山的道路，葡萄牙")
