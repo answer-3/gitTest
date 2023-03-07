@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YuanyangChina_ZH-CN7360249295_1024x768.jpg&rf=LaDigue_1024x768.jpg "梯田鸟瞰图，元阳，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.YuanyangChina_ZH-CN7360249295_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梯田鸟瞰图，元阳，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YuanyangChina_ZH-CN7360249295_UHD.jpg&rf=LaDigue_UHD.jpg "梯田鸟瞰图，元阳，中国")
+
+
+---
+### 2023 3月 8：守候浪漫的极光
+#### 极光展示，怀特霍斯，育空地区，加拿大（© John Hyde/plainpicture/Design Pics）
+![守候浪漫的极光](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_800x480.jpg&rf=LaDigue_800x480.jpg "守候浪漫的极光")
+极光通常也称为极光，是地球天空中的自然光显示，主要出现在高纬度地区（北极和南极附近）。 极光显示出明亮光的动态模式，表现为覆盖整个天空的窗帘、光线、螺旋或动态闪烁。
+
+“极光”一词来源于罗马黎明女神奥罗拉的名字，她从东到西旅行，宣告太阳的到来。
+
+[下载480](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_800x480.jpg&rf=LaDigue_800x480.jpg "极光展示，怀特霍斯，育空地区，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_1024x768.jpg&rf=LaDigue_1024x768.jpg "极光展示，怀特霍斯，育空地区，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "极光展示，怀特霍斯，育空地区，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_UHD.jpg&rf=LaDigue_UHD.jpg "极光展示，怀特霍斯，育空地区，加拿大")
