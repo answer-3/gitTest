@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_1024x768.jpg&rf=LaDigue_1024x768.jpg "极光展示，怀特霍斯，育空地区，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "极光展示，怀特霍斯，育空地区，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_UHD.jpg&rf=LaDigue_UHD.jpg "极光展示，怀特霍斯，育空地区，加拿大")
+
+
+---
+### 2023 3月 9：雨后见彩虹
+#### 威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国（© Beverley Van Praagh/Getty Images）
+![雨后见彩虹](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_800x480.jpg&rf=LaDigue_800x480.jpg "雨后见彩虹")
+威美亚峡谷被誉为“太平洋大峡谷”，是风景如画的怀波奥瀑布所在地。瀑布和峡谷河流的源头来自地球上降雨量最多的地方之一怀厄莱阿莱峰。大约400万年前，考艾岛火山坍塌了一部分，形成了一个洼地，随着威美亚河流的不断侵蚀，洼地逐渐变成了如今的威美亚峡谷。考艾岛地形多变，风景各不相同，如果你想探寻考艾岛的多样性，可以离开海滩，沿着蜿蜒的550高速公路进入山区，在到达怀波奥瀑布观景台之前，你会在沿途收获海岸和峡谷的壮丽景色。
+
+和其他夏威夷群岛一样，考艾岛是由海底火山喷发形成的，其熔岩流可以追溯到500万年前，是夏威夷大岛中最古老的岛屿。
+
+[下载480](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_800x480.jpg&rf=LaDigue_800x480.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
+[下载720](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_1024x768.jpg&rf=LaDigue_1024x768.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_UHD.jpg&rf=LaDigue_UHD.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
