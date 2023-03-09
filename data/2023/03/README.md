@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_1024x768.jpg&rf=LaDigue_1024x768.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_UHD.jpg&rf=LaDigue_UHD.jpg "威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国")
+
+
+---
+### 2023 3月 10：巨人的谜题
+#### 埃代尔，峰区，英国（© John Finney/Getty Images）
+![巨人的谜题](https://cn.bing.com/th?id=OHR.EdaleValley_ZH-CN8464524952_800x480.jpg&rf=LaDigue_800x480.jpg "巨人的谜题")
+埃代尔安静而隐蔽，正是步行者的天堂。这个风景如画的小村庄坐落在英国峰区国家公园，四周被群山环绕。埃代尔（Edale）这个名称的拼写方式最早的记录出现于1732年，此前，它在不同时期被拼写为“Aidele”“Eydale”“Eydal”和“Edall”。埃代尔是奔宁之路的起点，这条国家步道一直延伸到苏格兰。英格兰和威尔士的17条国家步道上都点缀着带有橡子形状标记的路标。如果你在该地区闲逛时看到了这种标记，请沿着这条路继续走，你肯定能收获一段风景优美的旅程。
+
+埃代尔是一个小村庄，它所在的位置是奔宁之路的起点和终点。奔宁之路是英国最出名的也是第一条长距离步道。
+
+[下载480](https://cn.bing.com/th?id=OHR.EdaleValley_ZH-CN8464524952_800x480.jpg&rf=LaDigue_800x480.jpg "埃代尔，峰区，英国")
+[下载720](https://cn.bing.com/th?id=OHR.EdaleValley_ZH-CN8464524952_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃代尔，峰区，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.EdaleValley_ZH-CN8464524952_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃代尔，峰区，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.EdaleValley_ZH-CN8464524952_UHD.jpg&rf=LaDigue_UHD.jpg "埃代尔，峰区，英国")
