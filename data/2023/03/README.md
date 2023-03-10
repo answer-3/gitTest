@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EdaleValley_ZH-CN8464524952_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃代尔，峰区，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.EdaleValley_ZH-CN8464524952_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃代尔，峰区，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EdaleValley_ZH-CN8464524952_UHD.jpg&rf=LaDigue_UHD.jpg "埃代尔，峰区，英国")
+
+
+---
+### 2023 3月 11：像一张油画
+#### 马萨诸塞州格洛斯特的沼泽地（© Thomas H. Mitchell/Getty Images）
+![像一张油画](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_800x480.jpg&rf=LaDigue_800x480.jpg "像一张油画")
+在新英格兰灿烂阳光的照耀下，这片盐沼地里的耐盐植物和海水形成了色彩鲜明的对比。盐沼是水生食物链中重要的一环，同时也是孕育野生动植物的温床。
+
+由于盐沼常常被潮汐浸没，同时含有大量分解物质，所以其泥炭中的氧气含量极低。
+
+[下载480](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_800x480.jpg&rf=LaDigue_800x480.jpg "马萨诸塞州格洛斯特的沼泽地")
+[下载720](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_1024x768.jpg&rf=LaDigue_1024x768.jpg "马萨诸塞州格洛斯特的沼泽地")
+[下载1080](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马萨诸塞州格洛斯特的沼泽地")
+[下载UHD](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_UHD.jpg&rf=LaDigue_UHD.jpg "马萨诸塞州格洛斯特的沼泽地")
