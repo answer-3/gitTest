@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_1024x768.jpg&rf=LaDigue_1024x768.jpg "马萨诸塞州格洛斯特的沼泽地")
 [下载1080](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马萨诸塞州格洛斯特的沼泽地")
 [下载UHD](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_UHD.jpg&rf=LaDigue_UHD.jpg "马萨诸塞州格洛斯特的沼泽地")
+
+
+---
+### 2023 3月 12：波浪板起伏的绿丘
+#### 南唐斯国家公园的绵羊，东萨塞克斯郡，英国（© Slawek Staszczuk/Alamy）
+![波浪板起伏的绿丘](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_800x480.jpg&rf=LaDigue_800x480.jpg "波浪板起伏的绿丘")
+这些标志性的、连绵起伏的绿色山丘是南唐斯国家公园的美景之一，它们横跨英国东南部的沿海郡。几个世纪以来，放牧的绵羊保持了这里低矮的草皮，也让这里成为了欧洲最繁荣的野生动物栖息地之一，野花和不同种类的蝴蝶在南唐斯的草原上繁衍生息。但如今，这种罕见的生态栖息地只覆盖了唐斯面积的约4%，原因是二战期间这里大部分土地都被用做了种植粮食。2010年，南唐斯国家公园成立，原因之一也是为了保护和重建唐斯的生态栖息地。
+
+绿丘起伏绵延至地平线，这是南唐斯国家公园的标志性景象之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_800x480.jpg&rf=LaDigue_800x480.jpg "南唐斯国家公园的绵羊，东萨塞克斯郡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_1024x768.jpg&rf=LaDigue_1024x768.jpg "南唐斯国家公园的绵羊，东萨塞克斯郡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南唐斯国家公园的绵羊，东萨塞克斯郡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_UHD.jpg&rf=LaDigue_UHD.jpg "南唐斯国家公园的绵羊，东萨塞克斯郡，英国")
