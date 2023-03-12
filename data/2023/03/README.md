@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_1024x768.jpg&rf=LaDigue_1024x768.jpg "南唐斯国家公园的绵羊，东萨塞克斯郡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南唐斯国家公园的绵羊，东萨塞克斯郡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_UHD.jpg&rf=LaDigue_UHD.jpg "南唐斯国家公园的绵羊，东萨塞克斯郡，英国")
+
+
+---
+### 2023 3月 13：午睡消除烦恼
+#### 正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚（© Cavan Images/Shutterstock）
+![午睡消除烦恼](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_800x480.jpg&rf=LaDigue_800x480.jpg "午睡消除烦恼")
+欢迎来到坦桑利亚的塞伦盖蒂国家公园，这里是地球上最壮观的野生动物生态系统之一，栖息着世界上数量最多的狮子。有赖于这里的天气和地形，塞伦盖蒂国家公园栖息着包括稀有黑犀牛在内的各类哺乳动物，是非洲游客最多的野生动物保护区之一。公园里最高的岩石山丘“辛巴巨石”是电影《狮子王》中荣耀石的灵感来源。塞伦盖蒂气候炎热，郁郁葱葱的树林为狮子们提供了理想的庇荫所，让它们可以小憩片刻，恢复精力。祝愿大家都能睡得这么舒坦。
+
+塞伦盖蒂国家公园因世界上规模最大的动物年度迁徙而闻名。
+
+[下载480](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_800x480.jpg&rf=LaDigue_800x480.jpg "正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚")
+[下载720](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_1024x768.jpg&rf=LaDigue_1024x768.jpg "正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_UHD.jpg&rf=LaDigue_UHD.jpg "正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚")
