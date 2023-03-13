@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_1024x768.jpg&rf=LaDigue_1024x768.jpg "正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_UHD.jpg&rf=LaDigue_UHD.jpg "正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚")
+
+
+---
+### 2023 3月 14：美丽的曲径迷宫
+#### 阿伊纳帕植物园灌木丛迷宫，塞浦路斯（© Tpopova/Getty Images）
+![美丽的曲径迷宫](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的曲径迷宫")
+今天，我们用这张绝美无比的灌木丛迷宫鸟瞰图来庆祝圆周率日，该迷宫位于塞浦路斯的阿伊纳帕植物园。圆周率日的意义在于纪念数学常数π。如果用计算器求圆周率的值，它可能会被截止到小数点后15位或更少，但在数学中π被认为是一个无限的比值。阿伊纳帕植物园灌木丛迷宫的圆形图案把圆周率公式带入了现实，这里也是长途步行爱好者的必游之地。如果你准备好迎接挑战，那就来这个巨型迷宫试试吧。
+
+人们有很多方式庆祝圆周率日，包括吃馅饼、抛馅饼和讨论数字π的意义。
+
+[下载480](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_800x480.jpg&rf=LaDigue_800x480.jpg "阿伊纳帕植物园灌木丛迷宫，塞浦路斯")
+[下载720](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿伊纳帕植物园灌木丛迷宫，塞浦路斯")
+[下载1080](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿伊纳帕植物园灌木丛迷宫，塞浦路斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_UHD.jpg&rf=LaDigue_UHD.jpg "阿伊纳帕植物园灌木丛迷宫，塞浦路斯")
