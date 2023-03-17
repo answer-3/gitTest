@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_1024x768.jpg&rf=LaDigue_1024x768.jpg "ballyvooney海岸，科佩海岸地质公园，爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "ballyvooney海岸，科佩海岸地质公园，爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_UHD.jpg&rf=LaDigue_UHD.jpg "ballyvooney海岸，科佩海岸地质公园，爱尔兰")
+
+
+---
+### 2023 3月 18：此景只应天上有
+#### 甘博阿陨击坑，火星（© NASA/JPL-Caltech/University of Arizona）
+![此景只应天上有](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_800x480.jpg&rf=LaDigue_800x480.jpg "此景只应天上有")
+在火星上生存相当艰难，天气极寒、干燥，而且条件恶劣。火星上的平均温度约为零下62摄氏度，两极的温度甚至可能低至零下152摄氏度。但这颗行星上有许多峡谷、死火山和冰盖，远观还是很美的。火星勘测轨道飞行器发回的大多数照片都显示火星是一颗红色星球，这是因为火星表面有大量红色的赤铁矿，所以呈现橘红色。
+
+人类曾给火星上的风声录音。
+
+[下载480](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_800x480.jpg&rf=LaDigue_800x480.jpg "甘博阿陨击坑，火星")
+[下载720](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_1024x768.jpg&rf=LaDigue_1024x768.jpg "甘博阿陨击坑，火星")
+[下载1080](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "甘博阿陨击坑，火星")
+[下载UHD](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_UHD.jpg&rf=LaDigue_UHD.jpg "甘博阿陨击坑，火星")
