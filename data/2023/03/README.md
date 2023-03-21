@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_1024x768.jpg&rf=LaDigue_1024x768.jpg "彩色粉笔")
 [下载1080](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "彩色粉笔")
 [下载UHD](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_UHD.jpg&rf=LaDigue_UHD.jpg "彩色粉笔")
+
+
+---
+### 2023 3月 22：蜿蜒曲折的人工湖泊，鲍威尔湖
+#### 鲍威尔湖，美国（© Peter Schaefer/Alamy）
+![蜿蜒曲折的人工湖泊，鲍威尔湖](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_800x480.jpg&rf=LaDigue_800x480.jpg "蜿蜒曲折的人工湖泊，鲍威尔湖")
+鲍威尔湖是科罗拉多河上的一座人工水库，跨越犹他州和内华达州边境。19世纪60年代美国修建格伦峡谷大坝后形成了这个水库。大坝利用水力发电，但同时也因为湖面加大了水体的表面积，从而更多的水被蒸发，造成了水资源流失。2000年干旱来临时，鲍威尔湖的水位开始直线下降，到2005年时，鲍威尔湖的储水量几乎仅为1999年时的一半。人类对水资源是极度依赖的，因此联合国在1993年设立了世界水日，旨在通过教育和公益活动在政府和普通人群层面上建立起更好的用水措施。全球人口正在增长，我们每个人都必须为保护水资源和清洁水资源出一份力。
+
+鲍威尔湖位于科罗拉多河流域，是美国第二大人工湖。
+
+[下载480](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_800x480.jpg&rf=LaDigue_800x480.jpg "鲍威尔湖，美国")
+[下载720](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_1024x768.jpg&rf=LaDigue_1024x768.jpg "鲍威尔湖，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲍威尔湖，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_UHD.jpg&rf=LaDigue_UHD.jpg "鲍威尔湖，美国")
