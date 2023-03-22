@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_1024x768.jpg&rf=LaDigue_1024x768.jpg "鲍威尔湖，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲍威尔湖，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_UHD.jpg&rf=LaDigue_UHD.jpg "鲍威尔湖，美国")
+
+
+---
+### 2023 3月 23：惊人的自然奇观
+#### 杜费里峡谷，上萨瓦省，法国（© Jean-Philippe Delobelle/Biosphoto/Alamy）
+![惊人的自然奇观](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_800x480.jpg&rf=LaDigue_800x480.jpg "惊人的自然奇观")
+杜费里峡谷是法国上萨瓦省的一处惊人的自然奇观：它是一个极为狭窄且深邃的峡谷，经由一条悬挂于山崖边的栈道便可抵达。
+
+杜费里峡谷是法国阿尔卑斯山脉中最壮观的自然景观之一，游客可以通过一座长约250米、横跨激流之上25米高的栈桥到达这里。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_800x480.jpg&rf=LaDigue_800x480.jpg "杜费里峡谷，上萨瓦省，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_1024x768.jpg&rf=LaDigue_1024x768.jpg "杜费里峡谷，上萨瓦省，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杜费里峡谷，上萨瓦省，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_UHD.jpg&rf=LaDigue_UHD.jpg "杜费里峡谷，上萨瓦省，法国")
