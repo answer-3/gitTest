@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_1024x768.jpg&rf=LaDigue_1024x768.jpg "杜费里峡谷，上萨瓦省，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杜费里峡谷，上萨瓦省，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_UHD.jpg&rf=LaDigue_UHD.jpg "杜费里峡谷，上萨瓦省，法国")
+
+
+---
+### 2023 3月 24：你见过大蒜开花吗？
+#### 盛开的野蒜，海尼希国家公园，德国（© Frank Sommariva/Getty Images）
+![你见过大蒜开花吗？](https://cn.bing.com/th?id=OHR.WildGarlic_ZH-CN1869796625_800x480.jpg&rf=LaDigue_800x480.jpg "你见过大蒜开花吗？")
+这些清新质朴的白花是野蒜花。在德国图林根州的海尼希国家公园，你可以近距离地欣赏这些野蒜花。海尼希国家公园创建于1997年，旨在保护这里古老的、郁郁葱葱的山毛榉森林。
+
+大蒜被认为具有丰富的药用价值，是一种非常受欢迎的食疗食材。
+
+[下载480](https://cn.bing.com/th?id=OHR.WildGarlic_ZH-CN1869796625_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的野蒜，海尼希国家公园，德国")
+[下载720](https://cn.bing.com/th?id=OHR.WildGarlic_ZH-CN1869796625_1024x768.jpg&rf=LaDigue_1024x768.jpg "盛开的野蒜，海尼希国家公园，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.WildGarlic_ZH-CN1869796625_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的野蒜，海尼希国家公园，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WildGarlic_ZH-CN1869796625_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的野蒜，海尼希国家公园，德国")
