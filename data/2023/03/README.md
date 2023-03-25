@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CecilBrewerStaircase_ZH-CN2117182176_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞西尔布鲁尔楼梯，伦敦，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.CecilBrewerStaircase_ZH-CN2117182176_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞西尔布鲁尔楼梯，伦敦，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CecilBrewerStaircase_ZH-CN2117182176_UHD.jpg&rf=LaDigue_UHD.jpg "塞西尔布鲁尔楼梯，伦敦，英国")
+
+
+---
+### 2023 3月 26：大自然最为色彩鲜艳的一面
+#### 安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国（© Ron and Patty Thomas/Getty Images）
+![大自然最为色彩鲜艳的一面](https://cn.bing.com/th?id=OHR.WildAnza_ZH-CN2384861750_800x480.jpg&rf=LaDigue_800x480.jpg "大自然最为色彩鲜艳的一面")
+欢迎来到美国加州最大的沙漠州立公园——安沙波利哥。这个公园以烂漫春花和自然奇观而闻名。初夏是游览的最佳时节，漫山遍野都是各种野花、植物和仙人掌。这些野花为原本贫瘠的沙漠景观增添了色彩，吸引大批游客的到来。尽管你可能会想摘一些回家，但野花受到加州法律的保护，再说美景也不应私藏，而应大家共赏。
+
+这个公园有天然的溪泉和绿洲，还有加州唯一的本土棕榈——加州扇形棕榈。
+
+[下载480](https://cn.bing.com/th?id=OHR.WildAnza_ZH-CN2384861750_800x480.jpg&rf=LaDigue_800x480.jpg "安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.WildAnza_ZH-CN2384861750_1024x768.jpg&rf=LaDigue_1024x768.jpg "安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WildAnza_ZH-CN2384861750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WildAnza_ZH-CN2384861750_UHD.jpg&rf=LaDigue_UHD.jpg "安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国")
