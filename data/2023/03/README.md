@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WildAnza_ZH-CN2384861750_1024x768.jpg&rf=LaDigue_1024x768.jpg "安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WildAnza_ZH-CN2384861750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WildAnza_ZH-CN2384861750_UHD.jpg&rf=LaDigue_UHD.jpg "安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国")
+
+
+---
+### 2023 3月 27：云雾缭绕的纽约市
+#### 云层中的纽约市天际线（© Orbon Alija/Getty Images）
+![云雾缭绕的纽约市](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_800x480.jpg&rf=LaDigue_800x480.jpg "云雾缭绕的纽约市")
+即使笼罩着朦胧雾气，纽约市的天际线也能一眼就被认出。美国最高的建筑中有八座都位于纽约曼哈顿区。帝国大厦也许是纽约最著名的大楼，曾连续36年都是世界上最高的建筑。而现在，世贸中心的一号楼因其高耸的塔尖成为了美国目前最高的建筑。纽约市的许多摩天大楼都是装饰艺术风格，如《周六夜现场》的录制地洛克菲勒广场30号大厦，以及装饰着镀铬合金老鹰及点缀的克莱斯勒大厦。来到纽约，你会忍不住不停抬头去仰望这些百年来的摩登奇迹。
+
+纽约市是美国人口最稠密的城市，有7000多座高度超35米的高楼大厦，其中至少有101座高度超过198米。
+
+[下载480](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_800x480.jpg&rf=LaDigue_800x480.jpg "云层中的纽约市天际线")
+[下载720](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_1024x768.jpg&rf=LaDigue_1024x768.jpg "云层中的纽约市天际线")
+[下载1080](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "云层中的纽约市天际线")
+[下载UHD](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_UHD.jpg&rf=LaDigue_UHD.jpg "云层中的纽约市天际线")
