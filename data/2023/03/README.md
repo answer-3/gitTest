@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_1024x768.jpg&rf=LaDigue_1024x768.jpg "云层中的纽约市天际线")
 [下载1080](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "云层中的纽约市天际线")
 [下载UHD](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_UHD.jpg&rf=LaDigue_UHD.jpg "云层中的纽约市天际线")
+
+
+---
+### 2023 3月 28：这些蔚为壮观的山峰在何处？
+#### 意大利三峰山上空的银河（© Juan Romero/Cavan Images）
+![这些蔚为壮观的山峰在何处？](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_800x480.jpg&rf=LaDigue_800x480.jpg "这些蔚为壮观的山峰在何处？")
+这三座位于意大利多洛米蒂山脉的山峰被称为三峰山。这片群山是阿尔卑斯山最著名的景点之一，世界各地的游客都来这里徒步旅行。你可以从各个角度欣赏壮丽的山峰，到了夏天，你还能看到漫山的野花。如果你想在月光下徒步或露营，一定要提前计划，为5小时的行程准备充足的水和零食。2009年，三峰山和整个多洛米蒂山脉一起被联合国教科文组织列为世界遗产。
+
+阿尔卑斯山脉繁花似锦，像风铃草、火绒草和龙胆草等植物都在这里茁壮生长。
+
+[下载480](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_800x480.jpg&rf=LaDigue_800x480.jpg "意大利三峰山上空的银河")
+[下载720](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_1024x768.jpg&rf=LaDigue_1024x768.jpg "意大利三峰山上空的银河")
+[下载1080](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "意大利三峰山上空的银河")
+[下载UHD](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_UHD.jpg&rf=LaDigue_UHD.jpg "意大利三峰山上空的银河")
