@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NuzzleManatee_ZH-CN3263788190_1024x768.jpg&rf=LaDigue_1024x768.jpg "两只海牛，佛罗里达州的水晶河，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.NuzzleManatee_ZH-CN3263788190_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只海牛，佛罗里达州的水晶河，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NuzzleManatee_ZH-CN3263788190_UHD.jpg&rf=LaDigue_UHD.jpg "两只海牛，佛罗里达州的水晶河，美国")
+
+
+---
+### 2023 3月 30：华贵的色彩
+#### 孔雀羽毛（© sarayut Thaneerat/Getty Images）
+![华贵的色彩](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_800x480.jpg&rf=LaDigue_800x480.jpg "华贵的色彩")
+孔雀或许是世界上最色彩斑斓的鸟类。当雄孔雀开屏求偶时，尾羽上的“伪眼”会反射出鲜艳夺目的光泽，以此来吸引雌孔雀。孔雀羽毛迷人的色彩并非来自色素，而是来自羽毛内部的光子晶体结构，也就是“结构色”。结构色十分华丽，能随视角和条件变幻。当交配季节结束，雄孔雀的尾羽就会开始脱落，这正是收集这些漂亮羽毛的好时候。
+
+大多数孔雀在三岁时成熟，当雌孔雀跟雄孔雀交配以后，雄孔雀尾上的羽毛就会开始脱落。
+
+[下载480](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_800x480.jpg&rf=LaDigue_800x480.jpg "孔雀羽毛")
+[下载720](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_1024x768.jpg&rf=LaDigue_1024x768.jpg "孔雀羽毛")
+[下载1080](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "孔雀羽毛")
+[下载UHD](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_UHD.jpg&rf=LaDigue_UHD.jpg "孔雀羽毛")
