@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_1024x768.jpg&rf=LaDigue_1024x768.jpg "孔雀羽毛")
 [下载1080](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "孔雀羽毛")
 [下载UHD](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_UHD.jpg&rf=LaDigue_UHD.jpg "孔雀羽毛")
+
+
+---
+### 2023 3月 31：大自然的蓝色奇观
+#### 斯太尔河, 奥地利（© guenterguni/Getty Images）
+![大自然的蓝色奇观](https://cn.bing.com/th?id=OHR.SteyrRiver_ZH-CN3175702026_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的蓝色奇观")
+今天这张照片并未经过调色，奥地利斯太尔河的水真的就是这般湛蓝。斯太尔河流经托特斯山脉，当地植被稀少，那为什么斯太尔河还能如此清澈湛蓝？答案就在环绕斯太尔河谷的群山之中。雨水和融化的雪水流入斯太尔河后，其中较重的沉积物沉到水底，而较细的沉积物则会悬浮在水中。被沉积物散射或反射的阳光就赋予了河水这样鲜艳的蓝色。
+
+斯太尔河位于下奥地利阿尔卑斯山脉地区，流经斯太尔市附近的格伦堡镇。
+
+[下载480](https://cn.bing.com/th?id=OHR.SteyrRiver_ZH-CN3175702026_800x480.jpg&rf=LaDigue_800x480.jpg "斯太尔河, 奥地利")
+[下载720](https://cn.bing.com/th?id=OHR.SteyrRiver_ZH-CN3175702026_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯太尔河, 奥地利")
+[下载1080](https://cn.bing.com/th?id=OHR.SteyrRiver_ZH-CN3175702026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯太尔河, 奥地利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SteyrRiver_ZH-CN3175702026_UHD.jpg&rf=LaDigue_UHD.jpg "斯太尔河, 奥地利")
