@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.JavaBromo_ZH-CN2744043733_1024x768.jpg&rf=LaDigue_1024x768.jpg "爪哇岛东部的婆罗摩火山，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.JavaBromo_ZH-CN2744043733_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "爪哇岛东部的婆罗摩火山，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.JavaBromo_ZH-CN2744043733_UHD.jpg&rf=LaDigue_UHD.jpg "爪哇岛东部的婆罗摩火山，印度尼西亚")
+
+
+---
+### 2023 4月 3：追逐彩虹
+#### 大岛上的霍瑙瑙国家历史公园，夏威夷（© Westend61/Getty Images）
+![追逐彩虹](https://cn.bing.com/th?id=OHR.HonaunauNP_ZH-CN4491662962_800x480.jpg&rf=LaDigue_800x480.jpg "追逐彩虹")
+每年的4月3日是美国的国家寻找彩虹日。阳光穿过空中的小水珠时，小水珠就成了天然的透镜，这些彩色的奇观就产生了。彩虹是阳光的折射产生的，因此彩虹永远都在太阳的对面。
+
+当你在空中，比如在一家飞机上，你有可能会看到环形的彩虹。
+
+[下载480](https://cn.bing.com/th?id=OHR.HonaunauNP_ZH-CN4491662962_800x480.jpg&rf=LaDigue_800x480.jpg "大岛上的霍瑙瑙国家历史公园，夏威夷")
+[下载720](https://cn.bing.com/th?id=OHR.HonaunauNP_ZH-CN4491662962_1024x768.jpg&rf=LaDigue_1024x768.jpg "大岛上的霍瑙瑙国家历史公园，夏威夷")
+[下载1080](https://cn.bing.com/th?id=OHR.HonaunauNP_ZH-CN4491662962_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大岛上的霍瑙瑙国家历史公园，夏威夷")
+[下载UHD](https://cn.bing.com/th?id=OHR.HonaunauNP_ZH-CN4491662962_UHD.jpg&rf=LaDigue_UHD.jpg "大岛上的霍瑙瑙国家历史公园，夏威夷")
