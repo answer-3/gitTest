@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RomanBridge_ZH-CN4699931052_1024x768.jpg&rf=LaDigue_1024x768.jpg "科尔多瓦的古罗马桥，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.RomanBridge_ZH-CN4699931052_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科尔多瓦的古罗马桥，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.RomanBridge_ZH-CN4699931052_UHD.jpg&rf=LaDigue_UHD.jpg "科尔多瓦的古罗马桥，西班牙")
+
+
+---
+### 2023 4月 5：水墨西湖
+#### 杭州西湖水墨意境般的风景，浙江省，中国（© zhangshuang/Getty Images）
+![水墨西湖](https://cn.bing.com/th?id=OHR.QingMing2023_ZH-CN6951199028_800x480.jpg&rf=LaDigue_800x480.jpg "水墨西湖")
+清明节，又称踏青节、行清节、三月节、祭祖节等，节期在仲春与暮春之交。清明节，兼具自然与人文两大内涵，既是“二十四节气”之一，也是传统祭祖节日。清明这一节气，万物皆洁齐、生气旺盛、吐故纳新、气温升高，大地呈现春和景明之象，正是郊外踏青春游与行清墓祭的好时节。
+
+西湖十景包括苏堤春晓、曲院风荷、平湖秋月、断桥残雪、花港观鱼、柳浪闻莺、三潭印月、双峰插云、雷峰夕照、南屏晚钟。
+
+[下载480](https://cn.bing.com/th?id=OHR.QingMing2023_ZH-CN6951199028_800x480.jpg&rf=LaDigue_800x480.jpg "杭州西湖水墨意境般的风景，浙江省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.QingMing2023_ZH-CN6951199028_1024x768.jpg&rf=LaDigue_1024x768.jpg "杭州西湖水墨意境般的风景，浙江省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.QingMing2023_ZH-CN6951199028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杭州西湖水墨意境般的风景，浙江省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.QingMing2023_ZH-CN6951199028_UHD.jpg&rf=LaDigue_UHD.jpg "杭州西湖水墨意境般的风景，浙江省，中国")
