@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LithuanianEggs_ZH-CN6609820454_1024x768.jpg&rf=LaDigue_1024x768.jpg "复活节彩蛋")
 [下载1080](https://cn.bing.com/th?id=OHR.LithuanianEggs_ZH-CN6609820454_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "复活节彩蛋")
 [下载UHD](https://cn.bing.com/th?id=OHR.LithuanianEggs_ZH-CN6609820454_UHD.jpg&rf=LaDigue_UHD.jpg "复活节彩蛋")
+
+
+---
+### 2023 4月 10：强大的亲缘纽带
+#### 安博塞利国家公园的大象，肯尼亚（© Diana Robinson/Getty Images）
+![强大的亲缘纽带](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_800x480.jpg&rf=LaDigue_800x480.jpg "强大的亲缘纽带")
+每年的4月10日，美国的部分地区会庆祝兄弟姐妹日。1995年，幼年就失去兄弟姐妹的克劳迪娅·埃瓦特创造了这个节日，并成立了兄弟姐妹日基金会。这个基金会现正致力于让兄弟姐妹日得到美国官方认证，拥有与母亲节和父亲节同等的地位。印度的保护节（又名手镯节）是最古老的兄弟姐妹节日，时间通常在每年的八月，至今仍然广为流行。印度妇女会在这一天给她们兄弟的手腕上系上一条带子，来作为彼此关心尊重的标志。你如果觉得这种仪式过于隆重，打个电话也能传达你的关心哦。
+
+在美国，大约80%的人都有兄弟姐妹。今天这个节日就是为了纪念兄弟姐妹之间的情谊。
+
+[下载480](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_800x480.jpg&rf=LaDigue_800x480.jpg "安博塞利国家公园的大象，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_1024x768.jpg&rf=LaDigue_1024x768.jpg "安博塞利国家公园的大象，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安博塞利国家公园的大象，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_UHD.jpg&rf=LaDigue_UHD.jpg "安博塞利国家公园的大象，肯尼亚")
