@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_1024x768.jpg&rf=LaDigue_1024x768.jpg "安博塞利国家公园的大象，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安博塞利国家公园的大象，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_UHD.jpg&rf=LaDigue_UHD.jpg "安博塞利国家公园的大象，肯尼亚")
+
+
+---
+### 2023 4月 11：这个隐秘的瀑布在哪里？
+#### 哥伦比亚河峡谷，俄勒冈州，美国（© Chase Dekker Wild-Life Images/Getty Images）
+![这个隐秘的瀑布在哪里？](https://cn.bing.com/th?id=OHR.MossyGrottoFalls_ZH-CN2490591617_800x480.jpg&rf=LaDigue_800x480.jpg "这个隐秘的瀑布在哪里？")
+俄勒冈州的哥伦比亚河峡谷中有大约90个瀑布，苔藓石窟瀑布就是其中一个高20英尺的迷你瀑布。苔藓石窟瀑布于2006年被发现，经由几位著名摄影师而名声大噪。与幽雅清静、潺潺作响的苔藓岩洞瀑布形成鲜明对比的，是世界上最高的瀑布——委内瑞拉的天使瀑布，其落差高达2648英尺，汹涌咆哮的奇观令人惊叹，是委内瑞拉最吸引游客的景点之一。如果你想要放松沉思片刻，建议寻找距离最近的瀑布，然后踏上亲近大自然的旅程吧。
+
+苔藓石窟瀑布距离哥伦比亚河峡谷的鲁克尔溪步道仅300英尺，但想要靠近却并非易事。尽管一路湿滑，尽头的美景绝对让你不虚此行。
+
+[下载480](https://cn.bing.com/th?id=OHR.MossyGrottoFalls_ZH-CN2490591617_800x480.jpg&rf=LaDigue_800x480.jpg "哥伦比亚河峡谷，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MossyGrottoFalls_ZH-CN2490591617_1024x768.jpg&rf=LaDigue_1024x768.jpg "哥伦比亚河峡谷，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MossyGrottoFalls_ZH-CN2490591617_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥伦比亚河峡谷，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MossyGrottoFalls_ZH-CN2490591617_UHD.jpg&rf=LaDigue_UHD.jpg "哥伦比亚河峡谷，俄勒冈州，美国")
