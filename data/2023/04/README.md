@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EuropeFromISS_ZH-CN0722816540_1024x768.jpg&rf=LaDigue_1024x768.jpg "从国际空间站拍摄的地球")
 [下载1080](https://cn.bing.com/th?id=OHR.EuropeFromISS_ZH-CN0722816540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从国际空间站拍摄的地球")
 [下载UHD](https://cn.bing.com/th?id=OHR.EuropeFromISS_ZH-CN0722816540_UHD.jpg&rf=LaDigue_UHD.jpg "从国际空间站拍摄的地球")
+
+
+---
+### 2023 4月 13：徒步旅行者的向往之地
+#### 斯诺登尼亚国家公园，威尔士，英国（© Sebastian Wasek/eStock Photo）
+![徒步旅行者的向往之地](https://cn.bing.com/th?id=OHR.SnowdoniaNational_ZH-CN7415540950_800x480.jpg&rf=LaDigue_800x480.jpg "徒步旅行者的向往之地")
+斯诺登尼亚国家公园占地2155平方公里，拥有迷人的风景和96公里的海岸线，徒步于此就像在听一篇漫长的童话故事，脚下的路满是传说。亚瑟王、梅林、沉睡的龙和失落的神秘宝物等传说和神话交织在公园小径中，给予徒步者丰富而美妙的体验。在许多方面，斯诺登尼亚国家公园完美代表了威尔士文化、人民和传统，这无疑是对威尔士本质的一种赞美。
+
+斯诺登尼亚国家公园的整个海岸线都属于特殊保护区，蜿蜒漫长的海岸线从丽茵半岛一直延伸至威尔士中部海岸。
+
+[下载480](https://cn.bing.com/th?id=OHR.SnowdoniaNational_ZH-CN7415540950_800x480.jpg&rf=LaDigue_800x480.jpg "斯诺登尼亚国家公园，威尔士，英国")
+[下载720](https://cn.bing.com/th?id=OHR.SnowdoniaNational_ZH-CN7415540950_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯诺登尼亚国家公园，威尔士，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.SnowdoniaNational_ZH-CN7415540950_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯诺登尼亚国家公园，威尔士，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SnowdoniaNational_ZH-CN7415540950_UHD.jpg&rf=LaDigue_UHD.jpg "斯诺登尼亚国家公园，威尔士，英国")
