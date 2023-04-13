@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SnowdoniaNational_ZH-CN7415540950_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯诺登尼亚国家公园，威尔士，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.SnowdoniaNational_ZH-CN7415540950_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯诺登尼亚国家公园，威尔士，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnowdoniaNational_ZH-CN7415540950_UHD.jpg&rf=LaDigue_UHD.jpg "斯诺登尼亚国家公园，威尔士，英国")
+
+
+---
+### 2023 4月 14：日光下的星星
+#### 红海星, 地中海（© Hans Leijnse/Minden Pictures）
+![日光下的星星](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_800x480.jpg&rf=LaDigue_800x480.jpg "日光下的星星")
+海星，又称星鱼，是最迷人的海洋生物之一。首先，虽然其名称叫“星鱼”，但实际上根本不是鱼，它们属于海洋无脊椎动物中的棘皮动物。海星的身体是五角星状的，多条“臂”从身体中央延伸出来，呈辐射对称状。
+
+红海星被认为是一个关键物种，因为它们没有天敌。
+
+[下载480](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_800x480.jpg&rf=LaDigue_800x480.jpg "红海星, 地中海")
+[下载720](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_1024x768.jpg&rf=LaDigue_1024x768.jpg "红海星, 地中海")
+[下载1080](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红海星, 地中海")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_UHD.jpg&rf=LaDigue_UHD.jpg "红海星, 地中海")
