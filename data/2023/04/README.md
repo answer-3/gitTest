@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_1024x768.jpg&rf=LaDigue_1024x768.jpg "红海星, 地中海")
 [下载1080](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红海星, 地中海")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_UHD.jpg&rf=LaDigue_UHD.jpg "红海星, 地中海")
+
+
+---
+### 2023 4月 15：宏伟的堡垒和宫殿
+#### 从纳哈加尔城堡鸟瞰斋浦尔，印度（© Sean3810/iStock/Getty Images Plus）
+![宏伟的堡垒和宫殿](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_800x480.jpg&rf=LaDigue_800x480.jpg "宏伟的堡垒和宫殿")
+纳哈加尔堡矗立于阿拉瓦利山脉的一座山脊上，为斋浦尔增添了一道雄伟而壮丽的背景。它始建于1734年，又于1868年经历了扩建。纳哈加尔，意为老虎的住所，如同强大的壁垒，保卫斋浦尔抵御敌人的攻击。
+
+纳哈加尔堡原本是防御城堡，但它从未遭遇过敌人的攻击。架在城堡上的野战炮也从未用于战争，倒是曾用于报时。
+
+[下载480](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_800x480.jpg&rf=LaDigue_800x480.jpg "从纳哈加尔城堡鸟瞰斋浦尔，印度")
+[下载720](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_1024x768.jpg&rf=LaDigue_1024x768.jpg "从纳哈加尔城堡鸟瞰斋浦尔，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从纳哈加尔城堡鸟瞰斋浦尔，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_UHD.jpg&rf=LaDigue_UHD.jpg "从纳哈加尔城堡鸟瞰斋浦尔，印度")
