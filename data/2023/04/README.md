@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_1024x768.jpg&rf=LaDigue_1024x768.jpg "从纳哈加尔城堡鸟瞰斋浦尔，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从纳哈加尔城堡鸟瞰斋浦尔，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_UHD.jpg&rf=LaDigue_UHD.jpg "从纳哈加尔城堡鸟瞰斋浦尔，印度")
+
+
+---
+### 2023 4月 16：去放风筝吧！
+#### 阿德莱德国际风筝节，澳大利亚（© Andrey Moisseyev/Alamy）
+![去放风筝吧！](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_800x480.jpg&rf=LaDigue_800x480.jpg "去放风筝吧！")
+在风和日丽的日子里放风筝，还有比这更简单的快乐吗？风筝这项神奇的发明具体源于何时尚未可知，但关于放风筝的第一份书面记录来自公元前200年的中国。中国最初使用风筝来测量距离，但是随着时间的推移，它们逐渐被用于钓鱼、运动、科学、庆祝及各项娱乐活动。风筝有很多形状，也有各种材料。其实你自己就可以制作简单的风筝，找个风和日丽的日子，放风筝去吧！
+
+风筝不止能飞天，还能潜水，“水下风筝”可用于发电。
+
+[下载480](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_800x480.jpg&rf=LaDigue_800x480.jpg "阿德莱德国际风筝节，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿德莱德国际风筝节，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿德莱德国际风筝节，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_UHD.jpg&rf=LaDigue_UHD.jpg "阿德莱德国际风筝节，澳大利亚")
