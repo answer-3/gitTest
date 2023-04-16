@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿德莱德国际风筝节，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿德莱德国际风筝节，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_UHD.jpg&rf=LaDigue_UHD.jpg "阿德莱德国际风筝节，澳大利亚")
+
+
+---
+### 2023 4月 17：有点孤单，有点浪漫
+#### 布列塔尼的小米努灯塔，法国（© RooM the Agency/Alamy）
+![有点孤单，有点浪漫](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_800x480.jpg&rf=LaDigue_800x480.jpg "有点孤单，有点浪漫")
+今天照片里的是法国西北海岸上的小米努灯塔。小米努灯塔坐落于法国布列塔尼的海岸边，是一座圆柱形的花岗岩灯塔，顶着一盏红灯。小米努灯塔和波尔奇克灯塔坐落在一条线上，标志着布雷斯特港的入口。它自1948年修建以来一直发挥着重要的作用，不光为往来的水手提供向导，还守护着布雷斯特海峡的入口。
+
+法国布列塔尼的小米努城堡始建于1694年-1697年之间，最初是布雷斯特海峡上的一座防御工事。
+
+[下载480](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_800x480.jpg&rf=LaDigue_800x480.jpg "布列塔尼的小米努灯塔，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_1024x768.jpg&rf=LaDigue_1024x768.jpg "布列塔尼的小米努灯塔，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布列塔尼的小米努灯塔，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_UHD.jpg&rf=LaDigue_UHD.jpg "布列塔尼的小米努灯塔，法国")
