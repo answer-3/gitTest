@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_1024x768.jpg&rf=LaDigue_1024x768.jpg "布列塔尼的小米努灯塔，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布列塔尼的小米努灯塔，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_UHD.jpg&rf=LaDigue_UHD.jpg "布列塔尼的小米努灯塔，法国")
+
+
+---
+### 2023 4月 18：山顶上的文化奇观
+#### 马丘比丘，秘鲁（© Dora Dalton/Getty Images）
+![山顶上的文化奇观](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_800x480.jpg&rf=LaDigue_800x480.jpg "山顶上的文化奇观")
+高悬于安第斯山脉之上，秘鲁的马丘比丘被认为曾属于古印加皇帝帕查库蒂。今天是联合国教科文组织国际古迹遗址日，推荐这座“印加的失落之城”实在是恰逢其时，它是代表一整个民族记忆的文化符号。国际古迹遗址日由国际古迹遗址理事会首次提出，并于1983年正式设立。它给了我们一个回望过去的机会，让我们得以一睹前人的文化，同时为后人保留这些久远的记忆。
+
+2007年，马丘比丘在一个全球网络投票活动中被评选为新世界七大奇迹之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_800x480.jpg&rf=LaDigue_800x480.jpg "马丘比丘，秘鲁")
+[下载720](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_1024x768.jpg&rf=LaDigue_1024x768.jpg "马丘比丘，秘鲁")
+[下载1080](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马丘比丘，秘鲁")
+[下载UHD](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_UHD.jpg&rf=LaDigue_UHD.jpg "马丘比丘，秘鲁")
