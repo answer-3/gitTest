@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_1024x768.jpg&rf=LaDigue_1024x768.jpg "马丘比丘，秘鲁")
 [下载1080](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马丘比丘，秘鲁")
 [下载UHD](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_UHD.jpg&rf=LaDigue_UHD.jpg "马丘比丘，秘鲁")
+
+
+---
+### 2023 4月 19：一对互相依偎的褐头凤鹛
+#### 褐头凤鹛（© Staffan Widstrand/Minden Pictures）
+![一对互相依偎的褐头凤鹛](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_800x480.jpg&rf=LaDigue_800x480.jpg "一对互相依偎的褐头凤鹛")
+褐头凤鹛是一种爱唱歌的小鸟，有着棕褐色的头冠。它们只生活在中国台湾的山地森林中。因为它们聚在一起进食时经常叫个不停，所以它们有时候也被叫做八卦精。有趣的是，它们有时候会像蝙蝠一样倒挂在樱花树上。观鸟爱好者可以在阿里山国家风景区中窥见这些小鸟，这里也有如画一般的森林和日出景观。
+
+褐头凤鹛的叫声听起来就像英文的“我们见面啦”（we meet you）。
+
+[下载480](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_800x480.jpg&rf=LaDigue_800x480.jpg "褐头凤鹛")
+[下载720](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_1024x768.jpg&rf=LaDigue_1024x768.jpg "褐头凤鹛")
+[下载1080](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "褐头凤鹛")
+[下载UHD](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_UHD.jpg&rf=LaDigue_UHD.jpg "褐头凤鹛")
