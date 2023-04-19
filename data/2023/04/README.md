@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_1024x768.jpg&rf=LaDigue_1024x768.jpg "褐头凤鹛")
 [下载1080](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "褐头凤鹛")
 [下载UHD](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_UHD.jpg&rf=LaDigue_UHD.jpg "褐头凤鹛")
+
+
+---
+### 2023 4月 20：宁静的夜空
+#### 克雷斯特德比特山上方的月食，科罗拉多州，美国（© Mengzhonghua Photography/Getty Images）
+![宁静的夜空](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_800x480.jpg&rf=LaDigue_800x480.jpg "宁静的夜空")
+这张照片拍摄地位于克雷斯特德比特山，记录了纯净夜空中的月食现象。克雷斯特德比特山是北美落基山脉麋鹿山脉的一座著名山峰。这座12,168英尺（3,709 米）的山峰位于美国科罗拉多州甘尼森县 Crested Butte镇附近的甘尼森国家森林。甘尼森国家森林是一座美国国家森林，占地2612.71平方英里，它与白河和圣伊莎贝尔国家森林共享Maroon Bells-Snowmass荒野，与圣伊莎贝尔国家森林共享 Collegiate Peaks荒野地区。
+
+甘尼森国家森林以约翰·甘尼森上尉的名字命名，约翰·甘尼森上尉于 1853 年来到该地区，寻找一条穿越大陆分水岭的可行路线修建铁路。
+
+[下载480](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_800x480.jpg&rf=LaDigue_800x480.jpg "克雷斯特德比特山上方的月食，科罗拉多州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_1024x768.jpg&rf=LaDigue_1024x768.jpg "克雷斯特德比特山上方的月食，科罗拉多州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克雷斯特德比特山上方的月食，科罗拉多州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_UHD.jpg&rf=LaDigue_UHD.jpg "克雷斯特德比特山上方的月食，科罗拉多州，美国")
