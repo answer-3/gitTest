@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_1024x768.jpg&rf=LaDigue_1024x768.jpg "克雷斯特德比特山上方的月食，科罗拉多州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克雷斯特德比特山上方的月食，科罗拉多州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_UHD.jpg&rf=LaDigue_UHD.jpg "克雷斯特德比特山上方的月食，科罗拉多州，美国")
+
+
+---
+### 2023 4月 21：充满活力、阳光普照的岛屿
+#### 普罗奇达岛，意大利（© Sean Pavone/Shutterstock）
+![充满活力、阳光普照的岛屿](https://cn.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_800x480.jpg&rf=LaDigue_800x480.jpg "充满活力、阳光普照的岛屿")
+普罗奇达岛是意大利一个迷人的岛屿，位于那不勒斯湾，以其色彩缤纷的建筑、风景如画的街道和令人惊叹的海景而闻名。这座岛历史悠久，几个世纪以来，希腊人、罗马人等社会文明都曾在此定居。历史中心是该岛的主要景点之一，以蜿蜒穿过山丘的狭窄街道小巷为特色。
+
+普罗奇达岛风景最美丽的海滩是波佐·韦基奥海滩，其黑色沙子因电影《邮差》而闻名；东面是基亚拉海滩，可以俯瞰伊斯基亚岛，有清澈的浅水区和岩石悬崖的背景（以及一家超级棒的海鲜餐厅)；还有奇拉乔海滩，它是最长、最隐蔽的海滩。
+
+[下载480](https://cn.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_800x480.jpg&rf=LaDigue_800x480.jpg "普罗奇达岛，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_1024x768.jpg&rf=LaDigue_1024x768.jpg "普罗奇达岛，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普罗奇达岛，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_UHD.jpg&rf=LaDigue_UHD.jpg "普罗奇达岛，意大利")
