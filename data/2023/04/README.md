@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时分薄雾笼罩下的薰衣草田，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分薄雾笼罩下的薰衣草田，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.Honnavaralavenderfields_ZH-CN8054655091_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分薄雾笼罩下的薰衣草田，印度")
+
+
+---
+### 2023 4月 24：隐藏在树林中
+#### 巴伐利亚森林酒窖，德国（© Andreas_Zerndl/Getty Images）
+![隐藏在树林中](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_800x480.jpg&rf=LaDigue_800x480.jpg "隐藏在树林中")
+德国可能因啤酒在世界享誉盛名，但这个丰饶的国家也以其强大的酿酒业而闻名。随着葡萄酒产量的增加，酒的储存需求也随之而来。酒窖通常需要低温黑暗的环境，所以图中这个位于巴伐利亚森林的酒窖位置十分完美。
+
+巴伐利亚森林是一片树木繁茂的低山区，位于德国巴伐利亚，长约100公里。
+
+[下载480](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚森林酒窖，德国")
+[下载720](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴伐利亚森林酒窖，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚森林酒窖，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FranconianWineCellar_ZH-CN8234719750_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚森林酒窖，德国")
