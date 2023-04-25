@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿德利企鹅")
 [下载1080](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿德利企鹅")
 [下载UHD](https://cn.bing.com/th?id=OHR.AdelieWPD_ZH-CN8434233391_UHD.jpg&rf=LaDigue_UHD.jpg "阿德利企鹅")
+
+
+---
+### 2023 4月 26：一对大雕鸮
+#### 大雕鸮幼崽（© Michael Morse/Getty Images）
+![一对大雕鸮](https://cn.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_800x480.jpg&rf=LaDigue_800x480.jpg "一对大雕鸮")
+你现在看到的是大雕鸮，一种狩猎时会利用羽毛隐身的猛禽，它们是凶猛的捕猎者，可以轻松捕捉比自己更大的猎物。作为贪婪的食肉动物，大角鸮捕杀任何能找到的小动物，如兔子、松鼠、老鼠，甚至蝎子。大角鸮喜欢单独活动，白天在密林中栖息，晚上则独自狩猎，它们不会迁徙，但经常从一个领地换到另一个领地。这些独特的鸟类遍布世界各地，从北极地区到热带地区，几乎都能发现它们的身影，你甚至可以在自家后院找到它们！
+
+大雕鸮的眼睛不会在眼眶中转动，但它们可以将头部旋转180度以上，朝任何方向看。
+
+[下载480](https://cn.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_800x480.jpg&rf=LaDigue_800x480.jpg "大雕鸮幼崽")
+[下载720](https://cn.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_1024x768.jpg&rf=LaDigue_1024x768.jpg "大雕鸮幼崽")
+[下载1080](https://cn.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大雕鸮幼崽")
+[下载UHD](https://cn.bing.com/th?id=OHR.GHOAudubonDay_ZH-CN8605905801_UHD.jpg&rf=LaDigue_UHD.jpg "大雕鸮幼崽")
