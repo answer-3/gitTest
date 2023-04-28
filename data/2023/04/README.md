@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MariposaGrove_ZH-CN8957145435_1024x768.jpg&rf=LaDigue_1024x768.jpg "优胜美地国家公园的马里波萨谷巨杉林，美国加利福尼亚州")
 [下载1080](https://cn.bing.com/th?id=OHR.MariposaGrove_ZH-CN8957145435_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "优胜美地国家公园的马里波萨谷巨杉林，美国加利福尼亚州")
 [下载UHD](https://cn.bing.com/th?id=OHR.MariposaGrove_ZH-CN8957145435_UHD.jpg&rf=LaDigue_UHD.jpg "优胜美地国家公园的马里波萨谷巨杉林，美国加利福尼亚州")
+
+
+---
+### 2023 4月 29：沙漠上空的星海
+#### 约书亚树国家公园上空的银河，美国加利福尼亚州（© Schroptschop/Getty Images）
+![沙漠上空的星海](https://cn.bing.com/th?id=OHR.JTNPMilkyWay_ZH-CN9128830420_800x480.jpg&rf=LaDigue_800x480.jpg "沙漠上空的星海")
+今天是天文日，快准备好望远镜和星图APP去观星吧！为了让更多人对太空感兴趣，道格·伯杰于1973年创立了天文日，他在街角、商场和公园里架设了望远镜，让人们有机会亲眼看到星星。
+
+银河中心的云层散发着朗姆酒和覆盆子的味道。
+
+[下载480](https://cn.bing.com/th?id=OHR.JTNPMilkyWay_ZH-CN9128830420_800x480.jpg&rf=LaDigue_800x480.jpg "约书亚树国家公园上空的银河，美国加利福尼亚州")
+[下载720](https://cn.bing.com/th?id=OHR.JTNPMilkyWay_ZH-CN9128830420_1024x768.jpg&rf=LaDigue_1024x768.jpg "约书亚树国家公园上空的银河，美国加利福尼亚州")
+[下载1080](https://cn.bing.com/th?id=OHR.JTNPMilkyWay_ZH-CN9128830420_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约书亚树国家公园上空的银河，美国加利福尼亚州")
+[下载UHD](https://cn.bing.com/th?id=OHR.JTNPMilkyWay_ZH-CN9128830420_UHD.jpg&rf=LaDigue_UHD.jpg "约书亚树国家公园上空的银河，美国加利福尼亚州")
