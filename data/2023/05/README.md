@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThreeWildebeest_ZH-CN0175563521_1024x768.jpg&rf=LaDigue_1024x768.jpg "马赛马拉的角马，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ThreeWildebeest_ZH-CN0175563521_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉的角马，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThreeWildebeest_ZH-CN0175563521_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉的角马，肯尼亚")
+
+
+---
+### 2023 5月 4：原力与你同在
+#### 蒂卡尔的玛雅遗址，危地马拉（© THP Creative/Getty Images）
+![原力与你同在](https://cn.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_800x480.jpg&rf=LaDigue_800x480.jpg "原力与你同在")
+原力与你同在！星战宇宙在几十年来一直牵动着影迷的想象力，今天是纪念星球大战的影响力的日子，就像原力一样，在我们身边随处可见。1977年上映的首部星球大战电影将我们带到了一个遥远的星系，让我们认识了一群令人难忘的角色、以及原力光明面和黑暗面之间扣人心弦的战斗。星球大战已经扩展到了电视剧、书籍、漫画、游乐园以及你可以想象到的任何一种产品。
+
+蒂卡尔的名字可能来源于尤卡坦玛雅语，意思是“在水潭边”。
+
+[下载480](https://cn.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_800x480.jpg&rf=LaDigue_800x480.jpg "蒂卡尔的玛雅遗址，危地马拉")
+[下载720](https://cn.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒂卡尔的玛雅遗址，危地马拉")
+[下载1080](https://cn.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒂卡尔的玛雅遗址，危地马拉")
+[下载UHD](https://cn.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_UHD.jpg&rf=LaDigue_UHD.jpg "蒂卡尔的玛雅遗址，危地马拉")
