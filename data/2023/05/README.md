@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒂卡尔的玛雅遗址，危地马拉")
 [下载1080](https://cn.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒂卡尔的玛雅遗址，危地马拉")
 [下载UHD](https://cn.bing.com/th?id=OHR.RebelBase_ZH-CN0484516261_UHD.jpg&rf=LaDigue_UHD.jpg "蒂卡尔的玛雅遗址，危地马拉")
+
+
+---
+### 2023 5月 5：从胜利到欢庆
+#### 普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥（© Radius Images/Shutterstock）
+![从胜利到欢庆](https://cn.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_800x480.jpg&rf=LaDigue_800x480.jpg "从胜利到欢庆")
+与许多人的看法相反，5月5日并不是墨西哥的独立日。 真正的墨西哥独立日是在每年的9月16日庆祝。 而5月5日是为了庆祝在1862年的这一天墨西哥在普埃布拉战役中战胜法兰西帝国。虽然这一天是为了纪念一个重大的历史事件，但墨西哥的庆祝活动相对平静，主要集中在普埃布拉。
+
+传说在建此教堂时，墙刚砌好就无缘无故地倒塌了，后来两位天使闻讯降临，每天晚上守卫着教堂，终于使教堂工程得以完成。
+
+[下载480](https://cn.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_800x480.jpg&rf=LaDigue_800x480.jpg "普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_1024x768.jpg&rf=LaDigue_1024x768.jpg "普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.Popocatepetl_ZH-CN5483138337_UHD.jpg&rf=LaDigue_UHD.jpg "普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥")
