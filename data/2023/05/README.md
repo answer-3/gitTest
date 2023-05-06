@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_1024x768.jpg&rf=LaDigue_1024x768.jpg "大麦和矢车菊, 诺德豪森, 德国")
 [下载1080](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大麦和矢车菊, 诺德豪森, 德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Kornblume_ZH-CN0344238832_UHD.jpg&rf=LaDigue_UHD.jpg "大麦和矢车菊, 诺德豪森, 德国")
+
+
+---
+### 2023 5月 7：什么事这么好笑？
+#### 海豹幼崽，伦迪岛，英国（© Henley Spiers/Minden Pictures）
+![什么事这么好笑？](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_800x480.jpg&rf=LaDigue_800x480.jpg "什么事这么好笑？")
+每年5月的第一个星期日是世界爱笑日。设立这个节日的目的是让大家更了解笑对身心健康的好处。今天这张灰色小海豹咧嘴大笑的图片就很好地展示了什么叫做开怀大笑。一些研究表明，笑可以提升免疫力，改善情绪，并减轻疼痛。事实证明，“笑是最好的良药”这句古谚确为不易之论。
+
+笑能降血压，进而降低人们心脏病发或中风的风险。
+
+[下载480](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_800x480.jpg&rf=LaDigue_800x480.jpg "海豹幼崽，伦迪岛，英国")
+[下载720](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_1024x768.jpg&rf=LaDigue_1024x768.jpg "海豹幼崽，伦迪岛，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海豹幼崽，伦迪岛，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&rf=LaDigue_UHD.jpg "海豹幼崽，伦迪岛，英国")
