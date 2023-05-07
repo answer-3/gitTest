@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_1024x768.jpg&rf=LaDigue_1024x768.jpg "海豹幼崽，伦迪岛，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海豹幼崽，伦迪岛，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SealLaughing_ZH-CN5809094643_UHD.jpg&rf=LaDigue_UHD.jpg "海豹幼崽，伦迪岛，英国")
+
+
+---
+### 2023 5月 8：藏在精致拱门里的百年时光
+#### 精致拱门，拱门国家公园，犹他州（© Mark Brodkin Photography/Getty Images）
+![藏在精致拱门里的百年时光](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_800x480.jpg&rf=LaDigue_800x480.jpg "藏在精致拱门里的百年时光")
+精致拱门是美国最受欢迎的地质景点之一。在犹他州拱门国家公园的2000个石拱门中，精致拱门是最有名的那一座，也是这里最大的岩石拱门。犹他州的车牌和邮票也有印有精致拱门。只需徒步三英里，就能到达这座拱门，这也是公园里最棒的徒步旅行路线之一。每年都有近140万人前往拱门国家公园，只为一睹精致拱门的全貌。
+
+这座精致拱门是由恩特拉达砂岩形成的。原先的岩石边缘逐渐被风化和侵蚀，最后只留下了这座拱门。
+
+[下载480](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_800x480.jpg&rf=LaDigue_800x480.jpg "精致拱门，拱门国家公园，犹他州")
+[下载720](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_1024x768.jpg&rf=LaDigue_1024x768.jpg "精致拱门，拱门国家公园，犹他州")
+[下载1080](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "精致拱门，拱门国家公园，犹他州")
+[下载UHD](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg&rf=LaDigue_UHD.jpg "精致拱门，拱门国家公园，犹他州")
