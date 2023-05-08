@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_1024x768.jpg&rf=LaDigue_1024x768.jpg "精致拱门，拱门国家公园，犹他州")
 [下载1080](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "精致拱门，拱门国家公园，犹他州")
 [下载UHD](https://cn.bing.com/th?id=OHR.TheChaps_ZH-CN5966508162_UHD.jpg&rf=LaDigue_UHD.jpg "精致拱门，拱门国家公园，犹他州")
+
+
+---
+### 2023 5月 9：天堂的一角
+#### 卡韦希环礁，土阿莫土群岛，法属波利尼西亚（© WaterFrame/Alamy）
+![天堂的一角](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_800x480.jpg&rf=LaDigue_800x480.jpg "天堂的一角")
+卡韦希环礁是法属波利尼西亚的土阿莫土群岛的一个珊瑚环礁。它距离塔希提岛450公里，面积非常小，长24公里，宽18公里，人口约200人。岛上的居民主要以干椰子肉为生。
+
+虽然此前卡韦希环礁可能已被珍珠商人所熟知，但有记载的第一位访问该环礁的欧洲人是“比格尔号”的船长罗伯特·菲茨罗伊，他于1835年发现并测绘了卡韦希环礁。
+
+[下载480](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_800x480.jpg&rf=LaDigue_800x480.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_UHD.jpg&rf=LaDigue_UHD.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
