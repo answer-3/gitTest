@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.Atoll_ZH-CN9469093805_UHD.jpg&rf=LaDigue_UHD.jpg "卡韦希环礁，土阿莫土群岛，法属波利尼西亚")
+
+
+---
+### 2023 5月 10：金光中的灯塔
+#### 科尔杜昂灯塔，罗扬市，夏朗德省，法国（© FRTimelapse/Getty Images）
+![金光中的灯塔](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_800x480.jpg&rf=LaDigue_800x480.jpg "金光中的灯塔")
+建于1611年的科尔杜昂灯塔堪称海上奇迹，它矗立在法国大西洋中吉伦特河口湾的一块巨石上。这座灯塔在18世纪经历了改造，因为集宫殿、堡垒和大教堂于一身，所以它被誉为“海上凡尔赛宫”。
+
+它于1855年被修复，并于1862年与巴黎圣母院一同被列入法国遗产纪念地。
+
+[下载480](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_800x480.jpg&rf=LaDigue_800x480.jpg "科尔杜昂灯塔，罗扬市，夏朗德省，法国")
+[下载720](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_1024x768.jpg&rf=LaDigue_1024x768.jpg "科尔杜昂灯塔，罗扬市，夏朗德省，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科尔杜昂灯塔，罗扬市，夏朗德省，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_UHD.jpg&rf=LaDigue_UHD.jpg "科尔杜昂灯塔，罗扬市，夏朗德省，法国")
