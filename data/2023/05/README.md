@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_1024x768.jpg&rf=LaDigue_1024x768.jpg "科尔杜昂灯塔，罗扬市，夏朗德省，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科尔杜昂灯塔，罗扬市，夏朗德省，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CordouanLighthouse_ZH-CN6267155218_UHD.jpg&rf=LaDigue_UHD.jpg "科尔杜昂灯塔，罗扬市，夏朗德省，法国")
+
+
+---
+### 2023 5月 11：这个体育场建在你意想不到的地方
+#### 亨宁斯韦尔体育场，挪威（© Morten Falch Sortland/Getty Images）
+![这个体育场建在你意想不到的地方](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_800x480.jpg&rf=LaDigue_800x480.jpg "这个体育场建在你意想不到的地方")
+如果你想同时欣赏一场有趣的足球比赛和挪威海壮丽的美景，那么挪威的亨宁斯韦尔足球场就是你的目的地。这座球场坐落在一个只有几百人的小渔村里，在其广阔的绿地上，你可能永远看不到一场欧冠联赛，球场内甚至没有观众看台，但它仍然是世界上最引人注目的足球场之一。亨宁斯韦尔足球场位于一个小岛之上，被裸露的岩石和湛蓝的海水包围，在这里看球会是一种永生难忘的梦幻体验。
+
+亨宁斯韦尔体育场位于北极圈内，被认为是世界上最美丽的足球场之一，可以俯瞰湛蓝的挪威海。
+
+[下载480](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_800x480.jpg&rf=LaDigue_800x480.jpg "亨宁斯韦尔体育场，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_1024x768.jpg&rf=LaDigue_1024x768.jpg "亨宁斯韦尔体育场，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亨宁斯韦尔体育场，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_UHD.jpg&rf=LaDigue_UHD.jpg "亨宁斯韦尔体育场，挪威")
