@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_1024x768.jpg&rf=LaDigue_1024x768.jpg "亨宁斯韦尔体育场，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亨宁斯韦尔体育场，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.FootballField_ZH-CN6439594719_UHD.jpg&rf=LaDigue_UHD.jpg "亨宁斯韦尔体育场，挪威")
+
+
+---
+### 2023 5月 12：蝴蝶最好的朋友
+#### 紫色和蓝色的野生羽扇豆（© silverjohn/Getty Images Plus）
+![蝴蝶最好的朋友](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_800x480.jpg&rf=LaDigue_800x480.jpg "蝴蝶最好的朋友")
+野生羽扇豆，俗称鲁冰花，是最美丽的一年生草本植物之一。羽扇豆于早春或初夏开放，花朵通常呈蓝色、粉色或紫色，当它们在草地和路边尽情绽放时，即使是最平凡的风景也变得亮眼起来。野生羽扇豆也是卡纳蓝蝴蝶用来保护卵的唯一一种植物，卡纳蓝蝴蝶的幼虫孵化后就以羽扇豆的叶子为食。
+
+在18世纪末，羽扇豆被引入北欧用于改善土壤。到了19世纪60年代，黄花羽扇豆在波罗的海沿岸平原已经随处可见了。
+
+[下载480](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_800x480.jpg&rf=LaDigue_800x480.jpg "紫色和蓝色的野生羽扇豆")
+[下载720](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_1024x768.jpg&rf=LaDigue_1024x768.jpg "紫色和蓝色的野生羽扇豆")
+[下载1080](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫色和蓝色的野生羽扇豆")
+[下载UHD](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_UHD.jpg&rf=LaDigue_UHD.jpg "紫色和蓝色的野生羽扇豆")
