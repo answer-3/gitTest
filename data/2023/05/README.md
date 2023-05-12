@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_1024x768.jpg&rf=LaDigue_1024x768.jpg "紫色和蓝色的野生羽扇豆")
 [下载1080](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫色和蓝色的野生羽扇豆")
 [下载UHD](https://cn.bing.com/th?id=OHR.WildLupine_ZH-CN6623952879_UHD.jpg&rf=LaDigue_UHD.jpg "紫色和蓝色的野生羽扇豆")
+
+
+---
+### 2023 5月 13：供水系统的历史
+#### 曼海姆水塔，德国（© tichr/Getty Images）
+![供水系统的历史](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_800x480.jpg&rf=LaDigue_800x480.jpg "供水系统的历史")
+曼海姆水塔是德国曼海姆的一座有名的地标建筑。这座水塔位于腓特烈广场，建于1886年至1889年之间，高60米，直径19米，是曼海姆的第一座城市水塔。
+
+曼海姆水塔是曼海姆的第一座城市水塔。
+
+[下载480](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_800x480.jpg&rf=LaDigue_800x480.jpg "曼海姆水塔，德国")
+[下载720](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_1024x768.jpg&rf=LaDigue_1024x768.jpg "曼海姆水塔，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼海姆水塔，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Mannheim_ZH-CN6793377814_UHD.jpg&rf=LaDigue_UHD.jpg "曼海姆水塔，德国")
