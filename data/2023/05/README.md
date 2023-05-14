@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_1024x768.jpg&rf=LaDigue_1024x768.jpg "白尾鹿母鹿和刚出生的小鹿，美国蒙大拿州")
 [下载1080](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白尾鹿母鹿和刚出生的小鹿，美国蒙大拿州")
 [下载UHD](https://cn.bing.com/th?id=OHR.OdocoileusVirginianus_ZH-CN6941501455_UHD.jpg&rf=LaDigue_UHD.jpg "白尾鹿母鹿和刚出生的小鹿，美国蒙大拿州")
+
+
+---
+### 2023 5月 15：文化交汇的岛屿
+#### 莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛（© Gavin Hellier/Getty Images）
+![文化交汇的岛屿](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_800x480.jpg&rf=LaDigue_800x480.jpg "文化交汇的岛屿")
+数千年的时光里，加那利群岛一直是各种文化的交汇地。早在公元前40年，这片火山群岛就引起了罗马人的兴趣；999年，阿拉伯商人又来到了这里。几百年间，热那亚、马略卡、葡萄牙和法国的殖民者也纷至沓来。这里的农业种植历史悠久，香蕉、番茄及土豆是主要农作物。如今，加纳利群岛是西班牙的一部分。最初的航海者来这里寻找贸易机会，而如今的游客来这里探索国家公园、躺在沙滩上放松、以及欣赏壮丽的落日。
+
+在大航海时代，这些岛屿是西班牙殖民美洲的行程中主要的船舶停靠点。
+
+[下载480](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_800x480.jpg&rf=LaDigue_800x480.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
+[下载720](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_1024x768.jpg&rf=LaDigue_1024x768.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
+[下载1080](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_UHD.jpg&rf=LaDigue_UHD.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
