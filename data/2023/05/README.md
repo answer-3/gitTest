@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_1024x768.jpg&rf=LaDigue_1024x768.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
 [下载1080](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.MorroJable_ZH-CN7382027688_UHD.jpg&rf=LaDigue_UHD.jpg "莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛")
+
+
+---
+### 2023 5月 16：一片平静的水域
+#### 在奥克弗诺基国家野生动物保护区划独木舟（© Brad Beck/Tandem Stills + Motion）
+![一片平静的水域](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_800x480.jpg&rf=LaDigue_800x480.jpg "一片平静的水域")
+五月是美国湿地月，旨在关注湿地在当地和全球生态系统的重要性。湿地值得我们去关注，这些多样性生态系统有固碳功能，改善水质，并为至少三分之一的濒危物种提供栖息地。然而如今，湿地自身也面临威胁。美国本土48个州的2.21亿英亩湿地，超半数已遭到破坏。
+
+奥克弗诺基沼泽因其两栖动物的数量而闻名，这是关乎全球生态健康的指标。
+
+[下载480](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_800x480.jpg&rf=LaDigue_800x480.jpg "在奥克弗诺基国家野生动物保护区划独木舟")
+[下载720](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_1024x768.jpg&rf=LaDigue_1024x768.jpg "在奥克弗诺基国家野生动物保护区划独木舟")
+[下载1080](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在奥克弗诺基国家野生动物保护区划独木舟")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmericanWetlands_ZH-CN7534567518_UHD.jpg&rf=LaDigue_UHD.jpg "在奥克弗诺基国家野生动物保护区划独木舟")
