@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_1024x768.jpg&rf=LaDigue_1024x768.jpg "拉曼加，穆尔西亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉曼加，穆尔西亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.SardineBurial_ZH-CN9563091726_UHD.jpg&rf=LaDigue_UHD.jpg "拉曼加，穆尔西亚，西班牙")
+
+
+---
+### 2023 5月 19：我们怎么才能帮助濒危动物？
+#### 苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚（© Cyril Ruoso/Minden Pictures）
+![我们怎么才能帮助濒危动物？](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_800x480.jpg&rf=LaDigue_800x480.jpg "我们怎么才能帮助濒危动物？")
+随着自然栖息地的减少和消失，成千上万的物种面临着灭绝的危险，图中的苏门答腊犀牛亦是如此。伐木业和狩猎业使得它们生存受到威胁，被列为国际自然保护联盟濒危物种红色名录的极危物种。苏门答腊犀牛曾经遍布东南亚，现今其野生数量仅不到100只。
+
+苏门答腊犀牛浑身覆盖着长长的毛。与现存的其他所有犀牛物种相比，它们与已灭绝的批毛犀亲缘关系更近。
+
+[下载480](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_800x480.jpg&rf=LaDigue_800x480.jpg "苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_1024x768.jpg&rf=LaDigue_1024x768.jpg "苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SumatranRhino_ZH-CN4529744910_UHD.jpg&rf=LaDigue_UHD.jpg "苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚")
