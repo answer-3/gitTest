@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_1024x768.jpg&rf=LaDigue_1024x768.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.EuropeanHoneybee_ZH-CN5191293837_UHD.jpg&rf=LaDigue_UHD.jpg "谢菲尔德的欧洲蜜蜂, 英格兰")
+
+
+---
+### 2023 5月 21：一座承载历史的桥
+#### 塞纳河，巴黎，法国（© StockByM/Getty Images）
+![一座承载历史的桥](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_800x480.jpg&rf=LaDigue_800x480.jpg "一座承载历史的桥")
+塞纳河流经法国巴黎，对这座古城的历史有着非比寻常的意义。公元前3世纪，一个名为帕里西人的凯尔特部落决定定居在塞纳河两岸之间的一座岛屿，即如今的西岱岛。在接下来的数个世纪里，塞纳河在巴黎发展成为全球商业和文化中心的过程中发挥了重要作用。
+
+这条河是许多著名印象派画作的主题，包括莫奈的《拉格勒努耶尔浴池》和雷诺阿的《阿斯涅尔的塞纳河》。
+
+[下载480](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_800x480.jpg&rf=LaDigue_800x480.jpg "塞纳河，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞纳河，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞纳河，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_UHD.jpg&rf=LaDigue_UHD.jpg "塞纳河，巴黎，法国")
