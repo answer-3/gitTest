@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞纳河，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞纳河，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PontdArcole_ZH-CN5348049357_UHD.jpg&rf=LaDigue_UHD.jpg "塞纳河，巴黎，法国")
+
+
+---
+### 2023 5月 22：为了每个人，保护地球的生物多样性
+#### 阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加（© Kevin Wells/Getty Images）
+![为了每个人，保护地球的生物多样性](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_800x480.jpg&rf=LaDigue_800x480.jpg "为了每个人，保护地球的生物多样性")
+今天是世界生物多样性日，也是个回顾生物多样性在人类历史发展和续存过程中的关键作用的机会。从细菌、基因到整个生态系统，生物多样性囊括所有形式的生命，包括珊瑚礁、雨林和海洋环境等。我们的水、食物、药品、衣服、住所和能源都依赖于健康的生态系统。
+
+阿雷纳尔是哥斯达黎加所有火山中最年轻、最活跃的一座。
+
+[下载480](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_800x480.jpg&rf=LaDigue_800x480.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.BiodiverseCostaRica_ZH-CN5524154131_UHD.jpg&rf=LaDigue_UHD.jpg "阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加")
