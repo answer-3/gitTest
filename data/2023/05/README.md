@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_1024x768.jpg&rf=LaDigue_1024x768.jpg "西部箱龟")
 [下载1080](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西部箱龟")
 [下载UHD](https://cn.bing.com/th?id=OHR.WesternBoxTurtle_ZH-CN6203163704_UHD.jpg&rf=LaDigue_UHD.jpg "西部箱龟")
+
+
+---
+### 2023 5月 24：历史在这里复活
+#### 科孚岛旧城堡（© Netfalls Remy Musser/Shutterstock）
+![历史在这里复活](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_800x480.jpg&rf=LaDigue_800x480.jpg "历史在这里复活")
+希腊科孚岛的旧城堡矗立在半岛的尖端，现在是科孚公共图书馆和档案馆的所在地。这座城堡历史悠久，可以追溯到拜占庭时期。6世纪，入侵者袭击了科孚，促使幸存者建造了一个被城堡包围的新村庄。后来在威尼斯统治期间，城堡又经历了加固改建，以抵御奥斯曼军队的侵扰。数个世纪以来，这座希腊地标见证了当地的巨大变化以及几个帝国的兴衰。
+
+城堡内设有科孚公共图书馆，位于英国人早年建造的军营内。城堡还会举行一些艺术和文化展览。
+
+[下载480](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_800x480.jpg&rf=LaDigue_800x480.jpg "科孚岛旧城堡")
+[下载720](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1024x768.jpg&rf=LaDigue_1024x768.jpg "科孚岛旧城堡")
+[下载1080](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科孚岛旧城堡")
+[下载UHD](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_UHD.jpg&rf=LaDigue_UHD.jpg "科孚岛旧城堡")
