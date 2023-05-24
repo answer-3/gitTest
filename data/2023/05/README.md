@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1024x768.jpg&rf=LaDigue_1024x768.jpg "科孚岛旧城堡")
 [下载1080](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科孚岛旧城堡")
 [下载UHD](https://cn.bing.com/th?id=OHR.OldFortress_ZH-CN6469523538_UHD.jpg&rf=LaDigue_UHD.jpg "科孚岛旧城堡")
+
+
+---
+### 2023 5月 25：童话照进现实
+#### 法罗群岛，丹麦（© miroslav_1/Getty Images）
+![童话照进现实](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_800x480.jpg&rf=LaDigue_800x480.jpg "童话照进现实")
+萨克森位于法罗群岛的斯特雷莫伊海岸，是一个偏远的小村庄，以其童话般的美景而闻名。它坐落在风景如画的山谷中，旁边是清澈的泻湖，两侧群山环绕，屋顶覆盖着绿油油的草皮。萨克森人烟稀少，人口不到15人，甚至这里瀑布的数量都比常住人口数量多。
+
+萨克森位于曾经是入海口的底部，四周环绕着高山。 入口形成了一个很好的深天然良港，直到一场风暴用沙子把它堵住了。
+
+[下载480](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_800x480.jpg&rf=LaDigue_800x480.jpg "法罗群岛，丹麦")
+[下载720](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_1024x768.jpg&rf=LaDigue_1024x768.jpg "法罗群岛，丹麦")
+[下载1080](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法罗群岛，丹麦")
+[下载UHD](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_UHD.jpg&rf=LaDigue_UHD.jpg "法罗群岛，丹麦")
