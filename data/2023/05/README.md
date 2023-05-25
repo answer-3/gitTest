@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_1024x768.jpg&rf=LaDigue_1024x768.jpg "法罗群岛，丹麦")
 [下载1080](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法罗群岛，丹麦")
 [下载UHD](https://cn.bing.com/th?id=OHR.SaksunFaroe_ZH-CN7150180006_UHD.jpg&rf=LaDigue_UHD.jpg "法罗群岛，丹麦")
+
+
+---
+### 2023 5月 26：在废墟中寻找美
+#### 西沙瓦寺，素可泰历史公园，泰国（© Casper1774 Studio/Shutterstock）
+![在废墟中寻找美](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_800x480.jpg&rf=LaDigue_800x480.jpg "在废墟中寻找美")
+历史悠久的素可泰镇是古代重要的大都市中心，也是泰国最迷人的目的地之一。素可泰（Sukhothai）意为“幸福的黎明”，是繁荣社区和建筑技艺完美融合的典范。历史公园周围环绕着湖泊、草坪和郁郁葱葱的树木。公园里有一座古代宫殿和26座雄伟寺庙的遗迹，包括今天这张照片中的西沙瓦寺。这座寺庙是公园的主要景点之一，融合了华富里的建筑设计和印度教的风格。素可泰镇及其周围建筑被联合国教科文组织列为世界遗产。如果你想体验泰国丰富的文化，那就去素可泰历史公园吧。
+
+这座佛教圣地（可追溯至 12 和 13 世纪）位于玛哈泰寺以南，拥有三座高棉风格的塔楼和一条风景如画的护城河。
+
+[下载480](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_800x480.jpg&rf=LaDigue_800x480.jpg "西沙瓦寺，素可泰历史公园，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_1024x768.jpg&rf=LaDigue_1024x768.jpg "西沙瓦寺，素可泰历史公园，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西沙瓦寺，素可泰历史公园，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg&rf=LaDigue_UHD.jpg "西沙瓦寺，素可泰历史公园，泰国")
