@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_1024x768.jpg&rf=LaDigue_1024x768.jpg "西沙瓦寺，素可泰历史公园，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西沙瓦寺，素可泰历史公园，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WatSriSawai_ZH-CN7688908090_UHD.jpg&rf=LaDigue_UHD.jpg "西沙瓦寺，素可泰历史公园，泰国")
+
+
+---
+### 2023 5月 27：伸向天空
+#### 纳米比亚的植物（© Fotofeeling/DEEPOL by plainpicture）
+![伸向天空](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_800x480.jpg&rf=LaDigue_800x480.jpg "伸向天空")
+箭袋树是一种罕见的植物，生长于气候恶劣干旱的纳米比亚。有趣的是，箭袋树其实根本不是树，而是一种高度濒危的芦荟植物，属于多肉植物。当地土著桑人会将箭袋树的枝干掏空，做成箭袋在狩猎时使用，故名箭袋树。如果你在纳米比亚的冬季（5月到7月）参观箭袋树森林，就能欣赏到这些独特的植物开出鲜黄的花朵。
+
+箭袋树被土著桑人称为“choje”。
+
+[下载480](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_800x480.jpg&rf=LaDigue_800x480.jpg "纳米比亚的植物")
+[下载720](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_1024x768.jpg&rf=LaDigue_1024x768.jpg "纳米比亚的植物")
+[下载1080](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳米比亚的植物")
+[下载UHD](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_UHD.jpg&rf=LaDigue_UHD.jpg "纳米比亚的植物")
