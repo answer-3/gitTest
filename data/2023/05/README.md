@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_1024x768.jpg&rf=LaDigue_1024x768.jpg "纳米比亚的植物")
 [下载1080](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳米比亚的植物")
 [下载UHD](https://cn.bing.com/th?id=OHR.AloeDichotomum_ZH-CN7940121733_UHD.jpg&rf=LaDigue_UHD.jpg "纳米比亚的植物")
+
+
+---
+### 2023 5月 28：俯瞰层叠的梯田
+#### 乌布的德格拉朗梯田，印度尼西亚（© Cavan Images/Adobe Stock）
+![俯瞰层叠的梯田](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_800x480.jpg&rf=LaDigue_800x480.jpg "俯瞰层叠的梯田")
+稻米在巴厘岛文化中扮演着重要角色，特加拉朗梯田是巴厘岛最著名的稻田之一。德格拉朗梯田利用独特的供水系统进行水稻种植，优化了水的配置及使用。传统的巴厘岛灌溉系统，被称为苏巴克（Subak），效率极高，目前已被联合国教科文组织列为世界遗产。从空中俯瞰特加拉朗梯田，田野风光令人惊叹。如果你要去巴厘岛，一定要去特加拉朗梯田看看。
+
+德格拉朗梯田位于巴厘岛的乌布市，面积61.8平方公里，人口53760人。层叠的梯田是该地区著名的旅游景点。
+
+[下载480](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_800x480.jpg&rf=LaDigue_800x480.jpg "乌布的德格拉朗梯田，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌布的德格拉朗梯田，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌布的德格拉朗梯田，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.TegallalangTerrace_ZH-CN8126456968_UHD.jpg&rf=LaDigue_UHD.jpg "乌布的德格拉朗梯田，印度尼西亚")
