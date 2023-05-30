@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.HiddenBeach_ZH-CN8410568637_UHD.jpg&rf=LaDigue_UHD.jpg "埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥")
+
+
+---
+### 2023 5月 31：一脸好奇的海獭宝宝
+#### 海獭宝宝，威廉王子湾，美国阿拉斯加州（© Donald M. Jones/Minden Pictures）
+![一脸好奇的海獭宝宝](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_800x480.jpg&rf=LaDigue_800x480.jpg "一脸好奇的海獭宝宝")
+观察可爱的海獭在海里嬉戏是件赏心悦事。除了可爱之外，海獭还对维护近海生态系统平衡有着非常重要的作用。如果没有海獭捕食海胆的话，海胆会吃光重要的海藻森林，从而夺走许多海洋动物的藏身地和食物。但不幸的是，海獭现在正面临着灭绝的风险。让我们重视并了解如何保护这种可爱又有着重要作用的小动物吧。
+
+海獭每天要进食自身体重25%的食物。
+
+[下载480](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_800x480.jpg&rf=LaDigue_800x480.jpg "海獭宝宝，威廉王子湾，美国阿拉斯加州")
+[下载720](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_1024x768.jpg&rf=LaDigue_1024x768.jpg "海獭宝宝，威廉王子湾，美国阿拉斯加州")
+[下载1080](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭宝宝，威廉王子湾，美国阿拉斯加州")
+[下载UHD](https://cn.bing.com/th?id=OHR.WorldOtterDay_ZH-CN8607141093_UHD.jpg&rf=LaDigue_UHD.jpg "海獭宝宝，威廉王子湾，美国阿拉斯加州")
