@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_1024x768.jpg&rf=LaDigue_1024x768.jpg "沙丘中的南非剑羚，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙丘中的南非剑羚，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.GemsbokNamibia_ZH-CN0963988839_UHD.jpg&rf=LaDigue_UHD.jpg "沙丘中的南非剑羚，纳米比亚")
+
+
+---
+### 2023 6月 3：一睹最壮观的峡谷
+#### 大峡谷国家公园的南凯巴布步道，亚利桑那州，美国（© Roman Khomlyak/Getty Images）
+![一睹最壮观的峡谷](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_800x480.jpg&rf=LaDigue_800x480.jpg "一睹最壮观的峡谷")
+今天是美国国家步道日，也是远足的最佳时机，也提醒大家要保护远足路线，让每个人都能享受这份快乐。想找个绝佳的地方活动活动吗？今天照片里位于大峡谷的南凯巴布步道就是个好去处。这条路线从被称为“烟囱”的急转弯开始，通向一个陡峭狭窄的下坡路，等待你的将是一次令人振奋的旅程。新鲜空气和运动可以改善你的情绪和睡眠，增强体力和耐力，并降低患心脏病的风险。此外，环境的变化还可以激发创造力，启发新思路。
+
+由于沿途非常陡峭，并且缺乏树荫和饮用水（除了起点），南凯巴布步道比光明天使步道更艰险，但沿途的风景也更加壮丽。
+
+[下载480](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_800x480.jpg&rf=LaDigue_800x480.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_1024x768.jpg&rf=LaDigue_1024x768.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_ZH-CN1186135534_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷国家公园的南凯巴布步道，亚利桑那州，美国")
