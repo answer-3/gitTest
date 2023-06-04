@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_1024x768.jpg&rf=LaDigue_1024x768.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_UHD.jpg&rf=LaDigue_UHD.jpg "怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国")
+
+
+---
+### 2023 6月 5：风景如画的瀑布
+#### 辛华达峡谷的瀑布，贾斯珀国家公园，加拿大（© Delpixart/Getty Images）
+![风景如画的瀑布](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_800x480.jpg&rf=LaDigue_800x480.jpg "风景如画的瀑布")
+辛华达瀑布位于加拿大艾伯塔省贾斯珀国家公园，落差约为18.5米。从著名的冰原大道下来，通过一条600米的通道便可到达该瀑布。
+
+贾斯珀国家公园于1984年被联合国教科文组织列为世界遗产。
+
+[下载480](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_800x480.jpg&rf=LaDigue_800x480.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1024x768.jpg&rf=LaDigue_1024x768.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_UHD.jpg&rf=LaDigue_UHD.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
