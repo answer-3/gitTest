@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1024x768.jpg&rf=LaDigue_1024x768.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.WaterfallsSunwaptaValley_ZH-CN1804229850_UHD.jpg&rf=LaDigue_UHD.jpg "辛华达峡谷的瀑布，贾斯珀国家公园，加拿大")
+
+
+---
+### 2023 6月 6：诺曼底登陆日
+#### The chalk cliffs of Étretat, Normandy, France（© MarcelloLand/Getty Images）
+![诺曼底登陆日](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底登陆日")
+第二次世界大战期间，1944年6月6日，经过数月计划和无数次的拖延，盟军在法国诺曼底海滩登陆，诺曼底战役由此拉开序幕。这是历史上最雄心勃勃的军事袭击之一，为盟军战胜轴心国奠定了坚实基础。
+
+1927年，法国两位飞行员驾驶双翼飞机“白鸟”跨越大西洋，途经埃特尔塔之后，他们便神秘失踪了。埃特尔塔也因此闻名于世。
+
+[下载480](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_800x480.jpg&rf=LaDigue_800x480.jpg "The chalk cliffs of Étretat, Normandy, France")
+[下载720](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_1024x768.jpg&rf=LaDigue_1024x768.jpg "The chalk cliffs of Étretat, Normandy, France")
+[下载1080](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "The chalk cliffs of Étretat, Normandy, France")
+[下载UHD](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_UHD.jpg&rf=LaDigue_UHD.jpg "The chalk cliffs of Étretat, Normandy, France")
