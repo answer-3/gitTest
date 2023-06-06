@@ -72,13 +72,27 @@
 
 ---
 ### 2023 6月 6：诺曼底登陆日
-#### The chalk cliffs of Étretat, Normandy, France（© MarcelloLand/Getty Images）
-![诺曼底登陆日](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底登陆日")
+#### 埃特尔塔海岸的白垩悬崖，诺曼底，法国（© MarcelloLand/Getty Images）
+![诺曼底登陆日](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底登陆日")
 第二次世界大战期间，1944年6月6日，经过数月计划和无数次的拖延，盟军在法国诺曼底海滩登陆，诺曼底战役由此拉开序幕。这是历史上最雄心勃勃的军事袭击之一，为盟军战胜轴心国奠定了坚实基础。
 
 1927年，法国两位飞行员驾驶双翼飞机“白鸟”跨越大西洋，途经埃特尔塔之后，他们便神秘失踪了。埃特尔塔也因此闻名于世。
 
-[下载480](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_800x480.jpg&rf=LaDigue_800x480.jpg "The chalk cliffs of Étretat, Normandy, France")
-[下载720](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_1024x768.jpg&rf=LaDigue_1024x768.jpg "The chalk cliffs of Étretat, Normandy, France")
-[下载1080](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "The chalk cliffs of Étretat, Normandy, France")
-[下载UHD](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN1961838068_UHD.jpg&rf=LaDigue_UHD.jpg "The chalk cliffs of Étretat, Normandy, France")
+[下载480](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_800x480.jpg&rf=LaDigue_800x480.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
+[下载720](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CliffsEtretat_ZH-CN9911283373_UHD.jpg&rf=LaDigue_UHD.jpg "埃特尔塔海岸的白垩悬崖，诺曼底，法国")
+
+
+---
+### 2023 6月 7：如果这些墙会说话······
+#### 普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州（© Ian Shive/Tandem Stills + Motion）
+![如果这些墙会说话······](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_800x480.jpg&rf=LaDigue_800x480.jpg "如果这些墙会说话······")
+数百年来，新墨西哥州的查科峡谷一直是普韦布洛人祖先的主要文化中心，他们的族群在这里扎根并繁荣起来。然而，由于高地沙漠冬季漫长、少雨且生长季节短暂，在这里生活并非易事。尽管面临这些挑战，普韦布洛人还是找到了在这个条件艰苦的地方繁荣发展的方法。今天，查科文化国家历史公园让我们得以窥见古老的普韦布洛人的文化、传统和价值观。该遗址是史前时代举办典礼的公共建筑的所在地，建筑风格具有普韦布洛文化的独特特征。这些建筑仿照古代的悬崖民居，由石灰石块或土坯砖建造而成。
+
+查科文化国家历史公园是美国最重要的保留了前哥伦布时期文化和历史的地区之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_800x480.jpg&rf=LaDigue_800x480.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
+[下载720](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1024x768.jpg&rf=LaDigue_1024x768.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
+[下载1080](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_UHD.jpg&rf=LaDigue_UHD.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
