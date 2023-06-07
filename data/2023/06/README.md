@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1024x768.jpg&rf=LaDigue_1024x768.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
 [下载1080](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_UHD.jpg&rf=LaDigue_UHD.jpg "普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州")
+
+
+---
+### 2023 6月 8：座头鲸唱歌的地方
+#### 座头鲸（© Philip Thurston/Getty Images）
+![座头鲸唱歌的地方](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸唱歌的地方")
+海洋覆盖了地球表面70%以上的面积，因此海洋在调节地球气候和生态系统方面发挥着至关重要的作用。这些浩瀚的海洋支撑着巨大的海洋生物生态系统，美丽的座头鲸也在其中。座头鲸因其“唱歌”而闻名，研究认为这可能是一种孤独的表现。好消息是，随着商业捕鲸活动的结束，鲸鱼的数量有所上升，鲸鱼们也就不太需要再唱孤独之歌了。
+
+雄性座头鲸被称为公鲸，而雌性则被称为母鲸。
+
+[下载480](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸")
+[下载720](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_1024x768.jpg&rf=LaDigue_1024x768.jpg "座头鲸")
+[下载1080](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸")
+[下载UHD](https://cn.bing.com/th?id=OHR.PlayfulHumpback_ZH-CN2241016258_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸")
