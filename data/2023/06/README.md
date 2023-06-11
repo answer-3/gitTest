@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_1024x768.jpg&rf=LaDigue_1024x768.jpg "巨鹭，克鲁格国家公园，南非")
 [下载1080](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨鹭，克鲁格国家公园，南非")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoliathHeron_ZH-CN2413747227_UHD.jpg&rf=LaDigue_UHD.jpg "巨鹭，克鲁格国家公园，南非")
+
+
+---
+### 2023 6月 12：大弯的生日
+#### 仙人掌植物，得克萨斯州大弯国家公园，美国（© Tim Fitzharris/Minden Pictures）
+![大弯的生日](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_800x480.jpg&rf=LaDigue_800x480.jpg "大弯的生日")
+今天是位于得克萨斯州的大弯国家公园的88岁生日。这个巨大的国家公园建立于1935年，已迎来了无数的自然爱好者和冒险者。公园的南边边界是划分得克萨斯州和墨西哥的格兰德河。如果你在地图上看一下这个公园和格兰德河，你就会明白这个公园名字的由来了。
+
+大弯国家公园有超过1200种植物、超过450种鸟类、56种爬行动物和75种哺乳动物。
+
+[下载480](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_800x480.jpg&rf=LaDigue_800x480.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_1024x768.jpg&rf=LaDigue_1024x768.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_UHD.jpg&rf=LaDigue_UHD.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
