@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_1024x768.jpg&rf=LaDigue_1024x768.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BigBendAnniv_ZH-CN3445097868_UHD.jpg&rf=LaDigue_UHD.jpg "仙人掌植物，得克萨斯州大弯国家公园，美国")
+
+
+---
+### 2023 6月 13：你是否有勇气进入这片茂密的沼泽
+#### 奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国（© Emmer Photo/Alamy）
+![你是否有勇气进入这片茂密的沼泽](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_800x480.jpg&rf=LaDigue_800x480.jpg "你是否有勇气进入这片茂密的沼泽")
+奥克弗诺基沼泽大部分位于佐治亚州东南部，是全美最大的淡水沼泽地。这片巨大又独特的生态系统覆盖了700平方英里的土地，生活着各种各样的野生动物，比如鹭、鹤、麻鸦、美洲短吻鳄、啄木鸟、乌龟、蛇、青蛙等。宁静的水域被有机物腐烂产生的单宁染成棕色。这片区域曾经是塞米诺尔印第安人的领地。到了现代，这片沼泽的一大部分已经被商业化了，这里的泥煤矿藏被作为燃料开采。
+
+奥克弗诺基经常被直译为“震颤的大地”，但是这个名字很有可能源于希奇蒂语"oki fanôːki"，意为“冒泡的水”。
+
+[下载480](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_800x480.jpg&rf=LaDigue_800x480.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&rf=LaDigue_UHD.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
