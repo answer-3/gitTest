@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_ZH-CN3640203783_UHD.jpg&rf=LaDigue_UHD.jpg "奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国")
+
+
+---
+### 2023 6月 14：巴洛克风盛宴
+#### 多瑙河畔的帕绍市，巴伐利亚，德国（© Scott Wilson/Alamy）
+![巴洛克风盛宴](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_800x480.jpg&rf=LaDigue_800x480.jpg "巴洛克风盛宴")
+帕绍位于德国的下巴伐利亚州，因为多瑙河、因河和伊尔茨河在此交汇，帕绍又被称作“三河之城”。帕绍以其哥特风格和巴洛克风格的建筑闻名。多瑙河和伊尔茨河之间的山上坐落着上韦斯特城堡和下韦斯特城堡，俯瞰着这座城市。
+
+很多沿多瑙河航行的内河游船都从帕绍启航，顺流而下前往维也纳。这是一条经典历史路线，帝王之路。
+
+[下载480](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_800x480.jpg&rf=LaDigue_800x480.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
+[下载720](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_1024x768.jpg&rf=LaDigue_1024x768.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PassauSunsetJune_ZH-CN7563956674_UHD.jpg&rf=LaDigue_UHD.jpg "多瑙河畔的帕绍市，巴伐利亚，德国")
