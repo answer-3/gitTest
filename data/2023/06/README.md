@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_1024x768.jpg&rf=LaDigue_1024x768.jpg "同步萤火虫，大烟山国家公园，田纳西州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "同步萤火虫，大烟山国家公园，田纳西州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SmokyFireflies_ZH-CN3840923626_UHD.jpg&rf=LaDigue_UHD.jpg "同步萤火虫，大烟山国家公园，田纳西州，美国")
+
+
+---
+### 2023 6月 16：鹰嘴海龟
+#### 游泳的鹰嘴海龟， 冲绳，日本（© Robert Mallon/Getty Images）
+![鹰嘴海龟](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_800x480.jpg&rf=LaDigue_800x480.jpg "鹰嘴海龟")
+世界海龟日快乐！今天，世界各地的人们聚集在一起清理近岸海洋垃圾，守护海龟及其他海洋生物的栖息之所，帮助它们恢复干净的水域。鹰嘴海龟分布非常广泛，最大的亚种群分布在加勒比海、印度洋和印度洋-太平洋海域。
+
+鹰嘴海龟因其窄而尖的喙而得名，它还有个更知名的名称：玳瑁。
+
+[下载480](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_800x480.jpg&rf=LaDigue_800x480.jpg "游泳的鹰嘴海龟， 冲绳，日本")
+[下载720](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_1024x768.jpg&rf=LaDigue_1024x768.jpg "游泳的鹰嘴海龟， 冲绳，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "游泳的鹰嘴海龟， 冲绳，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_UHD.jpg&rf=LaDigue_UHD.jpg "游泳的鹰嘴海龟， 冲绳，日本")
