@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_1024x768.jpg&rf=LaDigue_1024x768.jpg "游泳的鹰嘴海龟， 冲绳，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "游泳的鹰嘴海龟， 冲绳，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_UHD.jpg&rf=LaDigue_UHD.jpg "游泳的鹰嘴海龟， 冲绳，日本")
+
+
+---
+### 2023 6月 17：桨叶动力
+#### 在加利福尼亚州圣地亚哥举行的“为团结划桨”活动（© Brandon Colbert Photography/Getty Images）
+![桨叶动力](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_800x480.jpg&rf=LaDigue_800x480.jpg "桨叶动力")
+国际冲浪日通过激发人们对冲浪的热情来促进对海洋的保护。 每年 6 月的第三个星期六，人们都会聚集在一起参加冲浪比赛、烧烤、海滩清理和其他活动，以帮助恢复和保护海洋环境。 为一项事业走到一起是全球冲浪社区的标志，无论是为了自然还是为了反对不公正，正如他们在 2020 年加利福尼亚州恩西尼塔斯举行的“为团结划桨”聚会上所做的那样，如图所示。
+
+比赛和奖品也是庆祝活动的一部分，与冲浪相关的行业会捐赠冲浪板和潜水服等奖品。
+
+[下载480](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_800x480.jpg&rf=LaDigue_800x480.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
+[下载720](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_1024x768.jpg&rf=LaDigue_1024x768.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
+[下载1080](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
+[下载UHD](https://cn.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg&rf=LaDigue_UHD.jpg "在加利福尼亚州圣地亚哥举行的“为团结划桨”活动")
