@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_1024x768.jpg&rf=LaDigue_1024x768.jpg "奔跑在诺曼底草地上的小狍，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奔跑在诺曼底草地上的小狍，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg&rf=LaDigue_UHD.jpg "奔跑在诺曼底草地上的小狍，法国")
+
+
+---
+### 2023 6月 20：这只顶级掠食者是什么?
+#### 秃鹰，通加斯国家森林，阿拉斯加，美国（© Jaynes Gallery/Shutterstock）
+![这只顶级掠食者是什么?](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_800x480.jpg&rf=LaDigue_800x480.jpg "这只顶级掠食者是什么?")
+秃鹰又名白头海雕、白头鹰，是力量、决心和勇气的象征。1782年6月20日，美国通过了一项法令，将白头鹰定为国鸟。为了进一步保护白头鹰，1995年，时任美国总统比尔·克林顿宣布每年的6月20日为“白头鹰日”。白头鹰，因其白色的头部而得名，曾是濒临灭绝的鸟类，但是随着保护工作的开展和濒危物种法案的实施，白头鹰的数量实现了成倍增长。
+
+秃鹰实际上并不真的秃，而“秃”的英文“bald”的旧意其实是“白头”。
+
+[下载480](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_800x480.jpg&rf=LaDigue_800x480.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
+[下载720](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1024x768.jpg&rf=LaDigue_1024x768.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg&rf=LaDigue_UHD.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
