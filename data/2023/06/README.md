@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1024x768.jpg&rf=LaDigue_1024x768.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg&rf=LaDigue_UHD.jpg "秃鹰，通加斯国家森林，阿拉斯加，美国")
+
+
+---
+### 2023 6月 21：夏日仙境
+#### 夏日盛开的荷花（© pandemin/Getty Images）
+![夏日仙境](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_800x480.jpg&rf=LaDigue_800x480.jpg "夏日仙境")
+夏至是二十四节气中的一个，也是一年中白昼最长的一天。在这一天，太阳直射北回归线，北半球的温度达到最高，而南半球则是冬至。夏至的日期通常在公历6月21日或22日，不同地区有不同的习俗和活动来庆祝这个节气。在中国，夏至被认为是阴阳转化的重要时刻，也是祭祀天地和祖先的日子。人们会吃面条、鸡蛋、荔枝等食物来祈求健康和长寿，也会烧香、挂艾草、泡药浴等来驱除瘟疫和邪气。
+
+“荷”被称为“活化石”，是被子植物中起源最早的植物之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_800x480.jpg&rf=LaDigue_800x480.jpg "夏日盛开的荷花")
+[下载720](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1024x768.jpg&rf=LaDigue_1024x768.jpg "夏日盛开的荷花")
+[下载1080](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏日盛开的荷花")
+[下载UHD](https://cn.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_UHD.jpg&rf=LaDigue_UHD.jpg "夏日盛开的荷花")
