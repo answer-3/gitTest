@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_1024x768.jpg&rf=LaDigue_1024x768.jpg "中国传统节日端午节")
 [下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国传统节日端午节")
 [下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_UHD.jpg&rf=LaDigue_UHD.jpg "中国传统节日端午节")
+
+
+---
+### 2023 6月 23：蝴蝶翩跹
+#### 帝王蝶在野花中取食（© bookguy/Getty Images）
+![蝴蝶翩跹](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_800x480.jpg&rf=LaDigue_800x480.jpg "蝴蝶翩跹")
+传粉动物周旨在向那些至关重要的传粉动物致敬。你也许会问，为什么传粉很重要呢？因为，我们日常食用的水果和蔬菜大多都是开花植物，很多都需要某种动物去传粉。传粉不仅有利于生物多样性，还能改善农作物的质量和数量，提高收成。仅在美国，每年就有价值近200亿美元的产品在生产过程中需要传粉。你可以通过尽量减少或者避免使用杀虫剂来庆祝这一周，顺便还可以为这些勤劳的传粉者创造出一个适宜生存的环境。
+
+帝王蝶每秒可以扇动翅膀12次，也就是每分钟近720次。
+
+[下载480](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_800x480.jpg&rf=LaDigue_800x480.jpg "帝王蝶在野花中取食")
+[下载720](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_1024x768.jpg&rf=LaDigue_1024x768.jpg "帝王蝶在野花中取食")
+[下载1080](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帝王蝶在野花中取食")
+[下载UHD](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_UHD.jpg&rf=LaDigue_UHD.jpg "帝王蝶在野花中取食")
