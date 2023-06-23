@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_1024x768.jpg&rf=LaDigue_1024x768.jpg "帝王蝶在野花中取食")
 [下载1080](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帝王蝶在野花中取食")
 [下载UHD](https://cn.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_UHD.jpg&rf=LaDigue_UHD.jpg "帝王蝶在野花中取食")
+
+
+---
+### 2023 6月 24：海湾之美
+#### 芽富湾，芽庄，越南（© Thang Tat Nguyen/Getty Images）
+![海湾之美](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_800x480.jpg&rf=LaDigue_800x480.jpg "海湾之美")
+芽富湾是越南芽庄市附近的一块宝地。世界各地的游客来到这个迷人的海湾，在美丽的岛屿周围浮潜，品尝美味的海鲜，享受惊险的水上运动等等。芽庄海湾的汉门群岛是越南唯一的官方海洋保护区所在地。猴子岛和兰屿也是芽富湾两个颇受欢迎的岛屿。顾名思义，猴子岛是数以万计的猴子的家园，比如灰毛猴、红脸猴等，而兰屿则生长着各种各样的兰花。
+
+芽庄的汉门海洋保护区是全球首批被世界自然保护联盟承认的四个海洋保护区之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_800x480.jpg&rf=LaDigue_800x480.jpg "芽富湾，芽庄，越南")
+[下载720](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_1024x768.jpg&rf=LaDigue_1024x768.jpg "芽富湾，芽庄，越南")
+[下载1080](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "芽富湾，芽庄，越南")
+[下载UHD](https://cn.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_UHD.jpg&rf=LaDigue_UHD.jpg "芽富湾，芽庄，越南")
