@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1024x768.jpg&rf=LaDigue_1024x768.jpg "佩特拉的宝库，约旦")
 [下载1080](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩特拉的宝库，约旦")
 [下载UHD](https://cn.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_UHD.jpg&rf=LaDigue_UHD.jpg "佩特拉的宝库，约旦")
+
+
+---
+### 2023 6月 26：奢华的迷宫
+#### 维朗德里城堡及花园，卢瓦尔河谷，法国（© VLADJ55/Shutterstock）
+![奢华的迷宫](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_800x480.jpg&rf=LaDigue_800x480.jpg "奢华的迷宫")
+法国的维朗德里城堡以其精美绝伦的花园出名。它的花园也被认为是一个文艺复兴时期园林设计的典范。花园被细分成了不同的区域，有着几何纹路、生机盎然的花床、静谧的水景和精心修建的树篱。每个区域都有其主题，有的有装饰性，有的有实用性，缤纷的色彩和纹路相交织，美不胜收。城堡的花园体现了建筑设计和自然的和谐关系，其美景和艺术创造力使游客为之着迷。
+
+维朗德里城堡在1934年被认定为一处历史纪念地。2000年，它又被列入世界遗产。
+
+[下载480](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_800x480.jpg&rf=LaDigue_800x480.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
+[下载720](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1024x768.jpg&rf=LaDigue_1024x768.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg&rf=LaDigue_UHD.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
