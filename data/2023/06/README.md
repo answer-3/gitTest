@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1024x768.jpg&rf=LaDigue_1024x768.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg&rf=LaDigue_UHD.jpg "维朗德里城堡及花园，卢瓦尔河谷，法国")
+
+
+---
+### 2023 6月 27：红石的土地
+#### 塞多纳，亚利桑那州，美国（© Jonathan Ross/Getty Images）
+![红石的土地](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_800x480.jpg&rf=LaDigue_800x480.jpg "红石的土地")
+从你踏入塞多纳的那一刻起，你将会震撼于其绝妙的景色和从沙漠中突兀而出的红色砂石悬崖。冒险爱好者热爱这里的美景和宁静。塞多纳还遍地是美洲原住民的历史。尽管由于缺少文字记述，我们对于这个地区最早的定居者知之甚少，他们被称为“祖先普韦布洛人”。普遍认为他们在1400年前在此定居。大部分有关这些古代先民的信息来自于考古遗迹和文物，包括大规模的普韦布洛人定居点遗址。
+
+塞多纳地处亚利桑那州北部，冬季温和，夏季炎热。
+
+[下载480](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_800x480.jpg&rf=LaDigue_800x480.jpg "塞多纳，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞多纳，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞多纳，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg&rf=LaDigue_UHD.jpg "塞多纳，亚利桑那州，美国")
