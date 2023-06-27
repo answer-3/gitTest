@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞多纳，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞多纳，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg&rf=LaDigue_UHD.jpg "塞多纳，亚利桑那州，美国")
+
+
+---
+### 2023 6月 28：天堂之景！
+#### 韦尔纳扎，五渔村，意大利（© Rubin Versigny/Getty Images）
+![天堂之景！](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_800x480.jpg&rf=LaDigue_800x480.jpg "天堂之景！")
+韦尔纳扎是组成五渔村国家公园的第二个村镇。五渔村在1997年被联合国教科文组织列为世界文化遗产地。韦尔纳扎是利古里亚海岸上的一颗明珠，镇上的特色建筑非常值得一看，这里还有一条2公里长的步道，通往一座圣母堂，非常适合徒步爱好者。
+
+2021年的动画电影《夏日友晴天》中的海滨小镇就以韦尔纳扎为原型。
+
+[下载480](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔纳扎，五渔村，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1024x768.jpg&rf=LaDigue_1024x768.jpg "韦尔纳扎，五渔村，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎，五渔村，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎，五渔村，意大利")
