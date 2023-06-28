@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1024x768.jpg&rf=LaDigue_1024x768.jpg "韦尔纳扎，五渔村，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎，五渔村，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎，五渔村，意大利")
+
+
+---
+### 2023 6月 29：赞美热带
+#### 巴尼亚群岛，苏门答腊，印度尼西亚（© fbxx/Getty Imagesz）
+![赞美热带](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_800x480.jpg&rf=LaDigue_800x480.jpg "赞美热带")
+巴尼亚群岛位于印度洋海域，每年吸引数百万游客。巴尼亚群岛由99个小岛组成，这些小岛大部分都无人居住，甚至还没有名字，岛上目之所及都是纯净的沙滩、茂盛的树木和透彻的海水。这个纯净的热带天堂还非常适宜冲浪，这因此成为了完美的度假目的地，适合任何想要在平静和放松之余来一点冒险的人们。
+
+班卡卢岛是重要的海龟栖息地，绿海龟、棱皮龟和其他种类的海龟会来这里筑巢产卵。
+
+[下载480](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_800x480.jpg&rf=LaDigue_800x480.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
