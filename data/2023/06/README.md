@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg&rf=LaDigue_UHD.jpg "巴尼亚群岛，苏门答腊，印度尼西亚")
+
+
+---
+### 2023 6月 30：孩子，你把鱼扔哪儿了？
+#### 棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州（© Carlos Carreno/Getty Images）
+![孩子，你把鱼扔哪儿了？](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_800x480.jpg&rf=LaDigue_800x480.jpg "孩子，你把鱼扔哪儿了？")
+在阿拉斯加州克拉克湖国家公园和自然保护区的原始林区中，棕熊统治着一切，它们是原始荒野的标志性象征。棕熊的体型庞大，一只成年雄性棕熊的体重可以超过1000磅，站立高度可达10英尺。棕熊的毛色从金黄色到深棕色不等，皮毛厚实蓬松，为它们抵御阿拉斯加严寒的冬天提供了保障。
+
+野生棕熊主要在黄昏和夜间活动。
+
+[下载480](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_800x480.jpg&rf=LaDigue_800x480.jpg "棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州")
+[下载720](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_1024x768.jpg&rf=LaDigue_1024x768.jpg "棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州")
+[下载1080](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州")
+[下载UHD](https://cn.bing.com/th?id=OHR.ClamBears_ZH-CN5686721500_UHD.jpg&rf=LaDigue_UHD.jpg "棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州")
