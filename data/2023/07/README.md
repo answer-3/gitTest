@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_1024x768.jpg&rf=LaDigue_1024x768.jpg "费吕沃湖水道桥，荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "费吕沃湖水道桥，荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.HalfwayBoats_ZH-CN3563044251_UHD.jpg&rf=LaDigue_UHD.jpg "费吕沃湖水道桥，荷兰")
+
+
+---
+### 2023 7月 3：天气热得让人想嗷嗷叫！
+#### 班夫的土狼，加拿大（© Harry Collins/Getty Images）
+![天气热得让人想嗷嗷叫！](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_800x480.jpg&rf=LaDigue_800x480.jpg "天气热得让人想嗷嗷叫！")
+热得够呛了吧？夏天，地球向太阳倾斜的角度变大，我们因此进入了北半球一年中最炎热的时节。在英语里，三伏天被称为“dog days”，这个词源自天狼星，也就是大犬座α星。夏季的黎明时分，我们可以在东方的地平线上看到天狼星。作为大犬星座的一部分，天狼星是夜空中最亮的恒星。不过，今天图片中的动物可并非犬类，而是一只郊狼。
+
+班夫国家公园是加拿大最古老的国家公园，它建成于1885年，当时名叫落基山脉公园。
+
+[下载480](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_800x480.jpg&rf=LaDigue_800x480.jpg "班夫的土狼，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_1024x768.jpg&rf=LaDigue_1024x768.jpg "班夫的土狼，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班夫的土狼，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoyoteBanff_ZH-CN4183627255_UHD.jpg&rf=LaDigue_UHD.jpg "班夫的土狼，加拿大")
