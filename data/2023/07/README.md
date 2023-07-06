@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_1024x768.jpg&rf=LaDigue_1024x768.jpg "南跳岩企鹅，福克兰群岛")
 [下载1080](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南跳岩企鹅，福克兰群岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg&rf=LaDigue_UHD.jpg "南跳岩企鹅，福克兰群岛")
+
+
+---
+### 2023 7月 7：巧克力爱好者最爱的水果
+#### 安班加的可可豆荚，马达加斯加（© pierivb/Getty Images）
+![巧克力爱好者最爱的水果](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_800x480.jpg&rf=LaDigue_800x480.jpg "巧克力爱好者最爱的水果")
+很少有人能拒绝巧克力的浓郁美味。每年的7月7日是世界巧克力日，就让我们在今天毫无愧疚地享受巧克力的美味吧。
+
+可可树主要分为三个品种：佛拉斯特罗、克里奥罗和崔尼塔利奥。佛拉斯特罗是最常用的品种，占了世界上可可豆总产量的80%-90%。
+
+[下载480](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_800x480.jpg&rf=LaDigue_800x480.jpg "安班加的可可豆荚，马达加斯加")
+[下载720](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_1024x768.jpg&rf=LaDigue_1024x768.jpg "安班加的可可豆荚，马达加斯加")
+[下载1080](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安班加的可可豆荚，马达加斯加")
+[下载UHD](https://cn.bing.com/th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg&rf=LaDigue_UHD.jpg "安班加的可可豆荚，马达加斯加")
