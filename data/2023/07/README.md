@@ -110,3 +110,17 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_1024x768.jpg&rf=LaDigue_1024x768.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
 [下载1080](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
 [下载UHD](https://cn.bing.com/th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg&rf=LaDigue_UHD.jpg "米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州")
+
+
+---
+### 2023 7月 9：河湾
+#### 克罗夫附近的摩泽尔河，德国（© Jorg Greuel/Getty Images）
+![河湾](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_800x480.jpg&rf=LaDigue_800x480.jpg "河湾")
+摩泽尔河是奔腾的莱茵河的一条支流，贯穿欧洲迷人的土地，流经法国、卢森堡和德国。河流雕刻出令人惊叹的山谷，两岸点缀着城镇和历史建筑。郁郁葱葱、沐浴阳光的葡萄藤爬满河流两岸的山坡，这里出产一些世界上最优质的葡萄酒，包括雷司令、白皮诺、灰皮诺。缓缓流动、波光粼粼的河水造就了宁静的氛围，吸引游客来此游船休闲或在岸边漫步。摩泽尔河是自然爱好者、葡萄酒爱好者和历史爱好者共同的圣地。
+
+酿酒是克罗夫的主要产业之一。这里种植的葡萄大部分是雷司令。
+
+[下载480](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_800x480.jpg&rf=LaDigue_800x480.jpg "克罗夫附近的摩泽尔河，德国")
+[下载720](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1024x768.jpg&rf=LaDigue_1024x768.jpg "克罗夫附近的摩泽尔河，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克罗夫附近的摩泽尔河，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_UHD.jpg&rf=LaDigue_UHD.jpg "克罗夫附近的摩泽尔河，德国")
