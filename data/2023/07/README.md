@@ -124,3 +124,17 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1024x768.jpg&rf=LaDigue_1024x768.jpg "克罗夫附近的摩泽尔河，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克罗夫附近的摩泽尔河，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MoselleRiver_ZH-CN1283415242_UHD.jpg&rf=LaDigue_UHD.jpg "克罗夫附近的摩泽尔河，德国")
+
+
+---
+### 2023 7月 10：飘着香气的紫色海洋
+#### 萨默塞特郡的薰衣草田，英国（© Doug Chinnery/Getty Images）
+![飘着香气的紫色海洋](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_800x480.jpg&rf=LaDigue_800x480.jpg "飘着香气的紫色海洋")
+英国西南部风景如画的萨默塞特郡以其迷人的薰衣草田而闻名。这些薰衣草田动人的色彩和迷人的花香令人神魂颠倒。2000年前，罗马人将薰衣草带到英国。薰衣草除了好看，对于罗马人来说还有很多实用用途，包括烹饪、驱虫和抗菌。自古以来，很多香水都会采用薰衣草，相传伊丽莎白一世女王就曾用过薰衣草香水。在今天的英国，薰衣草田依旧常见，让人见之忘俗。
+
+英国薰衣草中可以提炼出一种香甜的精油，可用于制作药膏、香水和化妆品。
+
+[下载480](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_800x480.jpg&rf=LaDigue_800x480.jpg "萨默塞特郡的薰衣草田，英国")
+[下载720](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨默塞特郡的薰衣草田，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨默塞特郡的薰衣草田，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&rf=LaDigue_UHD.jpg "萨默塞特郡的薰衣草田，英国")
