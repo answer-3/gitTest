@@ -138,3 +138,17 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨默塞特郡的薰衣草田，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨默塞特郡的薰衣草田，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg&rf=LaDigue_UHD.jpg "萨默塞特郡的薰衣草田，英国")
+
+
+---
+### 2023 7月 11：万家灯火
+#### Hong Kong SAR（© leungchopan/Getty Images）
+![万家灯火](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_800x480.jpg&rf=LaDigue_800x480.jpg "万家灯火")
+三十六年前的今天，世界迎来了第 50 亿人口。 现在地球人口已经达到 80 亿，而且还在不断增加，这个问题继续存在：我们会用完空间、食物和其他必要的资源吗？ 在今天，我们可以反思地球能够维持多少生命，以及我们个人和集体的生活如何影响我们的地方、国家和全球环境。
+
+世界人口增长率在 1965 年至 1970 年间达到顶峰，当时人口平均每年增长 2.1%。
+
+[下载480](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_800x480.jpg&rf=LaDigue_800x480.jpg "Hong Kong SAR")
+[下载720](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1024x768.jpg&rf=LaDigue_1024x768.jpg "Hong Kong SAR")
+[下载1080](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Hong Kong SAR")
+[下载UHD](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg&rf=LaDigue_UHD.jpg "Hong Kong SAR")
