@@ -152,3 +152,17 @@ Fay Jones 在阿肯色州西北部制作了两件著名的建筑艺术品。 第
 [下载720](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1024x768.jpg&rf=LaDigue_1024x768.jpg "Hong Kong SAR")
 [下载1080](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Hong Kong SAR")
 [下载UHD](https://cn.bing.com/th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg&rf=LaDigue_UHD.jpg "Hong Kong SAR")
+
+
+---
+### 2023 7月 12：世界上最独特的海滩？
+#### “我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚（© Lubos Paukeje/Alamy）
+![世界上最独特的海滩？](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_800x480.jpg&rf=LaDigue_800x480.jpg "世界上最独特的海滩？")
+Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛上。 这个沙洲被印度洋碧绿的海水所环绕，是游客沐浴阳光和享受金色沙滩的热门目的地。 在海浪之下，海洋生物创造了一个充满活力的海底世界，非常适合浮潜。 坦桑尼亚的岛屿是奔巴角鸮和非洲鱼雕等一系列野生动物的家园。 在 Nakupenda 以北，您可以在 Changuu 岛上遇到一个乌龟保护区，而他们的海龟表亲则在周围水域游泳。
+
+桑给巴尔的旅游业包括旅游业及其对桑给巴尔的翁古迦岛（国际上称为桑给巴尔）和奔巴岛的影响，桑给巴尔是联合共和国的一个半自治地区。
+
+[下载480](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_800x480.jpg&rf=LaDigue_800x480.jpg "“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_1024x768.jpg&rf=LaDigue_1024x768.jpg "“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_UHD.jpg&rf=LaDigue_UHD.jpg "“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚")
