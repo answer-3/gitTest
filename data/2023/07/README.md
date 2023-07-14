@@ -194,3 +194,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌翅真鲨，马尔代夫")
 [下载1080](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌翅真鲨，马尔代夫")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg&rf=LaDigue_UHD.jpg "乌翅真鲨，马尔代夫")
+
+
+---
+### 2023 7月 15：明信片般完美的风景
+#### 卡斯泰尔梅扎诺，意大利（© Rudy Balasko/Shutterstock）
+![明信片般完美的风景](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_800x480.jpg&rf=LaDigue_800x480.jpg "明信片般完美的风景")
+坐落在多洛米蒂山脉的崎岖峭壁上，意大利古老的村庄卡斯泰尔梅扎诺散发着迷人的魅力。这座村庄已被列为世界遗产，它历经过封建领主的统治和大大小小的战争，狭窄的小巷和古老的建筑里都有历史故事。据说，公元11世纪左右诺曼人定居于此，并建造了一座城堡，该村庄由此得名。此外，卡斯泰尔梅扎诺还有各种冒险活动，你可以来一次“天使飞行”，在山脉之间感受高空滑索。不过，感受这个小村庄的惬意的最佳方式，可能只需一杯咖啡：喝着咖啡看着太阳从雄伟的山峰后冉冉升起，与街灯一同照亮傍山而建的一排排房屋。
+
+“七石之路”是一条文学步道，灵感来自米莫·萨马蒂诺（Mimmo Sammartino）的《维托与女巫跳舞》(Vito ballava con le strehe)一书，取材于口头流传的古老故事。
+
+[下载480](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_800x480.jpg&rf=LaDigue_800x480.jpg "卡斯泰尔梅扎诺，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡斯泰尔梅扎诺，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡斯泰尔梅扎诺，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg&rf=LaDigue_UHD.jpg "卡斯泰尔梅扎诺，意大利")
