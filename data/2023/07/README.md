@@ -222,3 +222,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1024x768.jpg&rf=LaDigue_1024x768.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg&rf=LaDigue_UHD.jpg "熊洞溪，卡茨基尔山脉，纽约，美国")
+
+
+---
+### 2023 7月 17：古老的中世纪奇迹
+#### 乌特湖的克拉夫特城堡，卡文郡，爱尔兰（© 4H4 PH/Shutterstock）
+![古老的中世纪奇迹](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_800x480.jpg&rf=LaDigue_800x480.jpg "古老的中世纪奇迹")
+克拉夫特城堡位于爱尔兰卡文郡，坐落在一个湖中小岛上。据说，这座城堡起初是由盎格鲁-诺曼人在13世纪初建造的。城堡的圆柱形结构美观且实用，既能控制水道，又能为周围区域提供防御。在接下来的几个世纪里，这座城堡和周围的土地几经易主，直到1653年被炸毁遗弃，只剩断壁残垣。克拉夫特城堡是爱尔兰中世纪遗产的象征，对于历史爱好者和城堡爱好者来说是必看之地。
+
+卡文郡是许多河流的源头。爱尔兰最长的河流香农河，就发源于卡文郡西北部。
+
+[下载480](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_800x480.jpg&rf=LaDigue_800x480.jpg "乌特湖的克拉夫特城堡，卡文郡，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌特湖的克拉夫特城堡，卡文郡，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌特湖的克拉夫特城堡，卡文郡，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_UHD.jpg&rf=LaDigue_UHD.jpg "乌特湖的克拉夫特城堡，卡文郡，爱尔兰")
