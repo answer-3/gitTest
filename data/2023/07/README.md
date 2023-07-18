@@ -250,3 +250,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1024x768.jpg&rf=LaDigue_1024x768.jpg "双角犀鸟，考艾国家公园，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "双角犀鸟，考艾国家公园，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_UHD.jpg&rf=LaDigue_UHD.jpg "双角犀鸟，考艾国家公园，泰国")
+
+
+---
+### 2023 7月 19：这片湖泊可不是海市蜃楼
+#### 敦煌月牙泉，甘肃省，中国（© R7 Photo/Shutterstock）
+![这片湖泊可不是海市蜃楼](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_800x480.jpg&rf=LaDigue_800x480.jpg "这片湖泊可不是海市蜃楼")
+月牙泉位于中国甘肃省敦煌市附近，是隐藏在广袤戈壁滩上的一个摄人心魄的自然奇观。数百年来，这片因独特的月牙形状而闻名的绿洲，一直是一个重要的水源地。人们认为，月牙泉是风蚀形成的，其水源是地下泉水。由于附近有山脉遮挡，月牙泉才不会被该地的风沙所淹没。当地采取了许多保护措施，确保月牙泉不会干涸。游客不仅可以在湖上划船、骑骆驼在沙漠徜徉，还可以在附近的莫高窟欣赏古代佛教壁画及雕塑。
+
+自汉朝起，月牙泉就是“敦煌八景”之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_800x480.jpg&rf=LaDigue_800x480.jpg "敦煌月牙泉，甘肃省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1024x768.jpg&rf=LaDigue_1024x768.jpg "敦煌月牙泉，甘肃省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "敦煌月牙泉，甘肃省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&rf=LaDigue_UHD.jpg "敦煌月牙泉，甘肃省，中国")
