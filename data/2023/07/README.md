@@ -264,3 +264,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1024x768.jpg&rf=LaDigue_1024x768.jpg "敦煌月牙泉，甘肃省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "敦煌月牙泉，甘肃省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg&rf=LaDigue_UHD.jpg "敦煌月牙泉，甘肃省，中国")
+
+
+---
+### 2023 7月 20：为我们的近邻月球而庆祝
+#### 从美国宇航局猎户座飞船上看到的月球（© NASA）
+![为我们的近邻月球而庆祝](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_800x480.jpg&rf=LaDigue_800x480.jpg "为我们的近邻月球而庆祝")
+为了纪念1969年7月20日人类首次成功登陆月球，7月20日被定为国际月球日。这个节日不仅让人们回顾我们过去在月球探索上取得的卓越成就，也让人们关注我们如今在月球探索方面的获得的进步。图片上的美国宇航局研制的猎户座飞船正是这种进步的一个实证。这座飞船是为深空探索而设计的，它在2022年执行了一次无人绕月飞行，将在2024年进行一次载人绕月飞行，并计划在2025年载宇航员重返月球。这个节日的意义还在于让大家意识到月球的重要性，并了解人类未来在太空探索和太空殖民方面的潜力。
+
+人类在地球上只能看到59%的月球表面。
+
+[下载480](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_800x480.jpg&rf=LaDigue_800x480.jpg "从美国宇航局猎户座飞船上看到的月球")
+[下载720](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1024x768.jpg&rf=LaDigue_1024x768.jpg "从美国宇航局猎户座飞船上看到的月球")
+[下载1080](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从美国宇航局猎户座飞船上看到的月球")
+[下载UHD](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_UHD.jpg&rf=LaDigue_UHD.jpg "从美国宇航局猎户座飞船上看到的月球")
