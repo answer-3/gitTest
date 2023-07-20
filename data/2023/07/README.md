@@ -278,3 +278,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1024x768.jpg&rf=LaDigue_1024x768.jpg "从美国宇航局猎户座飞船上看到的月球")
 [下载1080](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从美国宇航局猎户座飞船上看到的月球")
 [下载UHD](https://cn.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_UHD.jpg&rf=LaDigue_UHD.jpg "从美国宇航局猎户座飞船上看到的月球")
+
+
+---
+### 2023 7月 21：将散落的岛屿连接在一起
+#### 斯托尔桑德特大桥，挪威（© Morten Falch Sortland/Getty Images）
+![将散落的岛屿连接在一起](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_800x480.jpg&rf=LaDigue_800x480.jpg "将散落的岛屿连接在一起")
+挪威的大西洋海滨公路连接了一系列大大小小的岛屿，一路上风景如画，设置有8座桥梁，其中最长的桥梁就是图上的这座斯托尔桑德特大桥。这座被自然美景环绕的桥梁，也是一个建筑奇迹。当地天气变幻莫测，这座桥在建设过程中就历经了12次飓风，最终奇迹般地建成了。斯托尔桑德特大桥有一个突兀的陡坡和急转弯，会给人造成一种大桥突然消失在海洋中的错觉，令司机们瞠目结舌，心如擂鼓。挪威斯托尔桑德特大桥与周围的天然美景融合得天衣无缝，很好地展示了挪威建筑工程的辉煌成就。
+
+这座桥以急转弯和过山车式的驾驶体验而闻名。无论从哪个角度看，这座桥的形状似乎都不太一样，也许这就是它的特别之处。
+
+[下载480](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_800x480.jpg&rf=LaDigue_800x480.jpg "斯托尔桑德特大桥，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯托尔桑德特大桥，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯托尔桑德特大桥，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg&rf=LaDigue_UHD.jpg "斯托尔桑德特大桥，挪威")
