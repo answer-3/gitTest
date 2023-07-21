@@ -292,3 +292,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯托尔桑德特大桥，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯托尔桑德特大桥，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg&rf=LaDigue_UHD.jpg "斯托尔桑德特大桥，挪威")
+
+
+---
+### 2023 7月 22：想出去玩吗？
+#### 在一棵秃柏树上吊床露营，佛罗里达州，美国（© Mac Stone/Tandem Stills + Motion）
+![想出去玩吗？](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_800x480.jpg&rf=LaDigue_800x480.jpg "想出去玩吗？")
+传统的吊床是由中美洲人发明的，最初是用来在睡觉时保护自己免受危险的昆虫和动物的袭击。如今，吊床是一个用来增添乐趣的工具。由布料、网或绳子等各种各样的材料制作而成的吊床，是旅行者最好的伙伴。在佛罗里达州，秃柏树就是一个挂吊床的绝佳去处。
+
+在阿波罗12号及其后来的任务中，吊床让月球上的宇航员获得了舒适的睡眠环境。
+
+[下载480](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_800x480.jpg&rf=LaDigue_800x480.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1024x768.jpg&rf=LaDigue_1024x768.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg&rf=LaDigue_UHD.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
