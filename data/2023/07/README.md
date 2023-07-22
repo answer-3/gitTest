@@ -306,3 +306,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1024x768.jpg&rf=LaDigue_1024x768.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg&rf=LaDigue_UHD.jpg "在一棵秃柏树上吊床露营，佛罗里达州，美国")
+
+
+---
+### 2023 7月 23：你好，你在找“茶”吗?
+#### 爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡（© Jeremy Woodhouse/Getty Images）
+![你好，你在找“茶”吗?](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_800x480.jpg&rf=LaDigue_800x480.jpg "你好，你在找“茶”吗?")
+从中国的功夫茶到英国的红茶，世界各地的茶文化丰富而迷人。近年来，茶叶旅游越来越受欢迎，人们参观茶庄和茶园，体验茶文化，并了解茶叶的历史。这张照片里的爱丁堡茶园就是这样的一个地方。凭借其殖民时代的建筑和薄雾笼罩的茶园，这片坐落于斯里兰卡的努沃勒埃利耶的高地赢得了“小英格兰”的称号。这个地方也因出产部分世界上最精良的橙白毫（一种红茶）而闻名天下。
+
+斯里兰卡的许多建筑都保留了殖民时期的特征，如女王小屋、将军府、格兰德酒店、希尔俱乐部酒店、圣安德鲁斯酒店和邮局镇。
+
+[下载480](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_800x480.jpg&rf=LaDigue_800x480.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
+[下载720](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_1024x768.jpg&rf=LaDigue_1024x768.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
+[下载1080](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
+[下载UHD](https://cn.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_UHD.jpg&rf=LaDigue_UHD.jpg "爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡")
