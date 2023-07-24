@@ -334,3 +334,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_1024x768.jpg&rf=LaDigue_1024x768.jpg "斑马，塔兰吉雷国家公园，坦桑尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斑马，塔兰吉雷国家公园，坦桑尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg&rf=LaDigue_UHD.jpg "斑马，塔兰吉雷国家公园，坦桑尼亚")
+
+
+---
+### 2023 7月 25：粉红色，很好看
+#### 托雷维耶哈潟湖，阿利坎特，西班牙（© Juan Maria Coy Vergara/Getty Images）
+![粉红色，很好看](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_800x480.jpg&rf=LaDigue_800x480.jpg "粉红色，很好看")
+大自然中的水是什么颜色？我们的第一反应通常是蓝色或绿色。但是你见过粉色的水吗？这片粉红湖泊就是西班牙阿利坎特的托雷维耶哈潟湖。这个湖泊的含盐度非常高，湖面上还有自然形成的盐结晶团，使它成为富含胡萝卜素的微生物藻类繁殖的完美家园，因此才形成了这片粉红的水域。这里的甲壳类动物吃掉这些藻类后，也会变成粉色，进而又被火烈鸟吃掉，最终让火烈鸟也变成了粉色。
+
+水中的高盐度使这里成为了一个放松的好地方，可以享受轻松在水上漂浮的乐趣。
+
+[下载480](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_800x480.jpg&rf=LaDigue_800x480.jpg "托雷维耶哈潟湖，阿利坎特，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_1024x768.jpg&rf=LaDigue_1024x768.jpg "托雷维耶哈潟湖，阿利坎特，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "托雷维耶哈潟湖，阿利坎特，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&rf=LaDigue_UHD.jpg "托雷维耶哈潟湖，阿利坎特，西班牙")
