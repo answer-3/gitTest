@@ -348,3 +348,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_1024x768.jpg&rf=LaDigue_1024x768.jpg "托雷维耶哈潟湖，阿利坎特，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "托雷维耶哈潟湖，阿利坎特，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg&rf=LaDigue_UHD.jpg "托雷维耶哈潟湖，阿利坎特，西班牙")
+
+
+---
+### 2023 7月 26：和这些耐盐植物问好！
+#### 朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国（© Amazing Aerial Premium/Shutterstock）
+![和这些耐盐植物问好！](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_800x480.jpg&rf=LaDigue_800x480.jpg "和这些耐盐植物问好！")
+由于炎热的沙漠气候和降雨的缺乏，自然植被在阿联酋非常稀少。但严酷的环境并没有阻止坚韧的红树林在这个国家的海岸线上生长。红树林属于耐盐植物，可以过滤掉它们生长的海水中的最多90%的盐分。尽管它们适应能力惊人，但红树林在全球仍然受到生存威胁。过去的40年，红树林的覆盖量减半，它们消失的速度是森林整体消失速度的3到5倍。联合国通过设立国际红树林保护日、科研基金、世界遗产地等方式以逆转这个趋势。因为红树林非常重要，它们可以防止海水侵蚀陆地，同时还为鱼类、甲壳类动物以及一系列陆地动物提供栖息地。
+
+红树林植物科最早出现于白垩纪晚期至古新世期间，并且由于板块漂移的原因在全球都有广泛分布。已知最古老的红树林棕榈树化石可以追溯到七千五百万年前。
+
+[下载480](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_800x480.jpg&rf=LaDigue_800x480.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
+[下载720](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1024x768.jpg&rf=LaDigue_1024x768.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
+[下载1080](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg&rf=LaDigue_UHD.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
