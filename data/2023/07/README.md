@@ -362,3 +362,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1024x768.jpg&rf=LaDigue_1024x768.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
 [下载1080](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg&rf=LaDigue_UHD.jpg "朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国")
+
+
+---
+### 2023 7月 27：凯旋的姿态
+#### 卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国（© Jon Hicks/Getty Images）
+![凯旋的姿态](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_800x480.jpg&rf=LaDigue_800x480.jpg "凯旋的姿态")
+巴黎有一条历史中轴线，以卢浮宫博物馆为起点，一直延伸到新凯旋门，沿线是大片公园、花园和历史建筑。今天这张照片展示的卡鲁赛尔凯旋门就在这条轴线上。不过，千万不要把这个拱门和历史轴线中心的雄狮凯旋门混淆哦。你可以从这个拱门出发，经过杜伊勒里花园，沿着香榭丽舍大街到凯旋门。另外，如果照片左侧的雕像吸引了你的注意力的话，和马背上的国王路易十四打声招呼吧。
+
+这个拱门始建于1806-1808年间，由皇帝拿破仑一世下令建造，依照了罗马的康斯坦丁拱门（建于公元312年）的形制，用作皇家居所杜伊勒里宫的大门。
+
+[下载480](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_800x480.jpg&rf=LaDigue_800x480.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg&rf=LaDigue_UHD.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
