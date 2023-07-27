@@ -376,3 +376,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg&rf=LaDigue_UHD.jpg "卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国")
+
+
+---
+### 2023 7月 28：美丽的蓝色岛屿
+#### 圣布拉斯群岛，巴拿马（© bgremler/Shutterstock）
+![美丽的蓝色岛屿](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的蓝色岛屿")
+圣布拉斯群岛坐落在巴拿马北部海岸，由360多个岛屿组成，面朝加勒比海。群岛以清澈纯净的海水闻名，是浮潜、冲浪、潜水和岛屿探险的理想乐园。美丽的珊瑚礁环绕着岛屿，为丰富多样的海洋生物提供了栖息地。当地原住民库纳人是岛屿上的主要居民，他们古老悠久的生活方式非常独特，至今穿着传统但充满活力的服饰，住在被称为bohíos的茅草屋，还掌握着技法复杂、被称为mola的服饰图案拼布刺绣艺术。
+
+在欧洲人到来之前，当地原住民库纳人很少穿衣服，他们喜欢用五颜六色的图案装饰自己的身体。
+
+[下载480](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_800x480.jpg&rf=LaDigue_800x480.jpg "圣布拉斯群岛，巴拿马")
+[下载720](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣布拉斯群岛，巴拿马")
+[下载1080](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣布拉斯群岛，巴拿马")
+[下载UHD](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg&rf=LaDigue_UHD.jpg "圣布拉斯群岛，巴拿马")
