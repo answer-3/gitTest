@@ -390,3 +390,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣布拉斯群岛，巴拿马")
 [下载1080](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣布拉斯群岛，巴拿马")
 [下载UHD](https://cn.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg&rf=LaDigue_UHD.jpg "圣布拉斯群岛，巴拿马")
+
+
+---
+### 2023 7月 29：国际老虎日
+#### 孟加拉虎，兰坦波尔国家公园，印度（© Andy Rouse/Minden Pictures）
+![国际老虎日](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_800x480.jpg&rf=LaDigue_800x480.jpg "国际老虎日")
+每年的7月29日为国际老虎日，这是一个全球性的活动，旨在倡导对老虎及其栖息地的保护。栖息地丧失、偷猎和非法野生动物贸易，使野生老虎的生存状况堪忧，有的老虎种类甚至濒临灭绝。今天这张照片里的是孟加拉虎，是印度的标志性动物，也是老虎的濒危亚种之一。作为顶级捕食者，孟加拉虎主要捕食白斑鹿、野猪和印度野牛等，从而控制了这些动物的数量，因此孟加拉虎在维持生态平衡方面有着重要作用。据统计，野生老虎的数量目前约在2500~3000只之间。所以，提高人们对老虎的保护意识至关重要。行动起来，一起守护“丛林之王”！
+
+孟加拉虎是孟加拉和印度的国兽。
+
+[下载480](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_800x480.jpg&rf=LaDigue_800x480.jpg "孟加拉虎，兰坦波尔国家公园，印度")
+[下载720](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_1024x768.jpg&rf=LaDigue_1024x768.jpg "孟加拉虎，兰坦波尔国家公园，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "孟加拉虎，兰坦波尔国家公园，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg&rf=LaDigue_UHD.jpg "孟加拉虎，兰坦波尔国家公园，印度")
