@@ -404,3 +404,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_1024x768.jpg&rf=LaDigue_1024x768.jpg "孟加拉虎，兰坦波尔国家公园，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "孟加拉虎，兰坦波尔国家公园，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg&rf=LaDigue_UHD.jpg "孟加拉虎，兰坦波尔国家公园，印度")
+
+
+---
+### 2023 7月 30：宛若仙境的帕卢斯田园
+#### 帕卢斯的农田，华盛顿州，美国（© EJ-J/Getty Images）
+![宛若仙境的帕卢斯田园](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_800x480.jpg&rf=LaDigue_800x480.jpg "宛若仙境的帕卢斯田园")
+美国的帕卢斯地区以风景如画的景观和独特的地质特征而闻名。延绵起伏的丘陵田原一望无际，错落有致、金绿相间的麦浪美不胜收，相比意大利的托斯卡纳和法国乡村也毫不逊色。帕卢斯是一个农业区，当地土壤肥沃和气候适宜，盛产小麦、大麦、豌豆和小扁豆等。
+
+帕卢斯曾是一望无际的广阔草原，生长着蓝穗小麦草、爱达荷羊茅等多年生牧草。如今几乎所有的帕卢斯草原都已被开垦为农田，成片的旱雀麦覆盖着大地。
+
+[下载480](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_800x480.jpg&rf=LaDigue_800x480.jpg "帕卢斯的农田，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕卢斯的农田，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯的农田，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯的农田，华盛顿州，美国")
