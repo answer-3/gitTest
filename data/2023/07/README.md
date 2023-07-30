@@ -418,3 +418,17 @@ Nakupenda 海滩自然保护区位于桑给巴尔西海岸外的一个小沙岛�
 [下载720](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕卢斯的农田，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯的农田，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯的农田，华盛顿州，美国")
+
+
+---
+### 2023 7月 31：有人在家吗?
+#### 霍金山州立公园的岩石屋，俄亥俄州，美国（© Kenneth Keifer/Getty Images）
+![有人在家吗?](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_800x480.jpg&rf=LaDigue_800x480.jpg "有人在家吗?")
+美丽宽敞的岩石屋是霍金山州立公园唯一的真正洞穴。该洞穴之所以被命名为岩石屋，是因为它曾在不同时期被不同的居住者用作避难所。岩石屋坐落在悬崖半山腰处，便于防御。早在欧洲移民到来之前，这里常被美洲原住民用于避难和举行仪式。
+
+3.3亿多年前，这个公园还被大西洋的海水覆盖着。
+
+[下载480](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_800x480.jpg&rf=LaDigue_800x480.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1024x768.jpg&rf=LaDigue_1024x768.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg&rf=LaDigue_UHD.jpg "霍金山州立公园的岩石屋，俄亥俄州，美国")
