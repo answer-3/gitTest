@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_1024x768.jpg&rf=LaDigue_1024x768.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
 [下载1080](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
 [下载UHD](https://cn.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_UHD.jpg&rf=LaDigue_UHD.jpg "从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州")
+
+
+---
+### 2023 8月 2：大自然色调的调色板
+#### 圆顶礁国家公园的砂岩山丘，犹他州，美国（© Amazing Aerial Premium/Shutterstock）
+![大自然色调的调色板](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_800x480.jpg&rf=LaDigue_800x480.jpg "大自然色调的调色板")
+在圆顶礁国家公园，到处都是犹他州红岩地区崎岖壮丽的景色。这座隐藏在美国西南部的宝藏公园占地超过20万英亩，就像是一幅由高耸的悬崖、曲折的峡谷、色彩斑斓的砂岩山丘和广阔的沙漠景观组成的画卷。公园里最著名的，就是诞生于5000万到7000万年前的、绵延近100英里的褶皱地形。圆顶礁国家公园也是各种动植物的家园，其中还包括了行踪不定的沙漠大角羊和230多种鸟类。
+
+圆顶礁以其色彩斑斓又丰富多样的地形而闻名于世，孤峰、峡谷、巨石、山脊……令人目不暇接。
+
+[下载480](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_800x480.jpg&rf=LaDigue_800x480.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_1024x768.jpg&rf=LaDigue_1024x768.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园的砂岩山丘，犹他州，美国")
