@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_1024x768.jpg&rf=LaDigue_1024x768.jpg "泽伦西自然保护区，斯洛文尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泽伦西自然保护区，斯洛文尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_UHD.jpg&rf=LaDigue_UHD.jpg "泽伦西自然保护区，斯洛文尼亚")
+
+
+---
+### 2023 8月 4：一扇通向过去的窗
+#### 廷特恩修道院，威尔士（© matthibcn/Getty Images）
+![一扇通向过去的窗](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_800x480.jpg&rf=LaDigue_800x480.jpg "一扇通向过去的窗")
+位于威尔士蒙茅斯郡的廷特恩修道院有着悠久的历史。这座哥特式建筑杰作始建于1131年，最初是木结构的，后来人们又在1269年用石头重新修建了这座修道院。16世纪，亨利八世与天主教会决裂后，随着修道院的解散，这座建筑也被遗弃。在中世纪的历史上，这座修道院可谓是平平无奇。但在其后的几百年间，它复杂的建筑结构和周围浪漫的田园风光声名远播，如今，这座修道院已成为了英国的标志性建筑物。多年以来，从画家透纳到诗人威廉·华兹华斯，无数艺术家都被这座修道院吸引。
+
+廷特恩修道院是英国历史第二悠久的熙笃会修道院。
+
+[下载480](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_800x480.jpg&rf=LaDigue_800x480.jpg "廷特恩修道院，威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1024x768.jpg&rf=LaDigue_1024x768.jpg "廷特恩修道院，威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "廷特恩修道院，威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&rf=LaDigue_UHD.jpg "廷特恩修道院，威尔士")
