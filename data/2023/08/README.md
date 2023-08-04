@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1024x768.jpg&rf=LaDigue_1024x768.jpg "廷特恩修道院，威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "廷特恩修道院，威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg&rf=LaDigue_UHD.jpg "廷特恩修道院，威尔士")
+
+
+---
+### 2023 8月 5：海鹦繁殖季
+#### 大西洋海鹦，冰岛（© Peter Hering/Minden Pictures）
+![海鹦繁殖季](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_800x480.jpg&rf=LaDigue_800x480.jpg "海鹦繁殖季")
+今天的照片中的海鹦拍摄于冰岛海岸。如果你在每年的6月到9月去冰岛旅游，你可能会看到小海鹦被扔下悬崖。不要被吓到，这是世界上最大的海鹦繁殖地——冰岛韦斯特曼纳群岛每年的传统：居民们用手电筒在悬崖、港口和海滨地区寻找被城镇灯光迷惑而误入歧途的海鹦宝宝。接着，他们会戴着手套把海鹦宝宝们捡起来，在日落之前把它们带到悬崖上，然后再把它们从悬崖上扔下去，这样海鹦宝宝们就可以奔向大海，回到它们的自然栖息地。
+
+大西洋海鹦在寒冷的北部海域度过秋冬，在晚春繁殖季节开始时重返沿海地区。它在悬崖顶上筑巢，挖好一个洞，在洞里产下一颗白色的蛋。
+
+[下载480](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_800x480.jpg&rf=LaDigue_800x480.jpg "大西洋海鹦，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1024x768.jpg&rf=LaDigue_1024x768.jpg "大西洋海鹦，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大西洋海鹦，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg&rf=LaDigue_UHD.jpg "大西洋海鹦，冰岛")
