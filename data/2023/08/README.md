@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1024x768.jpg&rf=LaDigue_1024x768.jpg "大西洋海鹦，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大西洋海鹦，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg&rf=LaDigue_UHD.jpg "大西洋海鹦，冰岛")
+
+
+---
+### 2023 8月 6：一面反映大自然之美的镜子
+#### 镜池，长野，日本（© Shoji Fujita/Getty Images）
+![一面反映大自然之美的镜子](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_800x480.jpg&rf=LaDigue_800x480.jpg "一面反映大自然之美的镜子")
+迷人的镜池坐落在日本长野。水池周围清幽的环境完美倒映在这个人工水库的镜面般的湖水中。被郁郁葱葱的绿色植物和户隐山脉所包围的镜池，四季的风景都各有千秋。在樱花盛开的季节，瓣瓣樱花会随着微风在湖面起伏。秋日，周围橙黄的树木倒映在湖面上，仿佛湖中也有一片人间仙境。
+
+长野的善光寺始建于7世纪，是一个重要的朝圣地。善光寺供奉着一尊日本最古老的佛像，被称为密佛，从不对外展示，仅每六年向公众展示一次其复制品。
+
+[下载480](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_800x480.jpg&rf=LaDigue_800x480.jpg "镜池，长野，日本")
+[下载720](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1024x768.jpg&rf=LaDigue_1024x768.jpg "镜池，长野，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "镜池，长野，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg&rf=LaDigue_UHD.jpg "镜池，长野，日本")
