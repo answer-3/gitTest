@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1024x768.jpg&rf=LaDigue_1024x768.jpg "镜池，长野，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "镜池，长野，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg&rf=LaDigue_UHD.jpg "镜池，长野，日本")
+
+
+---
+### 2023 8月 7：地上一点，天上万千
+#### 博迪岛灯塔，马头城，北卡罗来纳州，美国（© Michael Ver Sprill/Getty Images）
+![地上一点，天上万千](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_800x480.jpg&rf=LaDigue_800x480.jpg "地上一点，天上万千")
+作为信标、警告、亦是希望和回家的象征，灯塔已经存在了几千年。几个世纪以来，科技一直在进步，如今的灯塔技术远非几百年前的灯塔可比，人们在20英里之外就能看见现代灯塔的灯光。今天照片里展示的是始建于1872年的博迪岛灯塔，它俯瞰一片被称为大西洋坟场的海域。自建成之日起它就在和头顶群星争辉，指引水手回到安全的港湾。
+
+这个灯塔曾出现在1963年-1964年的美国鸭票（候鸟狩猎和保护印花票）的背景上。
+
+[下载480](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_800x480.jpg&rf=LaDigue_800x480.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1024x768.jpg&rf=LaDigue_1024x768.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg&rf=LaDigue_UHD.jpg "博迪岛灯塔，马头城，北卡罗来纳州，美国")
