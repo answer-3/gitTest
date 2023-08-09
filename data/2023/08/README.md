@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_1024x768.jpg&rf=LaDigue_1024x768.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_UHD.jpg&rf=LaDigue_UHD.jpg "马苏阿的甜面包海蚀柱，撒丁岛，意大利")
+
+
+---
+### 2023 8月 10：丛林之王？还真不是
+#### 马赛马拉的一头狮子，肯尼亚（© Federico Veronesi/Minden Pictures）
+![丛林之王？还真不是](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_800x480.jpg&rf=LaDigue_800x480.jpg "丛林之王？还真不是")
+狮子被称作“丛林之王”，但是在今天，也就是世界狮子日，我们得纠正这个说法：狮子其实并不生活在丛林中。狮子是草原和平原的王者，是凶猛的猎手。当它们没有狩猎时，这些威武的生物又会显露出相当有欺骗性的可爱一面来。它们会小憩、打闹、互相梳理毛发，然后下一秒又会突然去追逐羚羊，甚至是河马。就像是1994年的经典电影《狮子王》的片头曲里面唱的，这就是生命的循环。
+
+狮子是唯一一种群居的猫科动物，不过也有一些狮子会选择独居。
+
+[下载480](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉的一头狮子，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1024x768.jpg&rf=LaDigue_1024x768.jpg "马赛马拉的一头狮子，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉的一头狮子，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉的一头狮子，肯尼亚")
