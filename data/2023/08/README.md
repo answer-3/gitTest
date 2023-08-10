@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1024x768.jpg&rf=LaDigue_1024x768.jpg "马赛马拉的一头狮子，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉的一头狮子，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉的一头狮子，肯尼亚")
+
+
+---
+### 2023 8月 11：独一无二的一朵“水花”
+#### '朱庇特艺术园的“入口”水池，爱丁堡，苏格兰（© Owen Humphreys/PA Images/Alamy）
+![独一无二的一朵“水花”](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_800x480.jpg&rf=LaDigue_800x480.jpg "独一无二的一朵“水花”")
+今天这张照片看起来像是AI生成的未来星球，但其实这是一个名为“入口”的水池，拍摄于苏格兰爱丁堡的朱庇特艺术园。这件艺术品直径约9米，集景观雕塑和功能游泳池于一体，于2019年作为爱丁堡艺术节的一部分向公众开放。水池呈水花形，由11000多块手绘瓷砖制成，这些瓷砖产自葡萄牙传统陶瓷作坊。
+
+这个名为“入口”的水池是一件非凡的艺术品，直径9米，由手绘葡萄牙瓷砖拼贴而成，整体风格鲜明、充满活力。
+
+[下载480](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_800x480.jpg&rf=LaDigue_800x480.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_1024x768.jpg&rf=LaDigue_1024x768.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_UHD.jpg&rf=LaDigue_UHD.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
