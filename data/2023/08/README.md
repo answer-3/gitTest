@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_1024x768.jpg&rf=LaDigue_1024x768.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_UHD.jpg&rf=LaDigue_UHD.jpg "'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰")
+
+
+---
+### 2023 8月 12：保护温柔的巨人
+#### 大象家族，安波塞利国家公园，肯尼亚（© Ibrahim Suha Derbent/Getty Images）
+![保护温柔的巨人](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_800x480.jpg&rf=LaDigue_800x480.jpg "保护温柔的巨人")
+作为地球上最大的陆地动物，非洲象拥有非凡的外形和独特的行为。研究发现，大象可以在镜子里认出自己；小象会换乳牙；失去家人时，大象也会表现出悲伤等情绪……每年8月12日的世界大象日不仅是为了赞美它们，也是为了引起人们对大象生存处境的关注。今天这张照片拍摄于肯尼亚的安波塞利国家公园，这里是为数不多的仍存在大量非洲象群的栖息地之一。
+
+大象是非常聪明的动物，其智商被认为可以与灵长类动物相媲美。研究发现，它们似乎拥有自我意识，并且会对垂死和死去的同伴表现出关心。
+
+[下载480](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_800x480.jpg&rf=LaDigue_800x480.jpg "大象家族，安波塞利国家公园，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_1024x768.jpg&rf=LaDigue_1024x768.jpg "大象家族，安波塞利国家公园，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大象家族，安波塞利国家公园，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_UHD.jpg&rf=LaDigue_UHD.jpg "大象家族，安波塞利国家公园，肯尼亚")
