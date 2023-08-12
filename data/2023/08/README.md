@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_1024x768.jpg&rf=LaDigue_1024x768.jpg "大象家族，安波塞利国家公园，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大象家族，安波塞利国家公园，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_UHD.jpg&rf=LaDigue_UHD.jpg "大象家族，安波塞利国家公园，肯尼亚")
+
+
+---
+### 2023 8月 13：抬头看，它来了
+#### 英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国（© Joshua Meador/Tandem Stills + Motion）
+![抬头看，它来了](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_800x480.jpg&rf=LaDigue_800x480.jpg "抬头看，它来了")
+当我们的祖先看到安静的夜空突然下起流星雨，他们会是什么感受？是惊惧还是惊叹？好在现在的我们已经知道，这是一场年度“灯光秀”，被称为英仙座流星雨，活跃期一般在每年的7月中旬至8月下旬。英仙座流星雨是由地球穿过斯威夫特-塔特尔彗星留下的碎片造成的，当这些碎片撞击地球大气层，就会产生炽热的流星雨。今天正是英仙座流星雨的高峰期，月亮预计只有10%的亮度，今晚可千万别错过“赏雨”哦！
+
+英仙座（Perseid）这个名字来源希腊神话英雄珀耳修斯。
+
+[下载480](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_800x480.jpg&rf=LaDigue_800x480.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_1024x768.jpg&rf=LaDigue_1024x768.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_UHD.jpg&rf=LaDigue_UHD.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
