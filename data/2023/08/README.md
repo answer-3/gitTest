@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_1024x768.jpg&rf=LaDigue_1024x768.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_UHD.jpg&rf=LaDigue_UHD.jpg "英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国")
+
+
+---
+### 2023 8月 14：躲猫猫，我看见你了!
+#### 叶片上的小壁虎（© Darren Greenwood/Alamy）
+![躲猫猫，我看见你了!](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_800x480.jpg&rf=LaDigue_800x480.jpg "躲猫猫，我看见你了!")
+当你试图吸引人们关注世界蜥蜴日这项活动时，你不会想要用吉拉毒蜥、巨蜥，或者更常见的、但仍不讨喜的鬣蜥作为开场白。不，你想要的是一只可爱的小壁虎，就像我们在这张照片中看到的那样。壁虎有1500多种，大小不一，与其他蜥蜴不同的是，它们可以通过发声吸引配偶、威吓敌人和进行各种社交互动。
+
+斐济冠状鬣蜥是一种蜥蜴，在20世纪80年代的电影《蓝色泻湖》拍摄期间被发现。
+
+[下载480](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_800x480.jpg&rf=LaDigue_800x480.jpg "叶片上的小壁虎")
+[下载720](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1024x768.jpg&rf=LaDigue_1024x768.jpg "叶片上的小壁虎")
+[下载1080](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "叶片上的小壁虎")
+[下载UHD](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_UHD.jpg&rf=LaDigue_UHD.jpg "叶片上的小壁虎")
