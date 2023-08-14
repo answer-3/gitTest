@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1024x768.jpg&rf=LaDigue_1024x768.jpg "叶片上的小壁虎")
 [下载1080](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "叶片上的小壁虎")
 [下载UHD](https://cn.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_UHD.jpg&rf=LaDigue_UHD.jpg "叶片上的小壁虎")
+
+
+---
+### 2023 8月 15：发光的矩形广场
+#### 四月九日广场，陶尔米纳，西西里岛，意大利（© rudi1976/Alamy）
+![发光的矩形广场](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_800x480.jpg&rf=LaDigue_800x480.jpg "发光的矩形广场")
+陶尔米纳，一颗镶嵌在西西里岛上的美丽明珠，毗邻古希腊殖民地纳克索斯，被爱奥尼亚海和风景如画的伊索拉贝拉岛所环绕。自19世纪以来，这个美丽的小镇一直是旅游胜地。
+
+陶尔米纳会在夏季组织许多展览和活动，古剧场经常举办戏剧演出或古典音乐会，电影银丝带奖颁奖典礼等文化盛会也会在此举行。
+
+[下载480](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_800x480.jpg&rf=LaDigue_800x480.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1024x768.jpg&rf=LaDigue_1024x768.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&rf=LaDigue_UHD.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
