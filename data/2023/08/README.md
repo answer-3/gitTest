@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1024x768.jpg&rf=LaDigue_1024x768.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg&rf=LaDigue_UHD.jpg "四月九日广场，陶尔米纳，西西里岛，意大利")
+
+
+---
+### 2023 8月 16：一把通向岛屿的钥匙
+#### 基韦斯特的七英里大桥，佛罗里达州，美国（© Evgeny Vasenev/Cavan Images）
+![一把通向岛屿的钥匙](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_800x480.jpg&rf=LaDigue_800x480.jpg "一把通向岛屿的钥匙")
+很久很久以前，佛罗里达州住着一位富有的实业家，名叫亨利·弗拉格勒。他启动了一项艰巨的工程：修建一条连接佛罗里达大陆和基韦斯特的跨海铁路。最终，七英里桥于1912年正式落成，被称为世界第八大奇迹。然而，奇迹并不长久，1935年，这座大桥遭遇飓风从而停止了运营。后来，这座桥被卖给了美国政府，经历重建后摇身一变，成了一条汽车高速公路，于1938年重新开放。
+
+费格与马勒工程集团不仅设计了七英里大桥，还设计了比这座桥高出许多的阳光高架桥。
+
+[下载480](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_800x480.jpg&rf=LaDigue_800x480.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1024x768.jpg&rf=LaDigue_1024x768.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&rf=LaDigue_UHD.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
