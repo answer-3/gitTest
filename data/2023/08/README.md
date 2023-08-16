@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1024x768.jpg&rf=LaDigue_1024x768.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg&rf=LaDigue_UHD.jpg "基韦斯特的七英里大桥，佛罗里达州，美国")
+
+
+---
+### 2023 8月 17：听它咆哮！
+#### 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省（© Laurens Verhoeven/Getty Images）
+![听它咆哮！](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_800x480.jpg&rf=LaDigue_800x480.jpg "听它咆哮！")
+罕肯瀑布 (Helmcken Falls) 坐落在威尔斯格雷省立公园 (Wells Gray Province Park) 内，是一处令人惊叹的自然奇观。 威尔斯格雷省立公园就是为了保护这座优美的瀑布而建立的。为政府工作的土地测量员罗伯特·亨利·李发现了这处大自然带给我们的天然珍宝。这座雄伟的瀑布是加拿大第五高的瀑布，从陡峭的大约有141米的高度火山岩悬崖上倾泻而下，释放出飘逸的雾气，在阳光下翩翩起舞，也形成了彩虹与瀑布相互映衬的绝美景观。
+
+威尔斯格雷省立公园本身就是一个未开垦的荒野保护区，点缀着郁郁葱葱的高山草甸、古老的森林和生机勃勃的野花。
+
+[下载480](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_800x480.jpg&rf=LaDigue_800x480.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
+[下载720](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1024x768.jpg&rf=LaDigue_1024x768.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
+[下载1080](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
+[下载UHD](https://cn.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg&rf=LaDigue_UHD.jpg "罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省")
