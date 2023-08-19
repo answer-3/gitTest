@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1024x768.jpg&rf=LaDigue_1024x768.jpg "看着相机镜头的松鼠")
 [下载1080](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "看着相机镜头的松鼠")
 [下载UHD](https://cn.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg&rf=LaDigue_UHD.jpg "看着相机镜头的松鼠")
+
+
+---
+### 2023 8月 20：海上哨兵
+#### 起点灯塔，德文郡，英国（© Guy Edwardes/Minden Pictures）
+![海上哨兵](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_800x480.jpg&rf=LaDigue_800x480.jpg "海上哨兵")
+每年8月的第三个周末，世界各地的灯塔爱好者和航海历史爱好者都会聚在一起庆祝国际灯塔周，纪念这些标志性建筑的悠久历史和关键作用。人们可以走进这些灯塔，亲眼见证这些巨大的灯塔通过将灯光、仪器和精密的工程技术巧妙地结合在一起来发挥作用。
+
+起点灯塔建于1836年，伫立于英国海岸线上其中一个最凸出的半岛上。
+
+[下载480](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_800x480.jpg&rf=LaDigue_800x480.jpg "起点灯塔，德文郡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1024x768.jpg&rf=LaDigue_1024x768.jpg "起点灯塔，德文郡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "起点灯塔，德文郡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg&rf=LaDigue_UHD.jpg "起点灯塔，德文郡，英国")
