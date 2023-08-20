@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1024x768.jpg&rf=LaDigue_1024x768.jpg "起点灯塔，德文郡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "起点灯塔，德文郡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg&rf=LaDigue_UHD.jpg "起点灯塔，德文郡，英国")
+
+
+---
+### 2023 8月 21：自内而外的光彩
+#### 翡翠湖，加拿大育空地区（© artherng/Getty Images）
+![自内而外的光彩](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_800x480.jpg&rf=LaDigue_800x480.jpg "自内而外的光彩")
+发现日是加拿大育空地区的一个年度节日，用来纪念1896年在富矿溪发现金矿，这个发现开启了克朗代克淘金热，进而推动了育空领地的建立。淘金热吸引了数以千计的淘金者来此寻找财富，推动了重大的经济和社会变革。
+
+加拿大向导汤姆·威尔逊在1882年成为了（原住民群体以外）最早发现翡翠湖的人。
+
+[下载480](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_800x480.jpg&rf=LaDigue_800x480.jpg "翡翠湖，加拿大育空地区")
+[下载720](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1024x768.jpg&rf=LaDigue_1024x768.jpg "翡翠湖，加拿大育空地区")
+[下载1080](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "翡翠湖，加拿大育空地区")
+[下载UHD](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&rf=LaDigue_UHD.jpg "翡翠湖，加拿大育空地区")
