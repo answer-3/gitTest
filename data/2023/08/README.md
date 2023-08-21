@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1024x768.jpg&rf=LaDigue_1024x768.jpg "翡翠湖，加拿大育空地区")
 [下载1080](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "翡翠湖，加拿大育空地区")
 [下载UHD](https://cn.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg&rf=LaDigue_UHD.jpg "翡翠湖，加拿大育空地区")
+
+
+---
+### 2023 8月 22：为罗马建筑“起立欢呼”
+#### 埃尔杰姆露天剧场，突尼斯（© Westend61/Getty Images）
+![为罗马建筑“起立欢呼”](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_800x480.jpg&rf=LaDigue_800x480.jpg "为罗马建筑“起立欢呼”")
+埃尔杰姆露天剧场位于突尼斯东部小城镇艾尔杰姆，始建于公元3世纪的罗马帝国时期，以其令人惊叹的建筑设计闻名。它由巨石砌成，可以容纳35000名观众，至今仍然是世界上最大的露天剧场之一。这座露天剧场自1979年就被列为联合国教科文组织世界遗产地，被认为是世界上保存最完好的罗马建筑之一，在体量和设计上几乎可以和罗马竞技场比肩。
+
+这个建筑曾经在电影《蒙提·派森之布莱恩的一生》和电视剧《漫漫长路》中出现。
+
+[下载480](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_800x480.jpg&rf=LaDigue_800x480.jpg "埃尔杰姆露天剧场，突尼斯")
+[下载720](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃尔杰姆露天剧场，突尼斯")
+[下载1080](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔杰姆露天剧场，突尼斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔杰姆露天剧场，突尼斯")
