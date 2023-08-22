@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃尔杰姆露天剧场，突尼斯")
 [下载1080](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔杰姆露天剧场，突尼斯")
 [下载UHD](https://cn.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔杰姆露天剧场，突尼斯")
+
+
+---
+### 2023 8月 23：溅起一潭水花
+#### 斯科加瀑布，冰岛（© Maridav/Shutterstock）
+![溅起一潭水花](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_800x480.jpg&rf=LaDigue_800x480.jpg "溅起一潭水花")
+今天照片里的是冰岛的斯科加瀑布，它是冰岛最大的瀑布之一，有82英尺宽，垂直落差约200英尺。游客经常能在这里看到彩虹，甚至是双彩虹。传说，第一个踏足冰岛的维京人曾把一个宝箱藏在了斯科加瀑布后面，这又为这个瀑布增添了一丝神秘色彩。
+
+斯科加瀑布水量充沛，水雾漫天，因此晴天的时候，这里通常都可以看见彩虹，甚至双彩虹。
+
+[下载480](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_800x480.jpg&rf=LaDigue_800x480.jpg "斯科加瀑布，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯科加瀑布，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯科加瀑布，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg&rf=LaDigue_UHD.jpg "斯科加瀑布，冰岛")
