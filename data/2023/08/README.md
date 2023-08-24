@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1024x768.jpg&rf=LaDigue_1024x768.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_UHD.jpg&rf=LaDigue_UHD.jpg "鲨鱼鳍湾，达文波特，加利福尼亚州，美国")
+
+
+---
+### 2023 8月 25：这是你的土地
+#### 黄石下瀑布，黄石国家公园，怀俄明州，美国（© Tim Fitzharris/Minden Pictures）
+![这是你的土地](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_800x480.jpg&rf=LaDigue_800x480.jpg "这是你的土地")
+虽然夏天即将结束，但现在收拾好装备，去户外探险还为时不晚。不知道该去哪里？那就去美国看看63个国家公园吧！1916年的今天，时任美国总统伍德罗·威尔逊签署《国家公园管理局组织法》，正式成立国家公园管理局，旨在“保护自然景观、野生动植物和历史遗迹，在供人们休闲娱乐的同时，不得破坏这些场所，并将之传诸后代”。无论是哪里的美景，只有小心呵护才能让这份美丽得以延续。
+
+黄石国家公园占地约3468.4平方英里（8983平方公里），由湖泊、峡谷、河流和山脉组成。黄石湖是北美最大的高海拔湖泊之一，位于大陆上最大的超级火山黄石火山口的中心。
+
+[下载480](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_800x480.jpg&rf=LaDigue_800x480.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_UHD.jpg&rf=LaDigue_UHD.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
