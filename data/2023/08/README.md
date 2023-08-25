@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_UHD.jpg&rf=LaDigue_UHD.jpg "黄石下瀑布，黄石国家公园，怀俄明州，美国")
+
+
+---
+### 2023 8月 26：博物馆之夜
+#### 柏林大教堂和博物馆岛，柏林，德国（© Rudy Balasko/Shutterstock）
+![博物馆之夜](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_800x480.jpg&rf=LaDigue_800x480.jpg "博物馆之夜")
+随着夏天渐渐消逝，我们开始怀念愉快的假期和多彩的夜生活。别急着回忆，欢乐的时光还没有结束！如果你在柏林，还有很多事情值得期待。比如一年一度的“博物馆长夜”活动，自1997年以来，每年八月的最后一个星期六都会举办，早已成为柏林最受欢迎的活动之一。在这个“长夜”中，博物馆的开放时间从18点直到次日凌晨，你不仅可以穿梭于各个博物馆之间欣赏世界文物，还可以喝酒跳舞，聆听音乐、参加讲座等。今天图片中的博物馆岛于1999年被列入世界文化遗产名录，岛上有柏林老博物馆、柏林新博物馆、国家美术馆、博德博物馆和佩加蒙博物馆。施普雷河环绕整座岛屿，使博物馆岛的气势更加宏伟磅礴。
+
+岛屿的南部，即格特劳登街以南的地区，通常被称为渔夫岛，是一栋高层公寓的所在地，这栋公寓修建时米特区还是东柏林的一部分。
+
+[下载480](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_800x480.jpg&rf=LaDigue_800x480.jpg "柏林大教堂和博物馆岛，柏林，德国")
+[下载720](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1024x768.jpg&rf=LaDigue_1024x768.jpg "柏林大教堂和博物馆岛，柏林，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柏林大教堂和博物馆岛，柏林，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_UHD.jpg&rf=LaDigue_UHD.jpg "柏林大教堂和博物馆岛，柏林，德国")
