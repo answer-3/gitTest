@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1024x768.jpg&rf=LaDigue_1024x768.jpg "柏林大教堂和博物馆岛，柏林，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柏林大教堂和博物馆岛，柏林，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_UHD.jpg&rf=LaDigue_UHD.jpg "柏林大教堂和博物馆岛，柏林，德国")
+
+
+---
+### 2023 8月 27：一个酷炫的凝灰岩火山口
+#### 城山日出峰，济州岛上的凝灰岩锥，韩国（© Quynh Anh Nguyen/Getty Images）
+![一个酷炫的凝灰岩火山口](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_800x480.jpg&rf=LaDigue_800x480.jpg "一个酷炫的凝灰岩火山口")
+济州岛上充满奇观，火山、古老石像、瀑布和岩石海岸，还有今天图片中的主角，城山日出峰，是岛上罕见的凝灰岩锥，由5000年前的一次海底火山喷发而形成。城山日出峰于2007年被列入联合国教科文组织世界自然遗产名录。
+
+济州岛是一个火山岛，岛中心的汉拿山也是一座火山，海拔约1950米，是韩国的最高峰。
+
+[下载480](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_800x480.jpg&rf=LaDigue_800x480.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
+[下载720](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1024x768.jpg&rf=LaDigue_1024x768.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
+[下载1080](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
+[下载UHD](https://cn.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg&rf=LaDigue_UHD.jpg "城山日出峰，济州岛上的凝灰岩锥，韩国")
