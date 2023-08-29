@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_1024x768.jpg&rf=LaDigue_1024x768.jpg "美洲野牛，大提顿国家公园，怀俄明州")
 [下载1080](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲野牛，大提顿国家公园，怀俄明州")
 [下载UHD](https://cn.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_UHD.jpg&rf=LaDigue_UHD.jpg "美洲野牛，大提顿国家公园，怀俄明州")
+
+
+---
+### 2023 8月 30：潜水员的“大伙伴”
+#### 鲸鲨，宁加洛珊瑚礁，西澳大利亚（© Jason Edwards/Getty Images）
+![潜水员的“大伙伴”](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_800x480.jpg&rf=LaDigue_800x480.jpg "潜水员的“大伙伴”")
+跟世界上最大的鱼类——鲸鲨，打个招呼吧。每年的8月30日是世界鲸鲨日。鲸鲨的体型惊人，平均身长达39英尺，尽管名叫“鲸鲨”，但这些温和的“海中巨人”其实并非鲸类，而是鱼类。鲸鲨性格温和，潜水员和它一起游泳通常是安全的。鲸鲨通过鳃板过滤浮游生物和小鱼，属于滤食性动物。如今，鲸鲨的数量已大幅下降。据估计，在过去的75年中，鲸鲨的数量减少了63%。究其缘由，一方面是因为鲸鲨会被船只撞击或被渔网缠住，另一方面是由于鲸鲨的栖息地因污染、沿海开发和过度捕捞而遭到破坏。就让我们在世界鲸鲨日，关注鲸鲨，了解鲸鲨，一起为保护鲸鲨做出努力吧。
+
+因为鲸鲨背部有犹如星辰般的斑点，所以鲸鲨在马达加斯加被称为“marokintana”，意为“众星”。
+
+[下载480](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_800x480.jpg&rf=LaDigue_800x480.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_1024x768.jpg&rf=LaDigue_1024x768.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg&rf=LaDigue_UHD.jpg "鲸鲨，宁加洛珊瑚礁，西澳大利亚")
