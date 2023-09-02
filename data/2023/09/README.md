@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_1024x768.jpg&rf=LaDigue_1024x768.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg&rf=LaDigue_UHD.jpg "艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国")
+
+
+---
+### 2023 9月 3：高耸入云
+#### 曼哈顿鸟瞰图，纽约市，美国（© Wojtek Zagorski/Getty Images）
+![高耸入云](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_800x480.jpg&rf=LaDigue_800x480.jpg "高耸入云")
+每年的9月3日是摩天大楼日，同时，这一天也是现代主义建筑的先驱、被称为"摩天大楼之父"的路易斯·沙利文的诞辰。摩天大楼遍布世界各大城市，是进步、野心和人类追求新高度的象征。曼哈顿是纽约市人口稠密、充满活力的中心地带，这里有着令人目眩神迷的天际线和鳞次栉比的摩天大楼。这些建筑，比如帝国大厦、世界贸易中心一号楼和克莱斯勒大厦，构成了这座城市的建筑和文化遗产，每年都吸引着数百万游客慕名而来。
+
+曼哈顿被誉为世界文化、金融、媒体和娱乐之都。
+
+[下载480](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_800x480.jpg&rf=LaDigue_800x480.jpg "曼哈顿鸟瞰图，纽约市，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_1024x768.jpg&rf=LaDigue_1024x768.jpg "曼哈顿鸟瞰图，纽约市，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼哈顿鸟瞰图，纽约市，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg&rf=LaDigue_UHD.jpg "曼哈顿鸟瞰图，纽约市，美国")
