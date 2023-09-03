@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_1024x768.jpg&rf=LaDigue_1024x768.jpg "曼哈顿鸟瞰图，纽约市，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼哈顿鸟瞰图，纽约市，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg&rf=LaDigue_UHD.jpg "曼哈顿鸟瞰图，纽约市，美国")
+
+
+---
+### 2023 9月 4：城市中心的绿色天堂
+#### 布尔日的沼泽，法国（© Tuul & Bruno Morandi/Getty Images）
+![城市中心的绿色天堂](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_800x480.jpg&rf=LaDigue_800x480.jpg "城市中心的绿色天堂")
+布尔日沼泽位于布尔日城市的中心，占地135公顷，为人们提供了一个放松和探索的空间。在中世纪时期，这片沼泽地曾是抵御入侵的城市保护带。
+
+沼泽为很多种无脊椎动物、两栖动物、水鸟和水生哺乳动物提供了栖息地。
+
+[下载480](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_800x480.jpg&rf=LaDigue_800x480.jpg "布尔日的沼泽，法国")
+[下载720](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_1024x768.jpg&rf=LaDigue_1024x768.jpg "布尔日的沼泽，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布尔日的沼泽，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg&rf=LaDigue_UHD.jpg "布尔日的沼泽，法国")
