@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞格拉山，塞尼亚岛，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞格拉山，塞尼亚岛，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg&rf=LaDigue_UHD.jpg "塞格拉山，塞尼亚岛，挪威")
+
+
+---
+### 2023 9月 6：准备好下锚了吗？
+#### 威尼斯旧港，克里特岛，希腊（© Gatsi/Getty Images）
+![准备好下锚了吗？](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_800x480.jpg&rf=LaDigue_800x480.jpg "准备好下锚了吗？")
+威尼斯港位于古城罗希姆诺。矗立在海港边缘的埃及灯塔以及当地的土耳其风格建筑，是历史上不同民族在这里留下的印记。这个港口于14世纪由威尼斯人建成，曾经在很长的一段时间里都是一个繁忙的商业中心。游客还可以造访始建于16世纪的罗希姆诺城堡，在城堡上俯瞰罗希姆诺的城市全景。
+
+克里特岛是希腊最大的岛屿，也是地中海第5大岛，还是世界上第88大的岛屿。
+
+[下载480](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_800x480.jpg&rf=LaDigue_800x480.jpg "威尼斯旧港，克里特岛，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1024x768.jpg&rf=LaDigue_1024x768.jpg "威尼斯旧港，克里特岛，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威尼斯旧港，克里特岛，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg&rf=LaDigue_UHD.jpg "威尼斯旧港，克里特岛，希腊")
