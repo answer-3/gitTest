@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1024x768.jpg&rf=LaDigue_1024x768.jpg "威尼斯旧港，克里特岛，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威尼斯旧港，克里特岛，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg&rf=LaDigue_UHD.jpg "威尼斯旧港，克里特岛，希腊")
+
+
+---
+### 2023 9月 7：沙漠之舟
+#### 沙漠中的骆驼，阿拉伯联合酋长国（© Amazing Aerial Premium/Shutterstock）
+![沙漠之舟](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_800x480.jpg&rf=LaDigue_800x480.jpg "沙漠之舟")
+对于阿联酋人来说，沙漠中的骆驼长久以来都是至关紧要的，同时也代表着阿联酋人的文化遗产和习俗。骆驼是贝都因人运输水和物资的关键交通工具，对于穿越炙热的沙漠来说是必不可少的。这些单峰骆驼还曾经被作为货币使用，例如支付嫁妆或者天课（穆斯林每年的慈善课税）。它们还可以提供营养，骆驼奶在很多食谱中都是宝贵且营养的食材。最后，骆驼还可以供人驾骑、提供娱乐。由此可见，这些坚韧的动物实在是用途广泛。
+
+骆驼其实并不在驼峰中存储水分。
+
+[下载480](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_800x480.jpg&rf=LaDigue_800x480.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
+[下载720](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1024x768.jpg&rf=LaDigue_1024x768.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
+[下载1080](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&rf=LaDigue_UHD.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
