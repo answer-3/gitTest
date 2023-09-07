@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1024x768.jpg&rf=LaDigue_1024x768.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
 [下载1080](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg&rf=LaDigue_UHD.jpg "沙漠中的骆驼，阿拉伯联合酋长国")
+
+
+---
+### 2023 9月 8：简·奥斯汀的文学圈
+#### 巴斯圆形广场，萨默塞特 ，英国（© Gavin Hellier/Getty Images）
+![简·奥斯汀的文学圈](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_800x480.jpg&rf=LaDigue_800x480.jpg "简·奥斯汀的文学圈")
+《傲慢与偏见》的作者简·奥斯汀是世界知名的作家之一，一年一度的文化盛事简·奥斯汀节就是为了纪念这位伟大的女作家而举办的。1801年至1806年间，简·奥斯汀居住于英国巴斯，因此这个节日就在此举行。今年的简·奥斯汀节于9月8日拉开帷幕（这一天恰好也是国际扫盲日），届时，人们会穿着18世纪的英国服装在巴斯的街道上游行。
+
+简·奥斯汀23岁时，就完成了三本书的初稿。
+
+[下载480](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_800x480.jpg&rf=LaDigue_800x480.jpg "巴斯圆形广场，萨默塞特 ，英国")
+[下载720](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴斯圆形广场，萨默塞特 ，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴斯圆形广场，萨默塞特 ，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg "巴斯圆形广场，萨默塞特 ，英国")
