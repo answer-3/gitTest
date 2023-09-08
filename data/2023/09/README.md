@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴斯圆形广场，萨默塞特 ，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴斯圆形广场，萨默塞特 ，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg&rf=LaDigue_UHD.jpg "巴斯圆形广场，萨默塞特 ，英国")
+
+
+---
+### 2023 9月 9：皇家寺庙的废墟
+#### 大城府历史公园的柴瓦塔那兰寺，泰国（© Weerasak Saeku/Getty Images）
+![皇家寺庙的废墟](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_800x480.jpg&rf=LaDigue_800x480.jpg "皇家寺庙的废墟")
+当夕阳西下，泰国的夜幕降临，大城府历史公园里的柴瓦塔那兰寺灯火通明，迎接着夜晚的到来。虽然这座寺庙并非世界遗产大城府遗址的一部分，但它也有着丰富的历史和建筑底蕴。14世纪至18世纪，暹罗大城王朝统治东南亚，国王巴萨通建造了这座圣殿，象征着宇宙的中心。从佛寺出发，可以坐船或乘车到达历史名城大城府。如今，大城府已成为历史废墟，但曾经这里是重要的商业和外交中心，周围环绕的河流是其天然的防御屏障。
+
+历史悠久的大城府建于1350年，是继素可泰之后暹罗王国的第二个首都。
+
+[下载480](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_800x480.jpg&rf=LaDigue_800x480.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1024x768.jpg&rf=LaDigue_1024x768.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&rf=LaDigue_UHD.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
