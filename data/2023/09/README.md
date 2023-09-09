@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1024x768.jpg&rf=LaDigue_1024x768.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg&rf=LaDigue_UHD.jpg "大城府历史公园的柴瓦塔那兰寺，泰国")
+
+
+---
+### 2023 9月 10：长者的智慧
+#### 斯瓦尔巴群岛海上的一对海象，挪威（© Mark Smith/Getty Images）
+![长者的智慧](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_800x480.jpg&rf=LaDigue_800x480.jpg "长者的智慧")
+今天是祖父母节，你有没有给奶奶爷爷打个电话呢？自1978年以来，祖父母节成为了美国的全国性节日，旨在让人们表达对祖父母的敬意，唤起晚辈对长者的重视。祖父母们人生经验丰富，总是在家庭中扮演着智者的角色。提及智者，人们脑中通常会浮现一个留着长胡须的老人。在许多文化中，胡须也代表着智慧。今天照片里的海象也长着胡须，不过比起“象征智慧”，海象的胡须倒是有更实际的用处——寻找食物。
+
+海象长相独特，身体呈纺锤形，粗壮而肥胖，通常为红棕色。
+
+[下载480](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_800x480.jpg&rf=LaDigue_800x480.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg&rf=LaDigue_UHD.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
