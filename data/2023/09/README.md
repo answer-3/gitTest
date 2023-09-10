@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg&rf=LaDigue_UHD.jpg "斯瓦尔巴群岛海上的一对海象，挪威")
+
+
+---
+### 2023 9月 11：历史、自然和美酒交汇之地
+#### 波尔多葡萄园的日出，法国（© Esperanza33/Getty Images）
+![历史、自然和美酒交汇之地](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_800x480.jpg&rf=LaDigue_800x480.jpg "历史、自然和美酒交汇之地")
+在波尔多地区，幅员辽阔的梅多克葡萄园盛产优质葡萄酒。九月是葡萄的丰收季，玛歌、波雅克、圣朱利安、圣埃斯特夫等知名产区都保留着古老的酿酒传统。
+
+梅多克值得一游，在这里，你可以了解法国葡萄酒的酿造历史，参观宏伟的著名酒庄，品尝顶级的葡萄美酒。
+
+[下载480](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_800x480.jpg&rf=LaDigue_800x480.jpg "波尔多葡萄园的日出，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1024x768.jpg&rf=LaDigue_1024x768.jpg "波尔多葡萄园的日出，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波尔多葡萄园的日出，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg&rf=LaDigue_UHD.jpg "波尔多葡萄园的日出，法国")
