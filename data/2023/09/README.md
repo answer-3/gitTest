@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1024x768.jpg&rf=LaDigue_1024x768.jpg "北海日落，诺德多夫，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北海日落，诺德多夫，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg&rf=LaDigue_UHD.jpg "北海日落，诺德多夫，德国")
+
+
+---
+### 2023 9月 13：往事的低语
+#### 赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度（© Images of india/Alamy Stock Photo）
+![往事的低语](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_800x480.jpg&rf=LaDigue_800x480.jpg "往事的低语")
+汉皮位于印度卡纳塔克邦，被联合国教科文组织列入世界遗产名录。从14世纪到16世纪，维查耶纳伽尔帝国统治着这片区域。而作为维查耶纳伽尔帝国首都的汉皮，自然留下了许多古迹群，例如古老的寺庙、雄伟的宫殿和满目苍夷的废墟。在克利希那德瓦·拉亚国王的统治期间（1509年至1529年），这座城市经历了大幅扩张，新建了很多具有艺术气息的建筑，吸引着来自世界各地的游客和商人。然而，1565年，维查耶纳伽尔帝国在塔利科塔战役中战败，汉皮也随之衰落。
+
+汉皮是14世纪维查耶纳伽尔帝国的首都。据波斯和欧洲的旅行者留下的编年史记载：位于通加巴德拉河附近的汉皮曾是一座繁荣、富裕且宏伟的城市，拥有许多寺庙、农田和贸易市场。
+
+[下载480](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_800x480.jpg&rf=LaDigue_800x480.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1024x768.jpg&rf=LaDigue_1024x768.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_UHD.jpg&rf=LaDigue_UHD.jpg "赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度")
