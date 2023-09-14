@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_1024x768.jpg&rf=LaDigue_1024x768.jpg "普氏野马，哈斯台国家公园，蒙古国")
 [下载1080](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普氏野马，哈斯台国家公园，蒙古国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_UHD.jpg&rf=LaDigue_UHD.jpg "普氏野马，哈斯台国家公园，蒙古国")
+
+
+---
+### 2023 9月 15：山谷女王
+#### 格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰（© Peter Zelei/Getty Images）
+![山谷女王](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_800x480.jpg&rf=LaDigue_800x480.jpg "山谷女王")
+格莱纳里夫森林公园是北爱尔兰安特里姆郡境内的一个1185公顷大的森林。它是格莱纳里夫山谷的一部分。格莱纳里夫被称为山谷女王，是安特里姆九个山谷中的一个。格莱纳里夫森林公园内有人工林地、湖泊、户外活动场地和保护区。
+
+格莱纳里夫森林是很多受保护动物的家园，尤其是红松鼠、白尾鹞和爱尔兰野兔。
+
+[下载480](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_800x480.jpg&rf=LaDigue_800x480.jpg "格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_1024x768.jpg&rf=LaDigue_1024x768.jpg "格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&rf=LaDigue_UHD.jpg "格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰")
