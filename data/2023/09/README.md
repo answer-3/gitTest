@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_1024x768.jpg&rf=LaDigue_1024x768.jpg "格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg&rf=LaDigue_UHD.jpg "格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰")
+
+
+---
+### 2023 9月 16：系好你的安全带！
+#### 施布吕根山口，格劳宾登州，瑞士（© Roberto Moiola/Getty Images）
+![系好你的安全带！](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_800x480.jpg&rf=LaDigue_800x480.jpg "系好你的安全带！")
+今天的照片展示的是位于勒蓬廷阿尔卑斯山脉上的一条公路线——施布吕根山口。山口位于瑞士和意大利的边境，海拔6936英尺，其蜿蜒的山路是欧洲海拔最高的公路之一。虽然现代的施布吕根山口建于1818-1823年，但其历史可追溯至罗马时代。自从1967年附近的圣贝纳迪诺公路隧道开通后，这个山口就变得安静多了。如今，这条有着51个急转弯的公路会在冬季保持关闭。因此，如果您想去一览壮观的山景、体验惊险的山路旅程，可以将行程定在6月至10月中旬哦。
+
+阿瑟·柯南·道尔在《显赫的委托人》中也提到了这个山口，这是一篇发表于1924年的关于福尔摩斯探案的短篇小说。
+
+[下载480](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_800x480.jpg&rf=LaDigue_800x480.jpg "施布吕根山口，格劳宾登州，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_1024x768.jpg&rf=LaDigue_1024x768.jpg "施布吕根山口，格劳宾登州，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "施布吕根山口，格劳宾登州，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&rf=LaDigue_UHD.jpg "施布吕根山口，格劳宾登州，瑞士")
