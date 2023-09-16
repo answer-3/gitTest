@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_1024x768.jpg&rf=LaDigue_1024x768.jpg "施布吕根山口，格劳宾登州，瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "施布吕根山口，格劳宾登州，瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg&rf=LaDigue_UHD.jpg "施布吕根山口，格劳宾登州，瑞士")
+
+
+---
+### 2023 9月 17：杂色短尾鴗
+#### 杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴（© Bruno D'Amicis/Minden Pictures）
+![杂色短尾鴗](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_800x480.jpg&rf=LaDigue_800x480.jpg "杂色短尾鴗")
+小巧多彩的杂色短尾鴗只栖息在古巴及其邻近岛屿上。杂色短尾鴗色彩鲜艳而独特：闪闪发光的绿色背部，浅灰色的腹部，红色的喉咙，粉色的胁腹、蓝色的颈部两侧以及红黑色的鸟喙。尽管它们的羽毛五颜六色，但小巧的体型让它们很难被看见。不过它们却很容易被听到，柔和的鸟啼声会提示你附近可能有一只杂色短尾鴗。
+
+通过分析鸟鸣声的变化，科学家发现杂色短尾鴗分为古巴东部和西部两个种群。
+
+[下载480](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_800x480.jpg&rf=LaDigue_800x480.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
+[下载720](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_1024x768.jpg&rf=LaDigue_1024x768.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
+[下载1080](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
+[下载UHD](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
