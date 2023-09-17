@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_1024x768.jpg&rf=LaDigue_1024x768.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
 [下载1080](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
 [下载UHD](https://cn.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg&rf=LaDigue_UHD.jpg "杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴")
+
+
+---
+### 2023 9月 18：黑夜里的“彩虹”
+#### 西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙（© Daniel Garrido/Getty Images）
+![黑夜里的“彩虹”](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_800x480.jpg&rf=LaDigue_800x480.jpg "黑夜里的“彩虹”")
+美国一年里有两次天文日，分别是春季天文日（4月中旬到5月中旬）和秋季天文日（9月中旬至10月中旬）。在这个特别的节日，科学博物馆、天文台、天文俱乐部和天文馆将举办专业人士主持的讲座、展览和工坊活动。对夜空的科学观测从早期文明时代就开始了，而天文学被称为最早的自然科学学科，是研究天体及相关现象的学科。今天照片里的是葡萄牙的西南阿连特茹和维森廷海岸自然公园，这里远离光污染，是个观星的好地方哦。
+
+天文日被定在9月中旬至10月中旬的一个周六，这样它就能尽可能的接近上弦月。
+
+[下载480](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_800x480.jpg&rf=LaDigue_800x480.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1024x768.jpg&rf=LaDigue_1024x768.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
