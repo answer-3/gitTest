@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1024x768.jpg&rf=LaDigue_1024x768.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg&rf=LaDigue_UHD.jpg "西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙")
+
+
+---
+### 2023 9月 19：壁花的避风港
+#### 哈德良长城，诺森伯兰郡国家公园，英国（© daverhead/Getty Images）
+![壁花的避风港](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_800x480.jpg&rf=LaDigue_800x480.jpg "壁花的避风港")
+不要因为泥泞的道路就停下您踏上哈德良长城步道的脚步。这条设立于2003年的国家级步道位于英格兰北部，自东向西蜿蜒了84英里。
+
+哈德良长城步道是英格兰北部的一条长途徒步路线，在2003年成为了第15条英国国家步道。
+
+[下载480](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_800x480.jpg&rf=LaDigue_800x480.jpg "哈德良长城，诺森伯兰郡国家公园，英国")
+[下载720](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_1024x768.jpg&rf=LaDigue_1024x768.jpg "哈德良长城，诺森伯兰郡国家公园，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈德良长城，诺森伯兰郡国家公园，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_UHD.jpg&rf=LaDigue_UHD.jpg "哈德良长城，诺森伯兰郡国家公园，英国")
