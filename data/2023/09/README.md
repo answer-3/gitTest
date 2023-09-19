@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_1024x768.jpg&rf=LaDigue_1024x768.jpg "哈德良长城，诺森伯兰郡国家公园，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈德良长城，诺森伯兰郡国家公园，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_UHD.jpg&rf=LaDigue_UHD.jpg "哈德良长城，诺森伯兰郡国家公园，英国")
+
+
+---
+### 2023 9月 20：桥下和桥上的水流
+#### 罗马风格的渡槽，阿卡迪亚公园，波兰（© PATSTOCK/Getty Images）
+![桥下和桥上的水流](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_800x480.jpg&rf=LaDigue_800x480.jpg "桥下和桥上的水流")
+阿卡迪亚公园位于波兰华沙附近，是由波兰贵族海伦娜·拉齐维乌设计的英式景观公园。公园的建筑和景观沾染着古代和中世纪的气息，比如这个仿造的罗马风渡槽。园内郁郁葱葱的绿植、宁静的流水以及精雕细琢的雕塑等，都诠释着公园的自然与艺术交融之美。今天，我们依旧可以透过阿卡迪亚公园，看到海伦娜·拉齐维乌不朽的艺术构想。
+
+阿卡迪亚公园的天然泉水曾为皇家浴场公园的水景提供水源。
+
+[下载480](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_800x480.jpg&rf=LaDigue_800x480.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
+[下载720](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_UHD.jpg&rf=LaDigue_UHD.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
