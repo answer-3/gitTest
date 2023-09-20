@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_UHD.jpg&rf=LaDigue_UHD.jpg "罗马风格的渡槽，阿卡迪亚公园，波兰")
+
+
+---
+### 2023 9月 21：表彰和平卫士
+#### 诺贝尔和平中心内部，奥斯陆，挪威（© Ilyas Ayub/Alamy）
+![表彰和平卫士](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_800x480.jpg&rf=LaDigue_800x480.jpg "表彰和平卫士")
+每年的9月21日，联合国都会庆祝国际和平日。国际和平日设立于1981年，联合国总部会在这天举行仪式，敲响和平钟，钟上面刻着“愿世界永久和平”的美好期望。
+
+《牛津当代历史词典》将诺贝尔和平奖描述为“世界上最知名的奖项”。
+
+[下载480](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_800x480.jpg&rf=LaDigue_800x480.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1024x768.jpg&rf=LaDigue_1024x768.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_UHD.jpg&rf=LaDigue_UHD.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
