@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1024x768.jpg&rf=LaDigue_1024x768.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_UHD.jpg&rf=LaDigue_UHD.jpg "诺贝尔和平中心内部，奥斯陆，挪威")
+
+
+---
+### 2023 9月 22：马尔萨拉，西西里岛的奇迹之一
+#### 马尔萨拉盐田，意大利（© javarman3/Getty Images）
+![马尔萨拉，西西里岛的奇迹之一](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_800x480.jpg&rf=LaDigue_800x480.jpg "马尔萨拉，西西里岛的奇迹之一")
+韦尔东大峡谷位于普罗旺斯的中心，是欧洲独一无二的自然奇观。马尔萨拉的斯塔尼奥内湖，自1995年起成为保护区，占地约1000公顷，是古代时期的重要盐产地。马尔萨拉盐田历史悠久，由腓尼基人在公元前1000年左右建立。如今，这个美丽的地方由世界自然基金会管理，保护着定期迁徙到马尔萨拉地区的众多鸟类。
+
+马尔萨拉建于迦太基古城利利拜乌姆的废墟上，其境内包括腓尼基古城莫西亚岛的考古遗址。
+
+[下载480](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_800x480.jpg&rf=LaDigue_800x480.jpg "马尔萨拉盐田，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_1024x768.jpg&rf=LaDigue_1024x768.jpg "马尔萨拉盐田，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨拉盐田，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨拉盐田，意大利")
