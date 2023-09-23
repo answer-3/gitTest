@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_1024x768.jpg&rf=LaDigue_1024x768.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
 [下载1080](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
 [下载UHD](https://cn.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州")
+
+
+---
+### 2023 9月 24：时而潺潺细流，时而奔腾咆哮
+#### 罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大（© phototropic/Getty Images）
+![时而潺潺细流，时而奔腾咆哮](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_800x480.jpg&rf=LaDigue_800x480.jpg "时而潺潺细流，时而奔腾咆哮")
+如果你是一个喜欢大自然的环保倡导者，喜欢听河流的轰鸣声，那么，今天的世界河川日一定不要错过。继2005年至2015年联合国“生命之水” 国际行动十年之后，加拿大保育生物学家马克·安杰洛（Mark Angelo）提出了一项保护河流的全球性活动。自2005年起，联合国将每年9月的第四个星期日定为世界河川日，旨在关注和保护河流的环境、文化及生态。
+
+弗雷泽河有记录以来的最高流量是在1894年6月，当时在霍普的流量估计为每秒17000立方米(60万立方英尺/秒)。
+
+[下载480](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_800x480.jpg&rf=LaDigue_800x480.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.FraserRiverBC_ZH-CN5743867197_UHD.jpg&rf=LaDigue_UHD.jpg "罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大")
