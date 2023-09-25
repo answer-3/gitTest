@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
 [下载1080](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
 [下载UHD](https://cn.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_UHD.jpg&rf=LaDigue_UHD.jpg "巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州")
+
+
+---
+### 2023 9月 26：给滑板“冲浪”的波浪
+#### 日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州（© EXTREME-PHOTOGRAPHER/Getty Images）
+![给滑板“冲浪”的波浪](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_800x480.jpg&rf=LaDigue_800x480.jpg "给滑板“冲浪”的波浪")
+与意大利的“水城”威尼斯不同，加利福尼亚州的威尼斯并不以运河以及古老的鹅卵石街道而出名。相反，这里是滑板爱好者的天堂，威尼斯滑板公园位于阳光普照的威尼斯海滩旁边，见证了该州滑板运动的发展和壮大。
+
+圣莫尼卡海滩和威尼斯海滩将在 2028 年夏季奥运会期间举办滑板比赛和三人篮球比赛。
+
+[下载480](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_800x480.jpg&rf=LaDigue_800x480.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
+[下载720](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
+[下载1080](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
+[下载UHD](https://cn.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州")
