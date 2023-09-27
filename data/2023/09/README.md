@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_1024x768.jpg&rf=LaDigue_1024x768.jpg "克虏伯路，卡普里岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克虏伯路，卡普里岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg&rf=LaDigue_UHD.jpg "克虏伯路，卡普里岛，意大利")
+
+
+---
+### 2023 9月 28：遵命！船长！
+#### 泰国商业港口附近的集装箱船（© Suriyapong Thongsawang/Getty Images）
+![遵命！船长！](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_800x480.jpg&rf=LaDigue_800x480.jpg "遵命！船长！")
+大海是一个充满野性又混乱的“工作场所”，考虑到约80%的国家会进入海洋发展，因此，国际海事组织在1948年日内瓦举行的联合国会议上初步建立，并于10年后正式生效成立。为了纪念第一次会议，每年九月，海事工作者会聚集在一起庆祝世界海事日。这个活动提高了人们对海事安全、航运的可持续发展以及环境保护的意识。除此之外，这一天也是向海上的无名英雄——海事工人致敬的日子。
+
+一艘中等大小的集装箱船每年航行的距离约等于从地球到月球的距离：238855英里。
+
+[下载480](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_800x480.jpg&rf=LaDigue_800x480.jpg "泰国商业港口附近的集装箱船")
+[下载720](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_1024x768.jpg&rf=LaDigue_1024x768.jpg "泰国商业港口附近的集装箱船")
+[下载1080](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰国商业港口附近的集装箱船")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_UHD.jpg&rf=LaDigue_UHD.jpg "泰国商业港口附近的集装箱船")
