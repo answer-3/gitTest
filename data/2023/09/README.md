@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_1024x768.jpg&rf=LaDigue_1024x768.jpg "泰国商业港口附近的集装箱船")
 [下载1080](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰国商业港口附近的集装箱船")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_UHD.jpg&rf=LaDigue_UHD.jpg "泰国商业港口附近的集装箱船")
+
+
+---
+### 2023 9月 29：举杯邀明月
+#### 满月下的甲秀楼，中国贵州省贵阳市（© Wang Yukun/Getty Images）
+![举杯邀明月](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_800x480.jpg&rf=LaDigue_800x480.jpg "举杯邀明月")
+今天是中秋节，是桂花浮玉的时节，是月满天街的日子。图片中的风景是位于中国贵州省贵阳市的甲秀楼，甲秀楼始建于明朝万历二十六年（1598年），取“科甲挺秀”之意，设有浮玉桥衔接两岸。此时满月映照了整个苍穹，夜空如洗，甲秀楼和周围的古建筑在明月与灯光的映衬下，投射在湖水中，颇有“书画一船烟外月，湖山十里镜中人”的意境。
+
+中秋之夜，闻着阵阵桂香，喝一杯桂花蜜酒，欢庆合家甜甜蜜蜜，已成为节日一种美的享受。到了现代，人们多是拿红酒代替。
+
+[下载480](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_800x480.jpg&rf=LaDigue_800x480.jpg "满月下的甲秀楼，中国贵州省贵阳市")
+[下载720](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_1024x768.jpg&rf=LaDigue_1024x768.jpg "满月下的甲秀楼，中国贵州省贵阳市")
+[下载1080](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "满月下的甲秀楼，中国贵州省贵阳市")
+[下载UHD](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_UHD.jpg&rf=LaDigue_UHD.jpg "满月下的甲秀楼，中国贵州省贵阳市")
