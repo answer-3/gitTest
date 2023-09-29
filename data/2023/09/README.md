@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_1024x768.jpg&rf=LaDigue_1024x768.jpg "满月下的甲秀楼，中国贵州省贵阳市")
 [下载1080](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "满月下的甲秀楼，中国贵州省贵阳市")
 [下载UHD](https://cn.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_UHD.jpg&rf=LaDigue_UHD.jpg "满月下的甲秀楼，中国贵州省贵阳市")
+
+
+---
+### 2023 9月 30：啊！仙纳度
+#### 仙纳度国家公园的秋色，弗吉尼亚州（© Michael Ver Sprill/Getty Images）
+![啊！仙纳度](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_800x480.jpg&rf=LaDigue_800x480.jpg "啊！仙纳度")
+漫山红遍的十月就要来了，是时候开启新的篇章了。仙纳度国家公园坐落在蓝岭山脉深处，覆盖了20万英亩的土地。在夏日将尽之际，公园正在脱胎换骨，准备向世人展现它最迷人的季节：秋季。树叶换上了最迷人的盛装：红色、橙色、还有金色……色彩交织展现出不容错过的美景。天际线大道是一条105英里长的公路，沿途有超过75处观景台，为你提供第一线的美景。你知道在仙纳度生长着超过300个种类的植物吗？糖枫、山核桃、橡树都是这场色彩游戏中的“摇滚巨星”。所以，无论你是徒步爱好者、自然摄影师、或者只想寻找宁静的避世之地，这个公园都能满足你所有需求。
+
+美国天际线大道是密西西比河以东第一条国家公园服务道路，被列为国家历史名胜名录上的国家历史地标。这是一条历史悠久的道路，也是一条国家风景名胜公路，沿途可以欣赏美丽的自然风光。
+
+[下载480](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_800x480.jpg&rf=LaDigue_800x480.jpg "仙纳度国家公园的秋色，弗吉尼亚州")
+[下载720](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_1024x768.jpg&rf=LaDigue_1024x768.jpg "仙纳度国家公园的秋色，弗吉尼亚州")
+[下载1080](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "仙纳度国家公园的秋色，弗吉尼亚州")
+[下载UHD](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_UHD.jpg&rf=LaDigue_UHD.jpg "仙纳度国家公园的秋色，弗吉尼亚州")
