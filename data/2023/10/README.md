@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_1024x768.jpg&rf=LaDigue_1024x768.jpg "白天堂海滩，圣灵群岛，昆士兰州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白天堂海滩，圣灵群岛，昆士兰州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_UHD.jpg&rf=LaDigue_UHD.jpg "白天堂海滩，圣灵群岛，昆士兰州，澳大利亚")
+
+
+---
+### 2023 10月 4：狼蛛星云
+#### 狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜（© NASA, ESA, CSA, STScI, Webb ERO Production Team）
+![狼蛛星云](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_800x480.jpg&rf=LaDigue_800x480.jpg "狼蛛星云")
+每年10月4日至10日是世界太空周，可以让全世界的人了解太空探索和太空技术带来的诸多好处，并庆祝人类在地外取得的成就。其中令人惊叹的宇宙奇观是狼蛛星云，由美国宇航局的詹姆斯·韦伯太空望远镜拍摄。狼蛛星云是本星系群中最明亮、最大的恒星形成区，本星系群也是银河系的所在地。该星云巨大的体积和动态能量为宇宙学家和天文学家提供了大量引人注目的素材。
+
+狼蛛星云的亮度非常强，如果它像猎户座星云一样靠近地球，就会投射出明显的阴影。
+
+[下载480](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_800x480.jpg&rf=LaDigue_800x480.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
+[下载720](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_1024x768.jpg&rf=LaDigue_1024x768.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
+[下载1080](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
+[下载UHD](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_UHD.jpg&rf=LaDigue_UHD.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
