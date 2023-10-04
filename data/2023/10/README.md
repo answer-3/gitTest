@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_1024x768.jpg&rf=LaDigue_1024x768.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
 [下载1080](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
 [下载UHD](https://cn.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_UHD.jpg&rf=LaDigue_UHD.jpg "狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜")
+
+
+---
+### 2023 10月 5：这是怎么做到的！
+#### 巴布亚企鹅，南极洲（© Art Wolfe/Getty Images）
+![这是怎么做到的！](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_800x480.jpg&rf=LaDigue_800x480.jpg "这是怎么做到的！")
+每年的10月5日是世界教师日，这一天是所有教育工作者的庆祝日。1966年10月5日，国际劳工组织和联合国教科文组织共同审议通过了《关于教师地位的建议书》，因此当天也被设立为世界教师日。这一文件不仅肯定了教师的重要作用，而且规定了教师的权利与责任，同时提出了关于教师技能认定等方面的国际标准。
+
+在企鹅物种中，巴布亚企鹅是体型第三大的企鹅，它们的体重能够达到18磅。
+
+[下载480](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_800x480.jpg&rf=LaDigue_800x480.jpg "巴布亚企鹅，南极洲")
+[下载720](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴布亚企鹅，南极洲")
+[下载1080](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴布亚企鹅，南极洲")
+[下载UHD](https://cn.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_UHD.jpg&rf=LaDigue_UHD.jpg "巴布亚企鹅，南极洲")
