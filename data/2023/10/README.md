@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_1024x768.jpg&rf=LaDigue_1024x768.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_UHD.jpg&rf=LaDigue_UHD.jpg "杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国")
+
+
+---
+### 2023 10月 7：吃三文鱼自助餐的时间到了
+#### 灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国（© oksana.perkins/Shutterstock）
+![吃三文鱼自助餐的时间到了](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_800x480.jpg&rf=LaDigue_800x480.jpg "吃三文鱼自助餐的时间到了")
+冬天即将来临，你准备好了吗？卡特迈国家公园的棕熊肯定准备好了，它们的努力不会白费。每年，公园都会组织一场“肥熊周”大赛，最大最胖的灰熊将加冕冠军。场地四周安置了网络摄像头，所有人都可以通过网络观看这场比赛，参赛的灰熊会吃掉大量正返回公园产卵的三文鱼。观赛途中，你可以投票给你认为最大最胖的熊。今年的比赛竞争激烈，一只叫“珠鼻”的胖熊和编号为“747”的棕熊，都曾多次夺冠，而名叫奥提斯的肥熊更是曾四度夺得“肥熊周”的冠军。
+
+灰熊被列为棕熊的亚种，是继北极熊和科迪亚克棕熊之后，体型最大的熊类。
+
+[下载480](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_800x480.jpg&rf=LaDigue_800x480.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_1024x768.jpg&rf=LaDigue_1024x768.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_UHD.jpg&rf=LaDigue_UHD.jpg "灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国")
