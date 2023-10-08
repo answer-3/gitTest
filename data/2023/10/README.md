@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1024x768.jpg&rf=LaDigue_1024x768.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_UHD.jpg&rf=LaDigue_UHD.jpg "巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚")
+
+
+---
+### 2023 10月 9：古老的事故，古代的艺术
+#### 弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国（© Dan Leeth/Alamy）
+![古老的事故，古代的艺术](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_800x480.jpg&rf=LaDigue_800x480.jpg "古老的事故，古代的艺术")
+今天是美国土著人日！弗里蒙特人是著名的原住民族群之一，他们从公元0年到1301年一直生活在今天的犹他州及其周边地区。这个庞大的族群以其独特的岩画描绘了古老的故事，展示了古代的艺术，在该地留下了永恒的印记。如今，许多美国人都会参加土著日的庆祝活动，如艺术展览、传统音乐和讲故事等。此外，恐龙国家纪念碑、弗里蒙特印第安州立公园和麦基泉岩画也能让人们了解土著人民世世代代延续下来的悠久历史。
+
+诺埃尔·莫尔斯在其1931年出版的《犹他州弗里蒙特河的古代文化》一书中，首次将一个发掘出一系列工具、艺术品、建筑和陶器的地方定义为弗里蒙特文明区。
+
+[下载480](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_800x480.jpg&rf=LaDigue_800x480.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_1024x768.jpg&rf=LaDigue_1024x768.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FremontPetroglyph_ZH-CN5736573545_UHD.jpg&rf=LaDigue_UHD.jpg "弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国")
