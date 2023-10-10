@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_1024x768.jpg&rf=LaDigue_1024x768.jpg "索普里斯山，科罗拉多州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索普里斯山，科罗拉多州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_UHD.jpg&rf=LaDigue_UHD.jpg "索普里斯山，科罗拉多州，美国")
+
+
+---
+### 2023 10月 11：消失的回声
+#### 约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国（© Ben Herndon/Tandem Stills + Motion）
+![消失的回声](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_800x480.jpg&rf=LaDigue_800x480.jpg "消失的回声")
+为了庆祝国际化石日，今天我们一起来了解一下位于俄勒冈州的约翰迪化石床国家纪念地中那迷人的彩绘山。一层层色彩鲜艳又富含粘土的土壤构成了彩绘山迷人的景观。此外，这些山丘还记录了该区域数百年以来的气候和生态系统的变化。在这里，游客们可以自由地参观博物馆内陈列着的动植物化石。在纪念地的克拉诺单元，人们可以一窥负鼠化石、岳齿兽化石、剑齿虎化石和海龟化石的风采，而这些遗迹也在提醒着人们，我们的星球曾活力无限、生机勃勃。
+
+彩绘山被列为俄勒冈州七大奇观之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_800x480.jpg&rf=LaDigue_800x480.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_1024x768.jpg&rf=LaDigue_1024x768.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_UHD.jpg&rf=LaDigue_UHD.jpg "约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国")
