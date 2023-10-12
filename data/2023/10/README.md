@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯地区的老谷仓和油菜田，爱达荷州，美国")
+
+
+---
+### 2023 10月 13：住在悬崖边的日子
+#### 加尔加诺半岛上的维埃斯特，阿普利亚，意大利（© Pilat666/Getty Images）
+![住在悬崖边的日子](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_800x480.jpg&rf=LaDigue_800x480.jpg "住在悬崖边的日子")
+维埃斯特是意大利东海岸一个风景如画的小镇。它的历史是由诺曼人、拜占庭人和罗马人等不同文明编织而成的，可以追溯到数千年前。小镇的历史中心不仅有迷宫般的小巷、古色古香的建筑，还有一座可以俯瞰亚得里亚海的中世纪斯瓦比亚城堡。然而，真正吸引游客的是维埃斯特迷人的自然景观。这里以壮观的石灰石悬崖、原始的海滩和清澈的海水而闻名。事实上，维埃斯特的海水非常清澈，其水质已获得蓝旗认证。闻名遐迩的皮佐穆诺岩层有许多与之相关的传说，这些传说往往是关于一个名叫皮佐穆诺的年轻人和他的爱人克里斯塔尔达的故事的变种。维埃斯特集历史、自然奇观和休闲活动于一体，对于那些寻求纯正意大利体验的游客来说，这里仍是一个引人入胜的目的地。
+
+矗立于城堡海滩上的皮佐穆诺海蚀柱，高达26.6米，是维埃斯特最著名的地貌。
+
+[下载480](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_800x480.jpg&rf=LaDigue_800x480.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1024x768.jpg&rf=LaDigue_1024x768.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_UHD.jpg&rf=LaDigue_UHD.jpg "加尔加诺半岛上的维埃斯特，阿普利亚，意大利")
