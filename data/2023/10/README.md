@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1024x768.jpg&rf=LaDigue_1024x768.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_UHD.jpg&rf=LaDigue_UHD.jpg "金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国")
+
+
+---
+### 2023 10月 17：赤血群岛的守护者
+#### 帕拉塔塔,阿雅克肖,科西嘉岛,法国（© Jon Ingall/Alamy）
+![赤血群岛的守护者](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_800x480.jpg&rf=LaDigue_800x480.jpg "赤血群岛的守护者")
+闭上双眼，想象一下身处在科西嘉岛美丽的日落下，聆听海浪的声音......
+
+如今，废弃的热那亚塔已成为科西嘉岛海岸线上一道独特的风景。其中一些塔楼还被法国文化部列为官方历史古迹。
+
+[下载480](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_800x480.jpg&rf=LaDigue_800x480.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
+[下载720](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
+[下载1080](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&rf=LaDigue_UHD.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
