@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
 [下载1080](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg&rf=LaDigue_UHD.jpg "帕拉塔塔,阿雅克肖,科西嘉岛,法国")
+
+
+---
+### 2023 10月 18：西沃德的财富
+#### 科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国（© Ian Shive/Tandem Stills + Motion）
+![西沃德的财富](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_800x480.jpg&rf=LaDigue_800x480.jpg "西沃德的财富")
+1867年10月18日，在美国国务卿威廉·亨利·西沃德的谈判下，俄国将阿拉斯加的领土转让给了美国。美国一共花费了720万美元，以每英亩约两美分的价格买下了阿拉斯加地区，这一段历史被称为“阿拉斯加交易”。如今，这一天被称为阿拉斯加日，以纪念阿拉斯加丰富的历史、多元的文化、未开垦的荒野和坚忍不拔的精神。
+
+该保护区没有从外部进入的道路，仅有一条通往恐怖湖水电站的私人道路。但该道路禁止公众使用。
+
+[下载480](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_800x480.jpg&rf=LaDigue_800x480.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1024x768.jpg&rf=LaDigue_1024x768.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg&rf=LaDigue_UHD.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
