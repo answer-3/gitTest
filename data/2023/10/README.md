@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1024x768.jpg&rf=LaDigue_1024x768.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg&rf=LaDigue_UHD.jpg "科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国")
+
+
+---
+### 2023 10月 19：去而复返
+#### Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士（© Alan Novelli/Alamy Stock Photo）
+![去而复返](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_800x480.jpg&rf=LaDigue_800x480.jpg "去而复返")
+《霍比特人》的主角比尔博·巴金斯曾说过一句名言：不是所有流浪者都迷失了自己的方向。但在这个名为“风的城堡”的地方，暂时失去方向感也是一种乐趣！虽然这里看起来像是《指环王》三部曲中的中土世界，但它却真实存于威尔士斯诺多尼亚山峰的高处。
+
+华特·迪士尼的电影《屠龙者》中的“风的城堡”和“悬臂石”。
+
+[下载480](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_800x480.jpg&rf=LaDigue_800x480.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_1024x768.jpg&rf=LaDigue_1024x768.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_UHD.jpg&rf=LaDigue_UHD.jpg "Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士")
