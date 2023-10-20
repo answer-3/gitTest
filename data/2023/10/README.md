@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_1024x768.jpg&rf=LaDigue_1024x768.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
 [下载1080](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
 [下载UHD](https://cn.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_UHD.jpg&rf=LaDigue_UHD.jpg "俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马")
+
+
+---
+### 2023 10月 21：哇，真是松了一口气！
+#### 波斯古城波斯波利斯的浮雕，伊朗（© Ozbalci/Getty Images）
+![哇，真是松了一口气！](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_800x480.jpg&rf=LaDigue_800x480.jpg "哇，真是松了一口气！")
+古迹是历史的见证，更是文化的传承。每年十月的第三个星期六是国际考古日，这一天，世界各地的考古组织会举办丰富的活动，如寻宝游戏、讲座和互动研讨会，所有这些活动都是为了唤醒人们内心的冒险精神，激发大家对过去的好奇心，了解考古的意义和更多的文化遗产知识。
+
+探索波斯波利斯的历史可以追溯到17世纪初，楔形文字也随之重现于世。
+
+[下载480](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_800x480.jpg&rf=LaDigue_800x480.jpg "波斯古城波斯波利斯的浮雕，伊朗")
+[下载720](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_1024x768.jpg&rf=LaDigue_1024x768.jpg "波斯古城波斯波利斯的浮雕，伊朗")
+[下载1080](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波斯古城波斯波利斯的浮雕，伊朗")
+[下载UHD](https://cn.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_UHD.jpg&rf=LaDigue_UHD.jpg "波斯古城波斯波利斯的浮雕，伊朗")
