@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg&rf=LaDigue_UHD.jpg "塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国")
+
+
+---
+### 2023 10月 24：这片迷雾密布的树林里潜藏着什么?
+#### 桑佩伦山上的菲泽尔城堡，匈牙利（© ZGPhotography/Alamy）
+![这片迷雾密布的树林里潜藏着什么?](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_800x480.jpg&rf=LaDigue_800x480.jpg "这片迷雾密布的树林里潜藏着什么?")
+匈牙利是一个历史悠久、风景迷人的国家，也是一个拥有众多城堡的宝库。从布达佩斯那拥有富丽堂皇的建筑并可以俯瞰多瑙河美景的布达城堡，到因成功抵御近四万土耳其大军而闻名的埃格尔城堡，每座城堡都讲述着各自关于战争、皇室和文化演变的故事。
+
+位于桑佩伦山脉的陡峭山峰是许多中世纪石头城堡的基地。
+
+[下载480](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_800x480.jpg&rf=LaDigue_800x480.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
+[下载720](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_1024x768.jpg&rf=LaDigue_1024x768.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
+[下载1080](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
+[下载UHD](https://cn.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg&rf=LaDigue_UHD.jpg "桑佩伦山上的菲泽尔城堡，匈牙利")
