@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_1024x768.jpg&rf=LaDigue_1024x768.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_UHD.jpg&rf=LaDigue_UHD.jpg "大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国")
+
+
+---
+### 2023 10月 26：落叶爱好者的天堂
+#### 美泉宫公园的秋叶，维也纳，奥地利（© rusm/Getty Images）
+![落叶爱好者的天堂](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_800x480.jpg&rf=LaDigue_800x480.jpg "落叶爱好者的天堂")
+1743年，玛丽亚·特蕾莎皇后决定对奥地利美泉宫进行豪华改建，直至1918年，它一直是哈布斯堡王朝皇帝们钟爱的住所。美泉宫是巴洛克时代真正的瑰宝，它拥有郁郁葱葱的花园和世界上现存最古老的公共动物园。如今，这些华丽的建筑和美丽的花园都归奥地利政府所有。公园里的小径，绿树成荫，让人远离城市的喧嚣与嘈杂，漫步其中，仿佛回到了18世纪，神秘又浪漫。
+
+维也纳美泉宫的花园及宫殿曾是许多影视作品的取景地，如20世纪50年代上映的《茜茜公主》三部曲、索菲娅·罗兰主演的《深宫春色》。此外，《007之黎明生机》中邦德（提摩西·道尔顿饰）和卡拉骑马经过宫殿花园时的场景也是在这里拍摄的。
+
+[下载480](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_800x480.jpg&rf=LaDigue_800x480.jpg "美泉宫公园的秋叶，维也纳，奥地利")
+[下载720](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_1024x768.jpg&rf=LaDigue_1024x768.jpg "美泉宫公园的秋叶，维也纳，奥地利")
+[下载1080](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美泉宫公园的秋叶，维也纳，奥地利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_UHD.jpg&rf=LaDigue_UHD.jpg "美泉宫公园的秋叶，维也纳，奥地利")
