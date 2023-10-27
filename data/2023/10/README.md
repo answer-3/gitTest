@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯利加坎老桥，苏格兰斯凯岛")
 [下载1080](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯利加坎老桥，苏格兰斯凯岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg&rf=LaDigue_UHD.jpg "斯利加坎老桥，苏格兰斯凯岛")
+
+
+---
+### 2023 10月 28：西班牙骑士的“劲敌”
+#### 卡斯蒂利亚-拉曼恰的风车，西班牙（© Getty Images）
+![西班牙骑士的“劲敌”](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_800x480.jpg&rf=LaDigue_800x480.jpg "西班牙骑士的“劲敌”")
+在孔苏埃格拉小镇上，到处都流传着堂吉诃德的冒险故事，他是塞万提斯笔下的英雄，是西班牙史诗小说《堂吉诃德》的主人公。这个位于卡斯蒂利亚-拉曼恰的旅游胜地因一座名为卡尔德里科的小山丘而出名。这座山丘顶部有12座白色风车，或许正是这些风车激发了塞万提斯的灵感。在小说中，塞万提斯将它们描绘成一支巨人军队。风车由石墙和木制叶片构成，其中一些风车的历史可追溯到16世纪，它们曾是碾磨谷物的工具，如今成为见证历史的活化石。
+
+《堂吉诃德》是世界上被翻译最多的书籍之一，也是有史以来最畅销的小说之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_800x480.jpg&rf=LaDigue_800x480.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
