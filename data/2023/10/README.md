@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg&rf=LaDigue_UHD.jpg "卡斯蒂利亚-拉曼恰的风车，西班牙")
+
+
+---
+### 2023 10月 29：天黑后，你还敢待在这里吗？
+#### 博纳温彻墓地，萨凡纳，佐治亚州，美国（© Kelly vanDellen/Alamy）
+![天黑后，你还敢待在这里吗？](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_800x480.jpg&rf=LaDigue_800x480.jpg "天黑后，你还敢待在这里吗？")
+公墓通常不是人们想要探索的首选地，但佐治亚州萨凡纳的博纳温彻墓地却打破了这种想法。这座城市通常被称为美国闹鬼最严重的城市，所以恐怖事物爱好者和那些缅怀逝去亲人的人都会在这里齐聚一堂。这座墓地坐落在可以俯瞰威尔明顿河的悬崖上，自1846年以来就一直存在。墓地的橡树上挂满了西班牙苔藓，笼罩着人行道、纪念碑和精美的墓穴。你是不是觉得这听起来像是走进了一部南方哥特式小说？那就对了！这个占地160英亩的墓地正是约翰·伯兰特于1994年出版的畅销书《午夜善恶花园》中的主角。从诗人康拉德·艾肯到歌词作者约翰尼·默瑟，许多名人都葬在这里。在墓地的众多居民中，你会发现小格雷西·沃森：她是一座真人大小的大理石雕像，平静地注视着往来的游客，令人毛骨悚然。据说，她的灵魂仍在该地徘徊着。你想见见她吗？
+
+畅销书《午夜善恶花园》的封面照片是由杰克·李拍摄的，照片上有一个引人遐想的年轻女孩的雕塑。这个女孩被称为“鸟女”，已经默默无闻地在墓地里呆了50多年。
+
+[下载480](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_800x480.jpg&rf=LaDigue_800x480.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1024x768.jpg&rf=LaDigue_1024x768.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&rf=LaDigue_UHD.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
