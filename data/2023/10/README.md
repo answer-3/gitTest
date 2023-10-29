@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1024x768.jpg&rf=LaDigue_1024x768.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg&rf=LaDigue_UHD.jpg "博纳温彻墓地，萨凡纳，佐治亚州，美国")
+
+
+---
+### 2023 10月 30：黑衣美人
+#### 普通乌鸦坐在树枝上（© WildMedia/Shutterstock）
+![黑衣美人](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_800x480.jpg&rf=LaDigue_800x480.jpg "黑衣美人")
+渡鸦是一种聪明且适应性强的鸟类，以其引人注目的外表和调皮的行为而闻名天下。通过其独特的楔形尾巴和富有光泽的黑色羽毛，你可以轻易地辨认出它们。作为成熟的猎人，渡鸦拥有敏锐的视力和敏捷的飞行能力，常以腐肉为食或从其他捕食者那里偷走食物。渡鸦是杂食性动物，它们的食物多种多样，包括腐肉、昆虫和小型哺乳动物。
+
+普通乌鸦是乌鸦家族中最大的成员。
+
+[下载480](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_800x480.jpg&rf=LaDigue_800x480.jpg "普通乌鸦坐在树枝上")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1024x768.jpg&rf=LaDigue_1024x768.jpg "普通乌鸦坐在树枝上")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通乌鸦坐在树枝上")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_UHD.jpg&rf=LaDigue_UHD.jpg "普通乌鸦坐在树枝上")
