@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1024x768.jpg&rf=LaDigue_1024x768.jpg "普通乌鸦坐在树枝上")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通乌鸦坐在树枝上")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_UHD.jpg&rf=LaDigue_UHD.jpg "普通乌鸦坐在树枝上")
+
+
+---
+### 2023 10月 31：恶灵们只想玩个开心。
+#### 万圣节南瓜灯（© Bing Image Creator）
+![恶灵们只想玩个开心。](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_800x480.jpg&rf=LaDigue_800x480.jpg "恶灵们只想玩个开心。")
+万圣节来了！当你今晚外出时，很有可能会看到一个发光的南瓜，它的名字是“jack-o'-lantern”（南瓜灯）！这个名字源于一则爱尔兰民间传说，故事的主人公是一个名叫吝啬鬼杰克的骗子，他会提着一个挖空了的芜菁做成的灯笼四处游荡。另外，南瓜雕刻也起源于爱尔兰。最初，这种雕刻可怕的面孔和复杂图案的万圣节活动是用芜菁和马铃薯完成的。当爱尔兰人移民到北美时，他们发现南瓜产量很大，而且比其他蔬菜更易于雕刻，于是就改用了南瓜。
+
+万圣节南瓜灯起源于一则爱尔兰传说，故事的主人公名叫“吝啬鬼杰克”。
+
+[下载480](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_800x480.jpg&rf=LaDigue_800x480.jpg "万圣节南瓜灯")
+[下载720](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1024x768.jpg&rf=LaDigue_1024x768.jpg "万圣节南瓜灯")
+[下载1080](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "万圣节南瓜灯")
+[下载UHD](https://cn.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg&rf=LaDigue_UHD.jpg "万圣节南瓜灯")
