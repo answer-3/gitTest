@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_1024x768.jpg&rf=LaDigue_1024x768.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_UHD.jpg&rf=LaDigue_UHD.jpg "恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国")
+
+
+---
+### 2023 11月 3：发光的花朵
+#### 卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国（© Jim Patterson/Tandem Stills + Motion）
+![发光的花朵](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_800x480.jpg&rf=LaDigue_800x480.jpg "发光的花朵")
+今天是世界水母日！水母是一种没有没有心脏、骨骼和大脑的动物，大约有2000种不同的种类。世界各大海洋中都有水母的身影，它们形状各异，大小不一。图上展示的是太平洋海荨麻水母，它们栖息在加利福尼亚州和俄勒冈州的沿海水域，以鲜艳的金褐色“铃铛状”的外形和长触手而出名。1991年，颜色苍白且触手很短的海月水母还搭乘哥伦比亚号航天飞机进入太空，以便于科学家们研究它们独特的生物学特性。因为水母是包括海龟在内的许多海洋生物的主要食物来源，所以无论是哪个种类的水母，都在海洋食物链中起着至关重要的作用。遗憾的是，因气候变化、海洋污染、过度捕捞等问题，水母的种群受到破坏，而那些以水母为食的海洋生物的生存也随之受到了威胁。
+
+"Chrysaora"（金水母属）是海荨麻水母的属名，该词源自希腊神话中一位名叫“Chrysaora”（克律萨俄耳）的巨人，据说他是海神波塞冬和美杜莎的儿子。
+
+[下载480](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_800x480.jpg&rf=LaDigue_800x480.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
