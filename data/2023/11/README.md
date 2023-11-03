@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国")
+
+
+---
+### 2023 11月 4：为寒冷而生！
+#### 美洲野牛，黄石国家公园，怀俄明州，美国（© Gary Gray/Getty Images）
+![为寒冷而生！](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_800x480.jpg&rf=LaDigue_800x480.jpg "为寒冷而生！")
+临近冬季，气温持续下降，但美洲野牛却毫不在意。今天是美国的“国家野牛日”，这些体型魁梧的哺乳动物已经准备好迎雪季了。它们有蓬松的皮毛和重达2000磅的庞大身躯，这样的身体足以抵御严寒。黄石国家公园的冬季十分寒冷，而自史前时代以来，美国最大、最古老的野牛群就居住在这里。
+
+黄石国家公园的美洲野牛群最初只有25头。有证据表明，在1896年至1912年，美洲野牛群发生了两次“种群瓶颈”事件。在此期间，美洲野牛种群的数量在25至50头之间。
+
+[下载480](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_800x480.jpg&rf=LaDigue_800x480.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1024x768.jpg&rf=LaDigue_1024x768.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg&rf=LaDigue_UHD.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
