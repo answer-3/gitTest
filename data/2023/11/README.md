@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1024x768.jpg&rf=LaDigue_1024x768.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg&rf=LaDigue_UHD.jpg "美洲野牛，黄石国家公园，怀俄明州，美国")
+
+
+---
+### 2023 11月 5：宁静之地
+#### 石英岩地层，普拉亚德尔锡伦西奥，西班牙（© Jean-Philippe Delobelle/Minden Pictures）
+![宁静之地](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_800x480.jpg&rf=LaDigue_800x480.jpg "宁静之地")
+西班牙的阿斯图里亚斯地区以其自然美景、丰富的艺术遗产和美食而闻名。此外，该地区还有许多隐藏的“宝藏”，照片上的“寂静海滩”就是其中之一。寂静海滩是一个贝壳形状的小海湾，该地不仅环境清幽，还有一个天然的露天岩石剧场。海滩远离市区，没有商业气息和喧闹的人群。在这里，险峻的悬崖和金色的沙滩是散心冥想的理想之地，而附近的洞穴和水上活动则为渴望冒险的游客提供了刺激的体验。
+
+虽然阿斯图里亚斯以海鲜而闻名，但是当地最具代表性的美食却是阿斯图里亚斯炖豆。这道炖菜食材丰富，由白豆、猪肩肉、西班牙血肠和辣香肠烩制而成。
+
+[下载480](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_800x480.jpg&rf=LaDigue_800x480.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_1024x768.jpg&rf=LaDigue_1024x768.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg&rf=LaDigue_UHD.jpg "石英岩地层，普拉亚德尔锡伦西奥，西班牙")
