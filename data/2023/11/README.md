@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_1024x768.jpg&rf=LaDigue_1024x768.jpg "佩霍湖，百内国家公园，智利南部")
 [下载1080](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩霍湖，百内国家公园，智利南部")
 [下载UHD](https://cn.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg&rf=LaDigue_UHD.jpg "佩霍湖，百内国家公园，智利南部")
+
+
+---
+### 2023 11月 7：瞭望塔上，一睹奇景！
+#### Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛（© MNStudio/Shutterstock）
+![瞭望塔上，一睹奇景！](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_800x480.jpg&rf=LaDigue_800x480.jpg "瞭望塔上，一睹奇景！")
+Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺，是现代建筑魅力和创意结合的典范。站在瞭望塔上，你可以一览Kirkilai喀斯特湖的美景。Kirkilai喀斯特湖是由可溶性岩石（如石膏和石灰岩）溶解而成的自然奇观。随着时间的推移，这些岩石中的洞穴逐渐被溶蚀、坍塌，形成清澈透亮的洼地积水，最终造就了独特迷人的喀斯特风光。互相连通的湖泊与周围郁郁葱葱的植被相映成趣，为自然爱好者打造了一个绝美的天堂。
+
+比尔扎伊地区公园以天坑而闻名。目前，该公园已发现约9000个天坑，其中最著名的是深约20米的奶牛洞。
+
+[下载480](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_800x480.jpg&rf=LaDigue_800x480.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
+[下载720](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1024x768.jpg&rf=LaDigue_1024x768.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
+[下载1080](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
+[下载UHD](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&rf=LaDigue_UHD.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
