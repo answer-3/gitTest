@@ -96,3 +96,17 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1024x768.jpg&rf=LaDigue_1024x768.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
 [下载1080](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
 [下载UHD](https://cn.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg&rf=LaDigue_UHD.jpg "Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛")
+
+
+---
+### 2023 11月 8：冬日里的壮丽美景
+#### 黄山的日落，安徽省，中国（© Nantapon Pattamakijsakul/Getty Images）
+![冬日里的壮丽美景](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_800x480.jpg&rf=LaDigue_800x480.jpg "冬日里的壮丽美景")
+立冬是中国二十四节气中的第十九个节气。 这也是冬天的开始。在南方，初冬时节一般都不是很冷。随着时间的推移，冬至后冷空气频繁南下，气温逐渐下降。入冬后，北方大部分地区将出现雨雪降温天气。华北部分地区此时常下初雪。
+
+自唐代至清末，有关黄山的诗词有2万多首，并有一个画派因此而得名。
+
+[下载480](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_800x480.jpg&rf=LaDigue_800x480.jpg "黄山的日落，安徽省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄山的日落，安徽省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山的日落，安徽省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg&rf=LaDigue_UHD.jpg "黄山的日落，安徽省，中国")
