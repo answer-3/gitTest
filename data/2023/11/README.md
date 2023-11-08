@@ -101,12 +101,26 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 ---
 ### 2023 11月 8：冬日里的壮丽美景
 #### 黄山的日落，安徽省，中国（© Nantapon Pattamakijsakul/Getty Images）
-![冬日里的壮丽美景](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_800x480.jpg&rf=LaDigue_800x480.jpg "冬日里的壮丽美景")
+![冬日里的壮丽美景](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_800x480.jpg&rf=LaDigue_800x480.jpg "冬日里的壮丽美景")
 立冬是中国二十四节气中的第十九个节气。 这也是冬天的开始。在南方，初冬时节一般都不是很冷。随着时间的推移，冬至后冷空气频繁南下，气温逐渐下降。入冬后，北方大部分地区将出现雨雪降温天气。华北部分地区此时常下初雪。
 
 自唐代至清末，有关黄山的诗词有2万多首，并有一个画派因此而得名。
 
-[下载480](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_800x480.jpg&rf=LaDigue_800x480.jpg "黄山的日落，安徽省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄山的日落，安徽省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山的日落，安徽省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg&rf=LaDigue_UHD.jpg "黄山的日落，安徽省，中国")
+[下载480](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_800x480.jpg&rf=LaDigue_800x480.jpg "黄山的日落，安徽省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄山的日落，安徽省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山的日落，安徽省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LiDong2023_ZH-CN7689731997_UHD.jpg&rf=LaDigue_UHD.jpg "黄山的日落，安徽省，中国")
+
+
+---
+### 2023 11月 9：秋天的影子
+#### 秋天的白桦树，德拉门，挪威（© Baac3nes/Getty Images）
+![秋天的影子](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的影子")
+挪威有许多美丽的自然景观，白桦林就是其中之一。挪威的德拉门市坐落在峡湾之中，被“银色森林”环绕，是户外运动爱好者的天堂。白桦树在高海拔地区生长茂盛，是山区一道独特的风景线。夏去秋来，白桦树的叶子变成了金黄色和深红色，与细长的树干和洁白的树皮形成了鲜明的对比。这种季节变化令人叹为观止，所以白桦树也象征着希望和新生。白桦树不仅具有观赏价值，还为野生动物提供了栖息地和食物，也可以用作柴火和建筑材料。
+
+白桦树雌雄同株，也就是说每棵白桦树都有雄花和雌花。
+
+[下载480](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的白桦树，德拉门，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋天的白桦树，德拉门，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天的白桦树，德拉门，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg&rf=LaDigue_UHD.jpg "秋天的白桦树，德拉门，挪威")
