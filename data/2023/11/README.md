@@ -124,3 +124,17 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋天的白桦树，德拉门，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天的白桦树，德拉门，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg&rf=LaDigue_UHD.jpg "秋天的白桦树，德拉门，挪威")
+
+
+---
+### 2023 11月 10：还不错的荒地
+#### 恶地国家公园，南达科他州，美国（© Grant Ordelheide/Tandem Stills + Motion）
+![还不错的荒地](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_800x480.jpg&rf=LaDigue_800x480.jpg "还不错的荒地")
+这张密集分层的图像是不是让你产生屏幕坏掉的错觉？这其实是南达科他州恶地国家公园里迷人的化石层，五彩斑斓的岩石层下隐藏着这片土地的历史，保存着古代马、骆驼、老虎和犀牛等动物的遗骸。这片以崎岖石阵和草原为装饰的不毛之地，主要是由沉积和侵蚀这两种相反的自然力量共同雕琢而成。红衬衫台，海拔3340英尺，是恶地国家公园内的最高点。该公园占地379平方英里，于1978年11月10日被指定为国家公园。如果你还想多方面地了解恶地国家公园，可以参观公园内的博物馆藏品，那里有超过360，000件物品等待你去探索！
+
+恶地国家公园因其独特的地貌和丰富的化石遗迹而闻名于世。
+
+[下载480](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_800x480.jpg&rf=LaDigue_800x480.jpg "恶地国家公园，南达科他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1024x768.jpg&rf=LaDigue_1024x768.jpg "恶地国家公园，南达科他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶地国家公园，南达科他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg&rf=LaDigue_UHD.jpg "恶地国家公园，南达科他州，美国")
