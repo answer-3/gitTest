@@ -138,3 +138,17 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1024x768.jpg&rf=LaDigue_1024x768.jpg "恶地国家公园，南达科他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶地国家公园，南达科他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg&rf=LaDigue_UHD.jpg "恶地国家公园，南达科他州，美国")
+
+
+---
+### 2023 11月 11：如诗如画的地方
+#### 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利（© Achim Thomae/Getty Images）
+![如诗如画的地方](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_800x480.jpg&rf=LaDigue_800x480.jpg "如诗如画的地方")
+南蒂罗尔是意大利的一个自治省，该地区以其高品质的生活而闻名。意大利语、德语和拉丁语都是这里的官方语言，每种语言都有自己的传统和文化。此外，这里既有诸如梅拉诺、博尔扎诺以及布雷萨诺内等美丽的城市，也有科尔蒂纳丹佩佐、加迪纳山谷和阿尔塔巴迪亚之类的著名滑雪胜地，还有世界闻名的酒庄。而且不少酒庄还伴有风景如画的湖泊。说起湖泊，就不得不提到卡雷扎湖，该湖泊也被称为彩虹湖或“多洛米蒂的童话湖”，是多洛米蒂最美丽的高山湖泊之一。
+
+德语和意大利语都是南蒂罗尔的官方语言。在该省的一些东部城市，拉丁语是第三官方语言。
+
+[下载480](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_800x480.jpg&rf=LaDigue_800x480.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1024x768.jpg&rf=LaDigue_1024x768.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg&rf=LaDigue_UHD.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
