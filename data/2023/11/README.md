@@ -152,3 +152,17 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1024x768.jpg&rf=LaDigue_1024x768.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg&rf=LaDigue_UHD.jpg "富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利")
+
+
+---
+### 2023 11月 12：我所有的小鸭子们
+#### 秋天池塘里的两只绿头鸭（© sun ok/Shutterstock）
+![我所有的小鸭子们](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_800x480.jpg&rf=LaDigue_800x480.jpg "我所有的小鸭子们")
+绿头鸭，又名野鸭，是世界上分布最广的鸭科动物之一。你知道在20世纪以前，绿头鸭在德国曾被称为三月鸭吗？绿头鸭有着醒目的羽毛，很容易辨认。雄性绿头鸭，被称为公鸭，以其彩色的翅膀和绿色的头部而闻名，而母鸭的颜色则是不起眼的棕色。绿头鸭以植物、昆虫和小鱼为食，并且具有很强的适应性。无论是在城市公园，还是湖泊和河流中，你都能见到它们的身影。而正是这种适应性以及色彩斑斓的羽毛，使得绿头鸭成为一种令人瞩目的鸟类。
+
+你知道绿头鸭在20世纪之前被称为三月鸭吗？
+
+[下载480](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_800x480.jpg&rf=LaDigue_800x480.jpg "秋天池塘里的两只绿头鸭")
+[下载720](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋天池塘里的两只绿头鸭")
+[下载1080](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天池塘里的两只绿头鸭")
+[下载UHD](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg&rf=LaDigue_UHD.jpg "秋天池塘里的两只绿头鸭")
