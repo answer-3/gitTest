@@ -166,3 +166,17 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋天池塘里的两只绿头鸭")
 [下载1080](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天池塘里的两只绿头鸭")
 [下载UHD](https://cn.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg&rf=LaDigue_UHD.jpg "秋天池塘里的两只绿头鸭")
+
+
+---
+### 2023 11月 13：从树上到餐桌之上
+#### 特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙（© cinoby/Getty Images）
+![从树上到餐桌之上](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_800x480.jpg&rf=LaDigue_800x480.jpg "从树上到餐桌之上")
+巴利阿里群岛之一的西班牙马略卡岛种植橄榄的历史可以追溯到2000多年前。腓尼基人和希腊人是这里的早期定居者，他们将第一批橄榄树引进这个岛屿，北海岸的特拉蒙塔纳山脉是这些橄榄树的故乡。在伊斯兰时代，由于橄榄园的不断扩大，橄榄油开始在马略卡岛美食和烹饪传统中担任重要角色。
+
+波兰作曲家兼钢琴家弗雷德里克·肖邦  与法国作家阿曼丁·露西尔·奥罗尔·杜潘 （笔名：乔治·桑）于1838-39年冬天居住在巴尔德莫萨。在马略卡岛的时光对肖邦来说是一个多产的时期。
+
+[下载480](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_800x480.jpg&rf=LaDigue_800x480.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_1024x768.jpg&rf=LaDigue_1024x768.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_UHD.jpg&rf=LaDigue_UHD.jpg "特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙")
