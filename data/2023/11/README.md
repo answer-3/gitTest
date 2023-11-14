@@ -194,3 +194,17 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_1024x768.jpg&rf=LaDigue_1024x768.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
 [下载1080](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg&rf=LaDigue_UHD.jpg "特卡波湖沿岸的鲁冰花，南岛，新西兰")
+
+
+---
+### 2023 11月 15：想象一下此处的回声
+#### 萨雷克国家公园的拉帕谷，瑞典（© Hans Strand/Getty Images）
+![想象一下此处的回声](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_800x480.jpg&rf=LaDigue_800x480.jpg "想象一下此处的回声")
+拉帕谷坐落在瑞典萨雷克国家公园内，这里既有河流穿过郁郁葱葱的草地，也有高耸的山峰直插云霄。在瑞典北部的这个国家公园里，麋鹿可以自由地驰骋，金雕在空中翱翔，踪迹难寻的北极狐在雪地上留下了痕迹。瑞典拥有众多的国家公园，从阿比斯库国家公园的美景到萨勒克国家公园的陡峭山峰，每个国家公园都是一个奇迹。萨米人自古以来就以这片高山地区以及挪威、芬兰和俄罗斯的部分地区为家，他们的文化遗产与荒野交织在一起。他们以狩猎、放牧和打渔为生，不过最出名的可能还是他们放牧驯鹿的习俗。
+
+拉帕河三角洲被认为是欧洲最著名的景观之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_800x480.jpg&rf=LaDigue_800x480.jpg "萨雷克国家公园的拉帕谷，瑞典")
+[下载720](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨雷克国家公园的拉帕谷，瑞典")
+[下载1080](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨雷克国家公园的拉帕谷，瑞典")
+[下载UHD](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_UHD.jpg&rf=LaDigue_UHD.jpg "萨雷克国家公园的拉帕谷，瑞典")
