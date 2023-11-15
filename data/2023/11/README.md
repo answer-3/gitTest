@@ -208,3 +208,17 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨雷克国家公园的拉帕谷，瑞典")
 [下载1080](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨雷克国家公园的拉帕谷，瑞典")
 [下载UHD](https://cn.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_UHD.jpg&rf=LaDigue_UHD.jpg "萨雷克国家公园的拉帕谷，瑞典")
+
+
+---
+### 2023 11月 16：西方哲学的发源地
+#### 雅典和卫城，希腊（© Mlenny/Getty Images）
+![西方哲学的发源地](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_800x480.jpg&rf=LaDigue_800x480.jpg "西方哲学的发源地")
+值此世界哲学日之际，我们一起来了解一下希腊首都雅典。这座城市既是欧洲哲学的发源地，也是西方文明的摇篮，其标志性建筑雅典卫城和帕特农神庙让我们想起苏格拉底、柏拉图和亚里士多德的聪明才智。古希腊哲学注重批判性思维和质疑精神，希腊三贤掀起的理性革命，对当今社会仍有深远的影响。联合国教科文组织也通过庆祝世界哲学日，来彰显哲学对人类思想、文化和个人的深远影响。哲学是一门智慧学，今天就花点时间去领略哲学的奥秘吧！
+
+每年11月的第三个星期四是世界哲学日。
+
+[下载480](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_800x480.jpg&rf=LaDigue_800x480.jpg "雅典和卫城，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_1024x768.jpg&rf=LaDigue_1024x768.jpg "雅典和卫城，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雅典和卫城，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg&rf=LaDigue_UHD.jpg "雅典和卫城，希腊")
