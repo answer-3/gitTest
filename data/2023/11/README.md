@@ -236,3 +236,17 @@ Kirkilai瞭望塔坐落于立陶宛比尔扎伊地区公园内，高约115英尺
 [下载720](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_1024x768.jpg&rf=LaDigue_1024x768.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_UHD.jpg&rf=LaDigue_UHD.jpg "铜瀑布州立公园的巴德河，威斯康星州，美国")
+
+
+---
+### 2023 11月 18：寒地温情
+#### 北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大（© Thorsten Milse/Getty Images）
+![寒地温情](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_800x480.jpg&rf=LaDigue_800x480.jpg "寒地温情")
+加拿大曼尼托巴省的丘吉尔镇位于哈得逊湾沿岸，虽然地处偏远，但这里的四季美景值得你跋涉前往。从白鲸到北极光，从沉船到海堤墙绘，这里的惊喜无穷无尽。此外，这里还是观赏北极熊的最佳地点，因此被誉为“世界北极熊之都”。从10月到11月，这些白色巨兽会迁徙到这里，等待海湾结冰，然后出海捕食海豹。不过不用怕，游客们可以乘坐定制车辆安全地观赏北极熊。这里还设有所谓的“北极熊监狱”，以管理熊与人之间的互动。那么，你准备好开启一场让你不寒而栗但又充满乐趣的野外探险了吗？
+
+北极熊是现存最大的熊类和陆地食肉动物。
+
+[下载480](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_800x480.jpg&rf=LaDigue_800x480.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_1024x768.jpg&rf=LaDigue_1024x768.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大")
