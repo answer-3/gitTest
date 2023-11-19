@@ -264,3 +264,17 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_1024x768.jpg&rf=LaDigue_1024x768.jpg "Alam-Pedja自然保护区，爱沙尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Alam-Pedja自然保护区，爱沙尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_UHD.jpg&rf=LaDigue_UHD.jpg "Alam-Pedja自然保护区，爱沙尼亚")
+
+
+---
+### 2023 11月 20：童话城堡
+#### 科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲（© Billy Stock/robertharding/Alamy Stock Photo）
+![童话城堡](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_800x480.jpg&rf=LaDigue_800x480.jpg "童话城堡")
+科奇城堡坐落在威尔士的一座树木繁茂的山丘上，该城堡的名字在威尔士语中的意思是“红色城堡”，著名建筑师威廉·伯吉斯是它的设计师。这座城堡的内部装饰颇为奢华，犹如一首由繁复的雕刻工艺、鲜艳的彩色玻璃和奢华的家具交织而成的华丽交响乐。城堡的独特外形和维多利亚时期的内部设计充分展示了设计师的才华。其设计融合了中世纪的底蕴及19世纪的创新，被誉为英国哥特式复兴的典范。城堡的四周树林密布，从远处望去，宛若童话世界。这片山毛榉森林拥有丰富的植被，包括蝴蝶兰、燕窝兰和多年生山靛等稀有植物，具有特殊的科考价值，因而被保护起来了。
+
+由于特殊的建筑风格和历史价值，科奇城堡被英国列为一级保护建筑。
+
+[下载480](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_800x480.jpg&rf=LaDigue_800x480.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
+[下载720](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_1024x768.jpg&rf=LaDigue_1024x768.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
+[下载1080](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
+[下载UHD](https://cn.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_UHD.jpg&rf=LaDigue_UHD.jpg "科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲")
