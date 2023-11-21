@@ -292,3 +292,17 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1024x768.jpg&rf=LaDigue_1024x768.jpg "英国诺福克海滩上的灰海豹幼崽")
 [下载1080](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英国诺福克海滩上的灰海豹幼崽")
 [下载UHD](https://cn.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg&rf=LaDigue_UHD.jpg "英国诺福克海滩上的灰海豹幼崽")
+
+
+---
+### 2023 11月 22：人少景美的静谧之地
+#### 大提顿国家公园，怀俄明州，美国（© Westend61/Getty Images）
+![人少景美的静谧之地](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_800x480.jpg&rf=LaDigue_800x480.jpg "人少景美的静谧之地")
+今天的图片让我们一睹大提顿国家公园的美景！该公园建于1929年，位于美国人口最少的怀俄明州，以壮丽连绵的雪山山峰而闻名。园区内高耸入云的巍峨雪山，与蜿蜒的蛇河、纯净的湖水以及丰富的野生动物共同构成了一幅美丽的画卷。去这里的时候，要记得带上你的双筒望远镜！如果是夏天，一定要观察叉角羚，它们可是长途跋涉了约150英里才来到这里。此外，麋鹿和野牛也是这里的夏季访客。这些动物的迁徙不仅有助于植物种子的传播，还为其他捕食者提供了食物，这对大提顿国家公园的生态系统起着至关重要的作用。
+
+大提顿山脉是落基山脉中最年轻的山脉。
+
+[下载480](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_800x480.jpg&rf=LaDigue_800x480.jpg "大提顿国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1024x768.jpg&rf=LaDigue_1024x768.jpg "大提顿国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大提顿国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&rf=LaDigue_UHD.jpg "大提顿国家公园，怀俄明州，美国")
