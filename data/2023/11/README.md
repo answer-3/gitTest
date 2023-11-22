@@ -306,3 +306,17 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1024x768.jpg&rf=LaDigue_1024x768.jpg "大提顿国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大提顿国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg&rf=LaDigue_UHD.jpg "大提顿国家公园，怀俄明州，美国")
+
+
+---
+### 2023 11月 23：从深海到天空
+#### 泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙（© Javier Martínez Morán/Alamy）
+![从深海到天空](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_800x480.jpg&rf=LaDigue_800x480.jpg "从深海到天空")
+雄伟的泰德峰海拔3718米，耸立在加那利群岛上。这座火山从海底隆起的高度达到了惊人的7500米，因此它既是西班牙最高的山峰，也是世界上海拔第三高的火山。
+
+泰德火山拥有世界上最大的锥形阴影。
+
+[下载480](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_800x480.jpg&rf=LaDigue_800x480.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1024x768.jpg&rf=LaDigue_1024x768.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_UHD.jpg&rf=LaDigue_UHD.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
