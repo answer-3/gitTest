@@ -320,3 +320,17 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1024x768.jpg&rf=LaDigue_1024x768.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_UHD.jpg&rf=LaDigue_UHD.jpg "泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙")
+
+
+---
+### 2023 11月 24：不一样的热带雨林
+#### 奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国（© James Randklev/Getty Images）
+![不一样的热带雨林](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_800x480.jpg&rf=LaDigue_800x480.jpg "不一样的热带雨林")
+想象一下，你可以花一天时间在森林里徒步，沉浸在郁郁葱葱的绿色空间中，而不是疯狂地检查节假日购物清单上的一件件商品。欢迎来到“绿色星期五”！它是“黑色星期五”的环保替代品，创立于2015年。在“绿色星期五”，我们鼓励人们在购物时做出更加理智的选择，拥抱大自然，拒绝冲动性消费。因此，请在这个绿色星期五让自己暂停片刻，投入大自然的怀抱吧！
+
+霍河雨林被联合国教科文组织评为世界遗产和生物圈保护区。
+
+[下载480](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_800x480.jpg&rf=LaDigue_800x480.jpg "奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国")
