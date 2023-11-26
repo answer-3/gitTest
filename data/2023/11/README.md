@@ -362,3 +362,17 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_1024x768.jpg&rf=LaDigue_1024x768.jpg "布拉德盖特公园的小鹿，莱斯特郡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布拉德盖特公园的小鹿，莱斯特郡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_UHD.jpg&rf=LaDigue_UHD.jpg "布拉德盖特公园的小鹿，莱斯特郡，英国")
+
+
+---
+### 2023 11月 27：水上明镜
+#### 内格罗河，亚马逊河流域，巴西（© Timothy Allen/Getty Images）
+![水上明镜](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_800x480.jpg&rf=LaDigue_800x480.jpg "水上明镜")
+内格罗河起源于哥伦比亚，是亚马逊河的支流之一。在西班牙语中， 内格罗河（Río Negro）的意思是“黑色的河”，因为从远处看它，河水是黑色的。但走进观看，其河面平静如镜，就如图中所展示的那样，可以倒映出蔚蓝的天空以及彩虹的颜色。内格罗河的河水之所以是黑色的，是因为附近沼泽中渗出了有机物分解时产生的高浓度腐殖酸。作为亚马逊河北岸最大的支流之一，内格罗河在复杂的亚马逊流域生态系统中发挥着至关重要的作用。它也是许多动植物的家园，比如极度濒危的黑白柽柳猴、巴西巨獭以及近700种鱼类。
+
+内格罗河的物种非常丰富，据估计，该河流域共有800至900种鱼类，其中约700种鱼类已被记录归类，还有100多种当地特有鱼类以及一些未被描述的新品种没有被记录。
+
+[下载480](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_800x480.jpg&rf=LaDigue_800x480.jpg "内格罗河，亚马逊河流域，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1024x768.jpg&rf=LaDigue_1024x768.jpg "内格罗河，亚马逊河流域，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "内格罗河，亚马逊河流域，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&rf=LaDigue_UHD.jpg "内格罗河，亚马逊河流域，巴西")
