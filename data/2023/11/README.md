@@ -376,3 +376,17 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1024x768.jpg&rf=LaDigue_1024x768.jpg "内格罗河，亚马逊河流域，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "内格罗河，亚马逊河流域，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg&rf=LaDigue_UHD.jpg "内格罗河，亚马逊河流域，巴西")
+
+
+---
+### 2023 11月 28：冬日私语
+#### 阿西尼博因山省级公园，加拿大（© matt macpherson/500px/Getty Images）
+![冬日私语](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_800x480.jpg&rf=LaDigue_800x480.jpg "冬日私语")
+阿西尼博因山坐落在不列颠哥伦比亚省的原始荒野中，与周围的省级公园形成了一个迷人的“高山仙境”。图中这座雄伟的山峰又被称作“落基山脉的马特洪峰”，其海拔高达3618米，以其粗犷雄伟的气势而备受瞩目。“阿西尼博因”这个名字是为了向曾经居住在这里的原住民阿西尼博因人致敬。据悉，阿西尼博因山省级公园是受保护区域，其占地面积超3.9万公顷，为探险者们提供了迷人壮丽景观。在这片荒野上，你还能邂逅不少野生动物，比如灰熊、美洲狮、山羊等。此外，网状般的小径遍布园区，也为游客们提供了便利。沿着小径行走，你可以在公园里徒步旅行、滑雪、露营。在大山的庇护下，这座公园体现了加拿大落基山脉中心地带的自然原始之美的精髓。
+
+1990年，阿西尼博因山省级公园被联合国教科文组织列入加拿大落基山公园群世界遗产名录中。
+
+[下载480](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_800x480.jpg&rf=LaDigue_800x480.jpg "阿西尼博因山省级公园，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿西尼博因山省级公园，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿西尼博因山省级公园，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&rf=LaDigue_UHD.jpg "阿西尼博因山省级公园，加拿大")
