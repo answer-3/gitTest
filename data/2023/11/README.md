@@ -390,3 +390,17 @@ Alam-Pedja自然保护区的大部分森林都很潮湿。该地区的冲积阔�
 [下载720](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿西尼博因山省级公园，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿西尼博因山省级公园，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg&rf=LaDigue_UHD.jpg "阿西尼博因山省级公园，加拿大")
+
+
+---
+### 2023 11月 29：童话中的城堡
+#### 什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国（© Hannes Wendt/Shutterstock）
+![童话中的城堡](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_800x480.jpg&rf=LaDigue_800x480.jpg "童话中的城堡")
+与大多数的德国城堡一样，什未林城堡就像是从童话故事中走出来的。它最早的雏形可追溯至941年。研究表明，它是由西斯拉夫奥博特人部落建造的。这个部落生活在现在的梅克伦堡-前波美拉尼亚州和波兰，尤其是波罗的海的南部海岸。从12世纪起，该部落就被基督教化，并被德国和丹麦统治者进行政治整合。
+
+传说，什未林城堡中有一只名叫小彼得的隐形小精灵，它的身高只有几英尺，经常穿着17世纪的衣服，有点像个骑士，时常在城堡的大厅里游荡。
+
+[下载480](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_800x480.jpg&rf=LaDigue_800x480.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_1024x768.jpg&rf=LaDigue_1024x768.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_UHD.jpg&rf=LaDigue_UHD.jpg "什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国")
