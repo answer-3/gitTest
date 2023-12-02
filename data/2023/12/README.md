@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓜廖尔堡，中央邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜廖尔堡，中央邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_UHD.jpg&rf=LaDigue_UHD.jpg "瓜廖尔堡，中央邦，印度")
+
+
+---
+### 2023 12月 3：时光雕琢
+#### 砂岩岩层，红悬崖国家保护区，亚利桑那州，美国（© Yva Momatiuk and John Eastcott/Minden Pictures）
+![时光雕琢](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_800x480.jpg&rf=LaDigue_800x480.jpg "时光雕琢")
+位于亚利桑那州的红悬崖国家保护区有层层叠叠的砂岩岩层、高耸的石柱和超现实的狭缝型峡谷。该保护区建于2000年，因该地岩层的主色调为鲜红色而得名“红悬崖”。一旦你获得了参观这一独特的户外景点的许可证，请一定要去参观波浪谷：这是一个令人惊叹的地质奇观，流动状的岩石层就像凝固的红色液体。该保护区的奇观还包括眼镜蛇拱门和由砂岩结构组成的白口袋岩层。白口袋的岩层不仅有交叉的层理和漩涡状图案，还有白色、红色和橙色等多种颜色。
+
+红悬崖保护区是加利福尼亚秃鹫的重新引入地。沿着保护区的土路有一个讲解观赏区，在这里可能会看到这些巨大的秃鹫栖息在岩壁上。
+
+[下载480](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_800x480.jpg&rf=LaDigue_800x480.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_1024x768.jpg&rf=LaDigue_1024x768.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_UHD.jpg&rf=LaDigue_UHD.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
