@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_1024x768.jpg&rf=LaDigue_1024x768.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_UHD.jpg&rf=LaDigue_UHD.jpg "砂岩岩层，红悬崖国家保护区，亚利桑那州，美国")
+
+
+---
+### 2023 12月 4：机敏可爱的捕猎高手
+#### 一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚（© Scott Davis/Tandem Stills + Motion）
+![机敏可爱的捕猎高手](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_800x480.jpg&rf=LaDigue_800x480.jpg "机敏可爱的捕猎高手")
+在马赛马拉国家保护区的心脏地带，非洲大草原一望无际，猎豹以每小时80英里的速度成为陆地上奔跑速度最快的动物。猎豹皮毛光滑，体表遍布黑色斑点，它们在这片广阔的土地上茁壮成长，警惕地寻找猎物的踪迹。马赛马拉国家保护区是东非猎豹分布数量最多的地区之一，然而不幸的是，栖息地的丧失和人类的影响正威胁着它们的生存。因此，采取多种措施保护猎豹至关重要。今天既是国际猎豹日，也是野生动物保护日，让我们多多了解猎豹的生存困境，提高对野生动物的保护意识。在这一天，我们不仅要欣赏这些“野猫”的狂野和优雅，还要欣赏所有与人类共享世界的野生动物。
+
+猎豹在各种艺术作品中出镜率很高。
+
+[下载480](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_800x480.jpg&rf=LaDigue_800x480.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_UHD.jpg&rf=LaDigue_UHD.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
