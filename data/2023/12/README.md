@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_UHD.jpg&rf=LaDigue_UHD.jpg "一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚")
+
+
+---
+### 2023 12月 5：童话故事中的场景
+#### 天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国（© Harald Nachtmann/Getty Images）
+![童话故事中的场景](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_800x480.jpg&rf=LaDigue_800x480.jpg "童话故事中的场景")
+巴伐利亚阿尔卑斯山是德国南部一座雄伟的山脉，拥有两座城堡：新天鹅堡和旧天鹅堡。新天鹅堡是19世纪由巴伐利亚国王路德维希二世委托建造的罗曼式复兴宫殿，以童话般的建筑、塔楼和令人叹为观止的山景而闻名。越过山谷，远眺阿尔卑斯湖，是同样壮观的旧天鹅堡，由路德维希二世的父亲，巴伐利亚国王马克西米连二世建造。这两座城堡拥有奢华的内部装饰、丰富的艺术品和历史文物，每年都有数百万游客前往，一窥巴伐利亚的辉煌历史。
+
+现在的旧天鹅堡最早于1397年被提及，当时名为天鹅堡。直到19世纪，新天鹅堡和旧天鹅堡才互换了名称。
+
+[下载480](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_800x480.jpg&rf=LaDigue_800x480.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
+[下载720](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_1024x768.jpg&rf=LaDigue_1024x768.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_UHD.jpg&rf=LaDigue_UHD.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
