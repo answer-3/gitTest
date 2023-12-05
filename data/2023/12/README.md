@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_1024x768.jpg&rf=LaDigue_1024x768.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_UHD.jpg&rf=LaDigue_UHD.jpg "天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国")
+
+
+---
+### 2023 12月 6：穿过群山的蜿蜒小路
+#### 达尔达尼亚瀑布，博洛尼亚，意大利（© Alberto Ghizzi Panizza/Minden）
+![穿过群山的蜿蜒小路](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_800x480.jpg&rf=LaDigue_800x480.jpg "穿过群山的蜿蜒小路")
+在艾米利亚-罗马涅大区的众多奇观中，达尔达尼亚瀑布无疑是引人注目的。达尔达尼亚瀑布的名字来源于一条同名的溪流，该溪流在海拔250米的高差上形成了七个壮观的瀑布，其中最高的落差约为30米。该瀑布靠近圣母玛利亚圣殿，其壮丽的风景吸引了无数游客。流经数公里后，达尔达尼亚溪流汇入利奥河，随后流入帕纳罗河，而帕纳罗河又是更大的河流——波河的一条支流。由于水质纯净，达尔达尼亚溪流是许多鱼类的栖息地，如褐鳟鱼和蓝鳟鱼。
+
+博洛尼亚是意大利人口第七大城市，约有40万居民。
+
+[下载480](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_800x480.jpg&rf=LaDigue_800x480.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_1024x768.jpg&rf=LaDigue_1024x768.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_UHD.jpg&rf=LaDigue_UHD.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
