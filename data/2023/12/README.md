@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_1024x768.jpg&rf=LaDigue_1024x768.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_UHD.jpg&rf=LaDigue_UHD.jpg "达尔达尼亚瀑布，博洛尼亚，意大利")
+
+
+---
+### 2023 12月 7：欧洲大峡谷
+#### 韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国（© Hemis/Alamy）
+![欧洲大峡谷](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲大峡谷")
+韦尔东峡谷是位于法国东南部普罗旺斯-阿尔卑斯-蓝色海岸大区的一条河流峡谷。峡谷绵延近百里，是欧洲最大的峡谷，其悬崖峭壁雄伟壮观，高度可达750米。普罗旺斯阿尔卑斯大区数百万年的侵蚀形成了这一壮观的自然景观，而韦尔东河水的翡翠色正是其名称的由来。
+
+直到1906年，韦尔东峡谷才在法国以外扬名。
+
+[下载480](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
+[下载720](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_1024x768.jpg&rf=LaDigue_1024x768.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
