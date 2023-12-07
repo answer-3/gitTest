@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_1024x768.jpg&rf=LaDigue_1024x768.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国")
+
+
+---
+### 2023 12月 8：不是那个泽西海岸!
+#### 拉罗克港，圣克莱门特，泽西岛（© Reinhard Schmid/Huber/eStock Photo）
+![不是那个泽西海岸!](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_800x480.jpg&rf=LaDigue_800x480.jpg "不是那个泽西海岸!")
+泽西岛位于法国诺曼底海岸附近，是一个有着北欧名字的英属岛屿。拉罗克港位于岛的东南岸，这里有洁白的沙滩和延伸至水中的高架人行道。海岸线上的花岗岩和深成岩起源于4.2亿多年前，呈现出多样化的颜色和纹理。从港口可以看到圆圆的、矮胖的伊乔塔和较高一些的西摩塔，它们分别建于18世纪和19世纪，是海防建筑。这两座建筑距离海岸都有1800多英尺，如果你想步行到这两座建筑的所在地，不仅需要穿一双结实的鞋子，还只能选在一年中潮水退至最低点的时候。
+
+泽西岛一开始属于诺曼底公国，而在1066年诺曼底公爵成了英格兰国王后，泽西岛也就成了英国国王的世袭领地。
+
+[下载480](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_800x480.jpg&rf=LaDigue_800x480.jpg "拉罗克港，圣克莱门特，泽西岛")
+[下载720](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1024x768.jpg&rf=LaDigue_1024x768.jpg "拉罗克港，圣克莱门特，泽西岛")
+[下载1080](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉罗克港，圣克莱门特，泽西岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg&rf=LaDigue_UHD.jpg "拉罗克港，圣克莱门特，泽西岛")
