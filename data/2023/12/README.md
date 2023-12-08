@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1024x768.jpg&rf=LaDigue_1024x768.jpg "拉罗克港，圣克莱门特，泽西岛")
 [下载1080](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉罗克港，圣克莱门特，泽西岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg&rf=LaDigue_UHD.jpg "拉罗克港，圣克莱门特，泽西岛")
+
+
+---
+### 2023 12月 9：出逃的美洲鸵
+#### 原驼，冰川国家公园，阿根廷（© Yva Momatiuk and John Eastcott/Minden Pictures）
+![出逃的美洲鸵](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_800x480.jpg&rf=LaDigue_800x480.jpg "出逃的美洲鸵")
+穿上登山鞋出门吧，因为今天是国家美洲驼日！12月9日是专门用来欣赏这些聪明且可驯化的动物的日子。您需要到安第斯山脉去看看它们那被称为原驼的野生表亲。据说，原驼起源于约4000万年前的北美中部平原。不过，它们逐渐迁移到了南美洲，在公元前4500年左右被驯化，并获得了美洲鸵的称号。
+
+莫雷诺冰川是洛斯格拉兹阿勒冰川国家公园中最容易到达的冰川。
+
+[下载480](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_800x480.jpg&rf=LaDigue_800x480.jpg "原驼，冰川国家公园，阿根廷")
+[下载720](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_1024x768.jpg&rf=LaDigue_1024x768.jpg "原驼，冰川国家公园，阿根廷")
+[下载1080](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "原驼，冰川国家公园，阿根廷")
+[下载UHD](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg&rf=LaDigue_UHD.jpg "原驼，冰川国家公园，阿根廷")
