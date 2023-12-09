@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_1024x768.jpg&rf=LaDigue_1024x768.jpg "原驼，冰川国家公园，阿根廷")
 [下载1080](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "原驼，冰川国家公园，阿根廷")
 [下载UHD](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg&rf=LaDigue_UHD.jpg "原驼，冰川国家公园，阿根廷")
+
+
+---
+### 2023 12月 10：一个让人沉思的地方
+#### 林帕达恩湖，斯诺登尼亚国家公园， 威尔士（© Joe Daniel Price/Getty Images）
+![一个让人沉思的地方](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_800x480.jpg&rf=LaDigue_800x480.jpg "一个让人沉思的地方")
+从波光粼粼的湖水、崎岖的山道、倾泻而下的瀑布到废弃的城堡，斯诺登尼亚国家公园永远令人惊叹。图中的林帕达恩湖位于迷人的兰贝里斯村附近。这个冰川湖长约2英里，深95英尺，是威尔士最大的天然湖泊之一。除此之外，这个冰碛堰塞湖被认定为具有特殊科学价值的地点以及沐浴水域。无论您是皮划艇爱好者，还是桨板运动爱好者，或者只是想简单地沐浴玩水，这里都能满足您的需求。该湖沿岸遍布着板岩采石场的遗迹，让人可以一窥该地区的工业历史。到了那里，别忘了打卡附近的多巴达恩城堡，这座历史悠久的城堡将为您的旅程增添了几分古色古香。
+
+斯诺登尼亚国家公园拥有2处令人印象深刻的联合国教科文组织认定的世界遗产。
+
+[下载480](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_800x480.jpg&rf=LaDigue_800x480.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1024x768.jpg&rf=LaDigue_1024x768.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_UHD.jpg&rf=LaDigue_UHD.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
