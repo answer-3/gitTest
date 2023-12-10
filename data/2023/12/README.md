@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1024x768.jpg&rf=LaDigue_1024x768.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_UHD.jpg&rf=LaDigue_UHD.jpg "林帕达恩湖，斯诺登尼亚国家公园， 威尔士")
+
+
+---
+### 2023 12月 11：想看看黄山的全貌吗？
+#### 黄山的冬天，中国（© Hung Chung Chih/Shutterstock）
+![想看看黄山的全貌吗？](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_800x480.jpg&rf=LaDigue_800x480.jpg "想看看黄山的全貌吗？")
+12月11日是国际山岳日，这个特殊的节日是联合国大会在2003年设立的。今年节日的主题是“恢复山区生态系统”，与“联合国生态系统恢复十年”计划相呼应。
+
+黄山山脉有72座山峰，包括36座大峰和36座小峰。
+
+[下载480](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_800x480.jpg&rf=LaDigue_800x480.jpg "黄山的冬天，中国")
+[下载720](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄山的冬天，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山的冬天，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg&rf=LaDigue_UHD.jpg "黄山的冬天，中国")
