@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_1024x768.jpg&rf=LaDigue_1024x768.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_UHD.jpg&rf=LaDigue_UHD.jpg "传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威")
+
+
+---
+### 2023 12月 14：融为一体的猫头鹰
+#### 北方猫头鹰，萨斯喀彻温省，加拿大（© Nick Saunders/Minden Pictures）
+![融为一体的猫头鹰](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_800x480.jpg&rf=LaDigue_800x480.jpg "融为一体的猫头鹰")
+在观鸟界，“圣诞节数鸟”活动是一年中最有趣的活动。这项一年一度的鸟类普查活动始于1900年，第一次活动只有27人参加，这些人分布在美国和加拿大的25个地方。自那之后，圣诞节数鸟活动的规模急剧扩大，目前在西半球已有2360多个地方参与其中。
+
+北方猫头鹰栖息在在北美州北部和古北区茂密的针叶林，以及阿尔卑斯山和落基山脉等山脉中。该物种通常不会迁徙，但在某些秋季，它们会大量迁徙到更南边的地方。
+
+[下载480](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_800x480.jpg&rf=LaDigue_800x480.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1024x768.jpg&rf=LaDigue_1024x768.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_UHD.jpg&rf=LaDigue_UHD.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
