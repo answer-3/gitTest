@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1024x768.jpg&rf=LaDigue_1024x768.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_UHD.jpg&rf=LaDigue_UHD.jpg "北方猫头鹰，萨斯喀彻温省，加拿大")
+
+
+---
+### 2023 12月 15：圣诞老人的乐园
+#### 罗瓦涅米的圣诞老人公园，拉普兰德，芬兰（© lukutin77/Getty Images）
+![圣诞老人的乐园](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞老人的乐园")
+在拉普兰德的皑皑白雪中，罗瓦涅米是一个迷人的冬日仙境，据说是官方认可的圣诞老人的故乡。这座位于芬兰北部的充满活力的城市不仅是通往北极圈的门户，也是现实与民间传说完美融合的目的地。罗瓦涅米既是拉普兰德的首府，也是芬兰最受欢迎的旅游目的地之一。游客们可以在圣诞公园观看美丽的北极光，探索北极荒野，以及像今天的照片中展示的那样，体验圣诞节的魔力。公园里有各种各样的活动，你可以去精灵工作坊，与技艺精湛的工匠一起制作珍宝，也可以乘坐有趣的火车，穿越公园，欣赏美景。
+
+在圣诞老人公园，游客们可以在圣诞老人的办公室里见到他，并与他免费合影留念。此外，游客们还可以参观姜饼夫人的姜饼面包店，在冰雪公主的冰雪王国“冰雪画廊”里见到她的冰雕作品，以及在圣诞老人邮局寄出明信片。
+
+[下载480](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_800x480.jpg&rf=LaDigue_800x480.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
+[下载720](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_UHD.jpg&rf=LaDigue_UHD.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
