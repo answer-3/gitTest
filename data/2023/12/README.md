@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_UHD.jpg&rf=LaDigue_UHD.jpg "罗瓦涅米的圣诞老人公园，拉普兰德，芬兰")
+
+
+---
+### 2023 12月 16：令人愉悦的忧郁蓝
+#### 大广场，布鲁塞尔，比利时（© Richard Taylor/Sime/eStock Photo）
+![令人愉悦的忧郁蓝](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_800x480.jpg&rf=LaDigue_800x480.jpg "令人愉悦的忧郁蓝")
+布鲁塞尔位于比利时的中心地带，作为一座充满活力的首都城市，它将悠久的历史与现代大都市的气息融为一体。布鲁塞尔大广场因其建筑而闻名，并被联合国教科文组织列为世界文化遗产，其华丽的市政厅和拥有百年历史的建筑散发着宏伟的气息。
+
+布鲁塞尔大广场经常举办各种节日和文化活动，每隔两年的八月，广场中心会铺设一张巨大的花毯。
+
+[下载480](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_800x480.jpg&rf=LaDigue_800x480.jpg "大广场，布鲁塞尔，比利时")
+[下载720](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_1024x768.jpg&rf=LaDigue_1024x768.jpg "大广场，布鲁塞尔，比利时")
+[下载1080](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大广场，布鲁塞尔，比利时")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_UHD.jpg&rf=LaDigue_UHD.jpg "大广场，布鲁塞尔，比利时")
