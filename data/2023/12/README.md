@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_1024x768.jpg&rf=LaDigue_1024x768.jpg "大广场，布鲁塞尔，比利时")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大广场，布鲁塞尔，比利时")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_UHD.jpg&rf=LaDigue_UHD.jpg "大广场，布鲁塞尔，比利时")
+
+
+---
+### 2023 12月 17：有羽毛的时尚达人
+#### 波西米亚太平鸟栖息在树枝上，加拿大（© Jim Cumming/Shutterstock）
+![有羽毛的时尚达人](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_800x480.jpg&rf=LaDigue_800x480.jpg "有羽毛的时尚达人")
+波西米亚太平鸟身披优雅的灰褐色羽毛，是北半球最引人注目的流浪歌手。天鹅绒般的灰色身体与副翅羽毛上鲜艳的蜡质红色尖端形成鲜明对比，使它们显得格外惹人注目。如果受到惊吓，它们会以喙和脖子朝上的姿势僵住。在冬天，它们以栒子、杜松和花楸浆果为食，后者是它们的最爱。春天来临时，这些游民开始筑巢。雌波西米亚太平鸟精心筑巢后，会产下2到6枚蓝灰色的蛋。孵出的小鸟由父母双方喂食昆虫和水果。人们很容易发现这些善于交际的鸟类，因为它们经常成群结队地聚集在北美和欧亚大陆。
+
+这种太平鸟的学名为“Garrulus”， 这个单词在拉丁语中是“健谈”的意思。
+
+[下载480](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_800x480.jpg&rf=LaDigue_800x480.jpg "波西米亚太平鸟栖息在树枝上，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_1024x768.jpg&rf=LaDigue_1024x768.jpg "波西米亚太平鸟栖息在树枝上，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波西米亚太平鸟栖息在树枝上，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_UHD.jpg&rf=LaDigue_UHD.jpg "波西米亚太平鸟栖息在树枝上，加拿大")
