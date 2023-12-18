@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1024x768.jpg&rf=LaDigue_1024x768.jpg "圆顶礁国家公园，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园，犹他州，美国")
+
+
+---
+### 2023 12月 19：圣诞老人的波兰休息站
+#### 城堡广场的圣诞树，华沙古城，波兰（© Panther Media GmbH/Alamy Stock Photo）
+![圣诞老人的波兰休息站](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞老人的波兰休息站")
+12月初，波兰华沙的大街小巷和广场都披上了节日的盛装。整座城市被圣诞装饰点缀得熠熠生辉，每到夜晚，闪闪发光的彩灯就会让这座城市变得生机勃勃。这场灯光秀点亮了整条皇家大道，从城堡广场的皇家城堡一直延伸到波兰首都华沙老城的尽头，最后汇聚到城堡广场上近30英尺高的圣诞树上。穿着厚外套的游客们在圣诞集市里闲逛，一边浏览着应季纪念品，一边品尝着热饮。自1980年起，皇家城堡和周围的老城区已被联合国教科文组织认定为世界遗产。
+
+美人鱼是华沙的象征，在城市各处的雕像和市徽上都可以看到美人鱼的身影。至少从14世纪中叶开始，这一形象就一直沿用至今。
+
+[下载480](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_800x480.jpg&rf=LaDigue_800x480.jpg "城堡广场的圣诞树，华沙古城，波兰")
+[下载720](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_1024x768.jpg&rf=LaDigue_1024x768.jpg "城堡广场的圣诞树，华沙古城，波兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城堡广场的圣诞树，华沙古城，波兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_UHD.jpg&rf=LaDigue_UHD.jpg "城堡广场的圣诞树，华沙古城，波兰")
