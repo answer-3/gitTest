@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_1024x768.jpg&rf=LaDigue_1024x768.jpg "城堡广场的圣诞树，华沙古城，波兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城堡广场的圣诞树，华沙古城，波兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_UHD.jpg&rf=LaDigue_UHD.jpg "城堡广场的圣诞树，华沙古城，波兰")
+
+
+---
+### 2023 12月 20：多洛米蒂山之光
+#### 圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利（© Ingus Kruklitis/Getty Images）
+![多洛米蒂山之光](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_800x480.jpg&rf=LaDigue_800x480.jpg "多洛米蒂山之光")
+意大利北部的瓦尔加迪纳山谷是现实版的“童话世界”，该山谷位于南蒂罗尔多洛米蒂山区，以滑雪、攀岩和木雕闻名。圣诞节期间，这里会变成“圣诞谷”，木屋向游客们敞开大门，怀旧缆车在圣诞谷上空穿梭，闪烁的童话灯点缀着木屋。18世纪，瓦尔加迪纳山谷因生产雕像和精雕细刻的木俑而闻名，这些雕像最初用于装饰天主教堂，木娃娃是其中最著名的产品之一，至今仍在生产。
+
+圣诞节前，瓦尔加迪纳的首府奥尔蒂斯美成冬日童话。皑皑白雪和梦幻般的节日气氛，深深吸引着大批游客。
+
+[下载480](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
