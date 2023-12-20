@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利")
+
+
+---
+### 2023 12月 21：斯洛文尼亚式的节日氛围
+#### 卢布尔雅那，斯洛文尼亚共和国（© kasto80/Getty images）
+![斯洛文尼亚式的节日氛围](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_800x480.jpg&rf=LaDigue_800x480.jpg "斯洛文尼亚式的节日氛围")
+多么可爱的城市啊！斯洛文尼亚首都卢布尔雅那和流经该市的卢布尔雅尼察河的名字的前缀都是“ljub”，这个前缀在斯拉夫语中的意思是“爱”。卢布尔雅那位于连接亚得里亚海北部和多瑙河地区的贸易路线之上，是一个相对较小的首都，人口不到30万。城市南部是卢布尔雅那沼泽，这是该国最大的沼泽，面积达63平方英里。卢布尔雅那的外围地区现代建筑林立，而城市的核心区则保留了具有古罗马和中世纪元素的历史建筑。例如卢布尔雅那城堡、三重桥、龙桥和历史悠久的老城区。当你在城中闲逛时，一定要留心，因为你很可能会遇到这座城市的象征——卢布尔雅那龙。
+
+卢布尔雅那龙是这座城市的象征。卢布尔雅那市徽中的卢布尔雅那城堡塔顶和横跨卢布尔雅那卡的龙桥（飞龙桥）上都有龙的图案。
+
+[下载480](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_800x480.jpg&rf=LaDigue_800x480.jpg "卢布尔雅那，斯洛文尼亚共和国")
+[下载720](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1024x768.jpg&rf=LaDigue_1024x768.jpg "卢布尔雅那，斯洛文尼亚共和国")
+[下载1080](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卢布尔雅那，斯洛文尼亚共和国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_UHD.jpg&rf=LaDigue_UHD.jpg "卢布尔雅那，斯洛文尼亚共和国")
