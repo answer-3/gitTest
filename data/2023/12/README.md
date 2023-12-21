@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1024x768.jpg&rf=LaDigue_1024x768.jpg "卢布尔雅那，斯洛文尼亚共和国")
 [下载1080](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卢布尔雅那，斯洛文尼亚共和国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_UHD.jpg&rf=LaDigue_UHD.jpg "卢布尔雅那，斯洛文尼亚共和国")
+
+
+---
+### 2023 12月 22：冬季仙境中的精灵
+#### 天鹅泉湿地公园，伊犁，新疆，中国（© 500px Asia/Getty images）
+![冬季仙境中的精灵](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_800x480.jpg&rf=LaDigue_800x480.jpg "冬季仙境中的精灵")
+冬至这一天，让我们一起走进天鹅泉湿地公园。天鹅泉湿地公园又名英塔木天鹅栖息地保护区，位于英塔木乡下赫勒克村伊犁河北岸。该地有个“天鹅湖”，这个湖最初是由几处长流不息的地下温泉眼汇聚而成一条小溪，后来经过人工规划形成了湖泊。湖里生长了茂密的水草，泉水温度较高，即使在最寒冷的季节也不会封冻，天鹅们十分喜欢在这里越冬，休养生息。
+
+从上世纪九十年代开始，每年10月初至次年4月，都有天鹅在此栖息，数量已从最初的几只发展到如今的百余只。
+
+[下载480](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_800x480.jpg&rf=LaDigue_800x480.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
+[下载720](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1024x768.jpg&rf=LaDigue_1024x768.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg&rf=LaDigue_UHD.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
