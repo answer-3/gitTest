@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1024x768.jpg&rf=LaDigue_1024x768.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg&rf=LaDigue_UHD.jpg "天鹅泉湿地公园，伊犁，新疆，中国")
+
+
+---
+### 2023 12月 23：它们看起来有话要说
+#### 帽带企鹅，南桑威奇群岛，南大西洋（© Jan Vermeer/Minden Pictures）
+![它们看起来有话要说](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_800x480.jpg&rf=LaDigue_800x480.jpg "它们看起来有话要说")
+在节假日与家人围坐一堂时，你有时会想如图上这只南桑威奇群岛上的帽带企鹅一样，痛骂在场的人一顿。如果以上设想听起来很吸引人，或者你想从强制性的季节性快乐中解脱出来，那么“不过圣诞节”可能就是你的理想节日。这个世俗节日出现在流行喜剧《宋飞正传》的最后一季中时，就引起了相当大的关注。科斯坦扎一家有很多奇怪的传统，包括在节日期间竖起一根没有装饰物的铝杆，以及在年终发泄他们的不满。自从这一集播出以来，这个节日在粉丝和寻找其他庆祝方式的人群中就有了自己的生命。我们欢迎那些热爱圣诞节、光明节和宽扎节的人去过节，而“不过圣诞节”则是为我们其他人准备的。
+
+在陆地上，帽带企鹅用石头筑成圆形的巢穴，然后产下两个蛋，由雄性和雌性轮流孵化，每只孵6天左右。
+
+[下载480](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_800x480.jpg&rf=LaDigue_800x480.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
+[下载720](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_1024x768.jpg&rf=LaDigue_1024x768.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
+[下载1080](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
+[下载UHD](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&rf=LaDigue_UHD.jpg "帽带企鹅，南桑威奇群岛，南大西洋")
