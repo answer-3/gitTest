@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_1024x768.jpg&rf=LaDigue_1024x768.jpg "市政厅广场，塔尔图，爱沙尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "市政厅广场，塔尔图，爱沙尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg&rf=LaDigue_UHD.jpg "市政厅广场，塔尔图，爱沙尼亚")
+
+
+---
+### 2023 12月 25：圣诞快乐，亲爱的朋友们！
+#### 驯鹿在雪中奔跑，阿拉斯加，美国（© Michael Quinton/Minden Pictures）
+![圣诞快乐，亲爱的朋友们！](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞快乐，亲爱的朋友们！")
+如果北美驯鹿飞起来了，您可千万别惊讶！自从克莱门特·克拉克·摩尔在1823年的诗歌《圣尼古拉斯来访》中将驯鹿指派为圣诞老人的助手以来，北美驯鹿就一直热心地为圣诞节庆典做出贡献，也难怪圣诞老人会选中它们！驯鹿具有顽强的生命力和适应性，它们有两层浓密的皮毛，眼睛能适应各种波长的光线，因此它们能适应各种不同的环境。在现实生活中，您可能看不到驯鹿飞翔，但您可能会在北极地区、北美、北欧和西伯利亚发现一群从苔原地带迁徙到森林的驯鹿。它们的蹄子可以根据季节以及地面情况来扩大或缩小，这使得它们戴着鹿角的沉重身躯站得稳稳当当。如果您今天正在庆祝圣诞节，我们祝您圣诞快乐。
+
+根据民间传说，圣诞老人的雪橇是由会飞的驯鹿拉动的。在1823年的诗歌《圣尼古拉斯来访》中，这些驯鹿首次被命名。
+
+[下载480](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_800x480.jpg&rf=LaDigue_800x480.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_1024x768.jpg&rf=LaDigue_1024x768.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_UHD.jpg&rf=LaDigue_UHD.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
