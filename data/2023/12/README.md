@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_1024x768.jpg&rf=LaDigue_1024x768.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_UHD.jpg&rf=LaDigue_UHD.jpg "驯鹿在雪中奔跑，阿拉斯加，美国")
+
+
+---
+### 2023 12月 26：节礼日快乐
+#### 冬季日出，戴德姆，科尔切斯特，英格兰（© George W Johnson/Getty Images）
+![节礼日快乐](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_800x480.jpg&rf=LaDigue_800x480.jpg "节礼日快乐")
+节假日还没有完全结束！12月26日是节礼日——这是一个让节日气氛延续下去的时机，也是一个在大自然中享受冬日漫步的时机，图中的英格兰科尔切斯特的田野就是一个冬日漫步的好地方。英国和一些英联邦成员国，包括加拿大和澳大利亚，都会庆祝节礼日。节日的起源被认为来自一项古老的英国传统——送礼盒，即雇主在圣诞节的第二天给仆人送装满礼物的“盒子”。时光流转，今天的人们依然会把赠送礼物和节礼日联系在一起，但这个节日已经有了各种习俗。在英国，各地都会举办赛马活动，包括在肯普顿公园赛马场举办的历史悠久的乔治六世赛马大赛。而在加拿大，冰球爱好者会聚集在一起，为他们喜爱的球队加油助威。节假日就像冬天的阳光一样，结束得比你想象中更快，趁着一切还未结束，去尽情享受吧。
+
+《牛津英语词典》给出了英国最早的证明是在1743年，将其定义为“圣诞节后的第二天”，并说“传统上在这一天商人、雇员等会收到礼物或小费（一个“圣诞盒子”） 来自他们的客户或雇主。
+
+[下载480](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_800x480.jpg&rf=LaDigue_800x480.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_1024x768.jpg&rf=LaDigue_1024x768.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg&rf=LaDigue_UHD.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
