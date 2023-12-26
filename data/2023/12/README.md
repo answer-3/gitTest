@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_1024x768.jpg&rf=LaDigue_1024x768.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg&rf=LaDigue_UHD.jpg "冬季日出，戴德姆，科尔切斯特，英格兰")
+
+
+---
+### 2023 12月 27：冰与火之地
+#### 教堂山，斯奈山半岛，冰岛（© Ratnakorn Piyasirisorost/Getty Images）
+![冰与火之地](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_800x480.jpg&rf=LaDigue_800x480.jpg "冰与火之地")
+从冰川和瀑布到火山和黑沙滩，冰岛的斯奈山半岛拥有“权游”中的一切。图中这座傲然屹立的小山，是海拔1519英尺高的草帽山。因其形状酷似教堂的尖塔，这座巍峨的小山又被称为教堂山。您可能在《权力的游戏》系列剧中看到过它，因为它曾出现在一幕设定在巨型冰墙以北的场景中。这个冰原岛峰（一种突出于冰原或冰川上的岩层），是摄影师们经常拍摄的对象，其金字塔般的形状、随季节变化的颜色以及沿海的地理位置，使它充满了魅力。如果运气好，天气条件允许，您还可以在草帽山看到壮丽的北极光。
+
+草帽山以其独特的地质而闻名，被认为是研究冰岛地质历史的重要场所。
+
+[下载480](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_800x480.jpg&rf=LaDigue_800x480.jpg "教堂山，斯奈山半岛，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_1024x768.jpg&rf=LaDigue_1024x768.jpg "教堂山，斯奈山半岛，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "教堂山，斯奈山半岛，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg&rf=LaDigue_UHD.jpg "教堂山，斯奈山半岛，冰岛")
