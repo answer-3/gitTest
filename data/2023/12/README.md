@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_1024x768.jpg&rf=LaDigue_1024x768.jpg "教堂山，斯奈山半岛，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "教堂山，斯奈山半岛，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg&rf=LaDigue_UHD.jpg "教堂山，斯奈山半岛，冰岛")
+
+
+---
+### 2023 12月 28：跳出“濒危名单”
+#### 座头鲸，迪斯科湾，格陵兰（© Paul Souders/DanitaDelimont.com）
+![跳出“濒危名单”](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_800x480.jpg&rf=LaDigue_800x480.jpg "跳出“濒危名单”")
+对于我们毛茸茸的、有鳞片的和长羽毛的朋友们而言，今天是一个特殊的里程碑：美国《濒危物种保护法》迎来了它的50周年。这项具有里程碑意义的法律于1973年签署确立，半个世纪以来，它一直在向濒临灭绝的物种伸出援助之手。那么，谁是这次的焦点呢？是照片中的座头鲸！这些温顺的庞然大物以悦耳的歌声和杂技般的“鲸跃”而闻名，是《濒危物种保护法》成功实施的典范。过去，由于捕鲸和捕鱼装置的缠绕，座头鲸一度濒临灭绝，但在保护工作的努力下，它们的种群正在复苏，从1966年的约5,000头到增加到现在的约135,000头。然而，保护濒危物种，任重而道远。从预防栖息地丧失到防止偷猎，各种挑战依然存在。而我们能做的，就是宣传保护濒危物种，支持保护工作，参与当地活动，做一个环保主义者。
+
+座头鲸以高亢、复杂的“歌声”而闻名，其歌声可长达 30 分钟！
+
+[下载480](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸，迪斯科湾，格陵兰")
+[下载720](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_1024x768.jpg&rf=LaDigue_1024x768.jpg "座头鲸，迪斯科湾，格陵兰")
+[下载1080](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸，迪斯科湾，格陵兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸，迪斯科湾，格陵兰")
