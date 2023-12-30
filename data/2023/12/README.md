@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_UHD.jpg&rf=LaDigue_UHD.jpg "卡塞里格石圈，湖区国家公园 ，坎布里亚，英国")
+
+
+---
+### 2023 12月 31：明年见!
+#### 帕那空奇里上空的烟花，碧武里府,泰国（© noomcpk/Shutterstock）
+![明年见!](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_800x480.jpg&rf=LaDigue_800x480.jpg "明年见!")
+现在是最后的倒计时！许多国家都在今晚庆祝跨年夜，以送走旧的一年，并期待新的一年的到来。在辞旧迎新的时候，各个国家的传统习俗都很有创意。如果你不在美国观看时代广场的落球仪式，你可能会在丹麦摔盘子，在西班牙往嘴里塞葡萄，或者在希腊把洋葱挂在门外。在泰国，庆祝者可能会去寺庙祈求好运，或者观看照亮帕那空奇里的烟花。“帕那空奇里”在泰语中意为“山中之城”，该地坐落在同名的历史公园内，又名“圣城山”或“拷汪行宫”。无论你在哪里庆祝跨年夜，都要过得愉快。明年见！
+
+由于在高温下会出现一些奇怪的化学反应，所以蓝色的烟花比其他颜色的烟花制作难度更高。
+
+[下载480](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_800x480.jpg&rf=LaDigue_800x480.jpg "帕那空奇里上空的烟花，碧武里府,泰国")
+[下载720](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕那空奇里上空的烟花，碧武里府,泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕那空奇里上空的烟花，碧武里府,泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_UHD.jpg&rf=LaDigue_UHD.jpg "帕那空奇里上空的烟花，碧武里府,泰国")
