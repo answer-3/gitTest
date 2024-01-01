@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_1024x768.jpg&rf=LaDigue_1024x768.jpg "睡在雪地里的赤狐，阿布鲁佐，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "睡在雪地里的赤狐，阿布鲁佐，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_UHD.jpg&rf=LaDigue_UHD.jpg "睡在雪地里的赤狐，阿布鲁佐，意大利")
+
+
+---
+### 2024 1月 2：百年城堡
+#### 贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度（© Twenty47studio/Getty images）
+![百年城堡](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_800x480.jpg&rf=LaDigue_800x480.jpg "百年城堡")
+夕阳西下，印度拉贾斯坦邦的焦特布尔市沐浴在温暖的光芒中，一幅神奇的景象徐徐展开。坐落在岩石山顶上的梅兰加尔古堡矗立于这片景色中，这里曾是拉索尔王朝的权力中心，见证了荣耀和挑战。这座城堡始建于1459年，由当时的统治者拉奥·约达创建，至今已经有500多年的历史。
+
+梅兰加尔古堡是迪士尼1994年真人电影《丛林之书》和2012年电影《黑暗骑士崛起》的拍摄地之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_800x480.jpg&rf=LaDigue_800x480.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_1024x768.jpg&rf=LaDigue_1024x768.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_UHD.jpg&rf=LaDigue_UHD.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
