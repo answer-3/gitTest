@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_1024x768.jpg&rf=LaDigue_1024x768.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_UHD.jpg&rf=LaDigue_UHD.jpg "贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度")
+
+
+---
+### 2024 1月 3：星光璀璨
+#### 明尼汪卡湖，阿尔伯塔省，加拿大（© Ken Phung/500px/Getty Images）
+![星光璀璨](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_800x480.jpg&rf=LaDigue_800x480.jpg "星光璀璨")
+明尼汪卡湖的星空已经被人类欣赏了几个世纪。纳科达人敬畏湖水，因为他们相信湖中住着神灵，他们满怀敬意地在湖中捕鱼并沿着湖岸狩猎。湖的名字来源于印第安斯通尼族，意思是“水之精灵”。随着加拿大落基山脉旅游业的发展，人们在湖岸边建立了一个定居点。然而，为了下游的水力发电厂保留水源，该湖在1895年和1912年两度筑起了水坝，明尼汪卡的定居点也随之被淹没，只能靠潜水进入。如今，这个冰川湖是班夫国家公园的第二大湖，全长约21公里。
+
+根据考古学家发现的石器和克洛维斯尖矛头，早在1万年前，就有原住民长期居住在明尼汪卡湖附近。
+
+[下载480](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_800x480.jpg&rf=LaDigue_800x480.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_1024x768.jpg&rf=LaDigue_1024x768.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_UHD.jpg&rf=LaDigue_UHD.jpg "明尼汪卡湖，阿尔伯塔省，加拿大")
