@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_1024x768.jpg&rf=LaDigue_1024x768.jpg "金门大桥，旧金山，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金门大桥，旧金山，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_UHD.jpg&rf=LaDigue_UHD.jpg "金门大桥，旧金山，加利福尼亚州，美国")
+
+
+---
+### 2024 1月 5：是现实还是童话？
+#### 巴伐利亚阿尔卑斯山脉，德国（© JFL Photography/Adobe Stock）
+![是现实还是童话？](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_800x480.jpg&rf=LaDigue_800x480.jpg "是现实还是童话？")
+冬日的晴空笼罩着阿尔卑斯山白雪皑皑的山景，雄伟的山峰倒映在冰湖光滑的镜面上。四周白雪覆盖的树木见证了这一刻的宁静与祥和，只有脚踏积雪发出轻柔的嘎吱声可以偶尔打破这种宁静。阳光洒向湖光山色，令人心旷神怡。
+
+楚格峰是巴伐利亚阿尔卑斯山乃至整个德国的最高峰。它位于韦特施泰因山脉的西部，海拔2962米，具有高阿尔卑斯山的特征，并有两个小冰川。
+
+[下载480](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚阿尔卑斯山脉，德国")
+[下载720](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴伐利亚阿尔卑斯山脉，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚阿尔卑斯山脉，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚阿尔卑斯山脉，德国")
