@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_1024x768.jpg&rf=LaDigue_1024x768.jpg "魔鬼大理石保护区，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "魔鬼大理石保护区，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_UHD.jpg&rf=LaDigue_UHD.jpg "魔鬼大理石保护区，澳大利亚")
+
+
+---
+### 2024 1月 8：瑞士的雪花漱漱落下
+#### 贝尔尼纳山口的滑雪场，格劳宾登州，瑞士（© Francesco Bergamaschi/Getty Images）
+![瑞士的雪花漱漱落下](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_800x480.jpg&rf=LaDigue_800x480.jpg "瑞士的雪花漱漱落下")
+你被眼前这片白茫茫的大地震撼到了吗？这正是游客们在瑞士格劳宾登州阿尔卑斯山目睹贝尔尼纳山口时的感受。它的海拔高达7638英尺，吸引着来自世界各地的冬季运动爱好者。这个山口现在可能是滑雪场的大本营，但在中世纪它是一条重要的贸易路线。有趣的是，与滑雪有关的考古证据最早可追溯至公元前6000年左右的俄罗斯。每年的11月到次年3月是贝尔尼纳山口雪况最好的时候，喜欢滑雪的朋友们可别错过哦！
+
+贝尔尼纳山脉是阿尔卑斯山最高的山脉之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_800x480.jpg&rf=LaDigue_800x480.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1024x768.jpg&rf=LaDigue_1024x768.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_UHD.jpg&rf=LaDigue_UHD.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
