@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1024x768.jpg&rf=LaDigue_1024x768.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_UHD.jpg&rf=LaDigue_UHD.jpg "贝尔尼纳山口的滑雪场，格劳宾登州，瑞士")
+
+
+---
+### 2024 1月 9：乘着热气球向上飞
+#### 格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国（© Jennifer MacCornack/Shutterstock）
+![乘着热气球向上飞](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_800x480.jpg&rf=LaDigue_800x480.jpg "乘着热气球向上飞")
+今天是热气球升空日，一个致力于纪念布兰沙尔的成就的日子。布兰沙尔是一位法国的气球驾驶员及发明家，早在1793年，他就完成了美国历史上第一次载人气球航行，从费城飞往新泽西州的德特福德。自2011年起，每年的这一天人们都会热烈庆祝，以致敬这一空中壮举。在今天的图片中，太阳落在格兰德河的上空，照亮了新墨西哥州阿尔伯克基上空的彩色热气球。每年的10月初，人们从世界各地赶来齐聚一堂，参加为期9天的阿尔伯克基国际热气球节，这是世界上最盛大的热气球节，在这里，人们可以欣赏到经验丰富的热气球驾驶员熟练地操作他们的热气球。
+
+热气球的前身是孔明灯 。在三国时期（公元220年至280年），蜀汉的诸葛亮使用这些空中灯笼进行军事信号传递。
+
+[下载480](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_800x480.jpg&rf=LaDigue_800x480.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1024x768.jpg&rf=LaDigue_1024x768.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg&rf=LaDigue_UHD.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
