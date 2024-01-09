@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1024x768.jpg&rf=LaDigue_1024x768.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg&rf=LaDigue_UHD.jpg "格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国")
+
+
+---
+### 2024 1月 10：迎接挑战！
+#### 米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊（© Orestis Zoumpos/Amazing Aerial Agency）
+![迎接挑战！](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_800x480.jpg&rf=LaDigue_800x480.jpg "迎接挑战！")
+是时候加强锻炼了！随着久坐不动的生活方式越来越普遍，保持健康已成为人们关注的焦点。“走楼梯日”的出现是为了提醒人们：一个小小的、有意识的选择也可以对我们的整体健康产生大大的影响。这是由美国肺脏协会发起的一项倡议，旨在倡导人们通过有意识的运动来促进肺部健康。
+
+在荷马史诗《奥德赛》中，英雄奥德修斯访问了埃俄罗斯（色萨利的旧称）的王国。
+
+[下载480](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_800x480.jpg&rf=LaDigue_800x480.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_1024x768.jpg&rf=LaDigue_1024x768.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_UHD.jpg&rf=LaDigue_UHD.jpg "米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊")
