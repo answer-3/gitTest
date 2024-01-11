@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪中的欧亚猞猁")
 [下载1080](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中的欧亚猞猁")
 [下载UHD](https://cn.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_UHD.jpg&rf=LaDigue_UHD.jpg "雪中的欧亚猞猁")
+
+
+---
+### 2024 1月 12：北汉山的花岗岩山峰
+#### 北汉山国立公园，韩国（© TRAVEL TAKE PHOTOS/Shutterstock）
+![北汉山的花岗岩山峰](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_800x480.jpg&rf=LaDigue_800x480.jpg "北汉山的花岗岩山峰")
+北汉山国家公园位于繁华的韩国首都首尔以北几英里处，是市民和国际游客的度假胜地。该公园建于1983年，拥有茂密的森林、古老的寺庙和北汉山的三座花岗岩山峰。水鹿、野猪、花栗鼠和松鼠自由自在地在公园的山脊和山谷中游荡。细心的人还能听到啄木鸟的哒哒声或栖息在树上的各种鸣禽的鸣叫声。该公园还是北汉山城的所在地，其现有建筑可追溯到1711年。当时修建这座城池的目的是为了保护首尔免受外部威胁。
+
+公元132年，为了保护首尔免受外敌入侵，此处修建了北汉山城。1711年，北汉山城扩大到现在的规模。
+
+[下载480](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_800x480.jpg&rf=LaDigue_800x480.jpg "北汉山国立公园，韩国")
+[下载720](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_1024x768.jpg&rf=LaDigue_1024x768.jpg "北汉山国立公园，韩国")
+[下载1080](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北汉山国立公园，韩国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_UHD.jpg&rf=LaDigue_UHD.jpg "北汉山国立公园，韩国")
