@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1024x768.jpg&rf=LaDigue_1024x768.jpg "屈斜路湖的天鹅，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "屈斜路湖的天鹅，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_UHD.jpg&rf=LaDigue_UHD.jpg "屈斜路湖的天鹅，日本")
+
+
+---
+### 2024 1月 15：在地球上还是在外星？
+#### 瓦茨曼山脚下的冰教堂，巴伐利亚，德国（© Christian Bäck/eStock Photo）
+![在地球上还是在外星？](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_800x480.jpg&rf=LaDigue_800x480.jpg "在地球上还是在外星？")
+瓦茨曼冰教堂位于巴伐利亚贝希特斯加登国家公园内，因洞内的冰层而得名。这个迷人的冰洞是由瓦茨曼山周围的冰川融化而成，以冰柱和冰雕而闻名。它毗邻风景如画的国王湖，雄伟壮丽的阿尔卑斯山环绕四周，给每位游客都留下了深刻的印象。该地奇诡的地质形态也吸引着大批游客及研究人员。
+
+瓦茨曼山的形状颇为独特，在贝希特斯加登州还流传着一个与之相关的传说：专制邪恶的国王瓦茨曼在该地区实行暴政，上帝为了惩罚他，让国王全家都变成了巨石。
+
+[下载480](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_800x480.jpg&rf=LaDigue_800x480.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
+[下载720](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_UHD.jpg&rf=LaDigue_UHD.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
