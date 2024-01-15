@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_UHD.jpg&rf=LaDigue_UHD.jpg "瓦茨曼山脚下的冰教堂，巴伐利亚，德国")
+
+
+---
+### 2024 1月 16：加拿大式的小憩和放松
+#### 路易斯湖，班夫国家公园，阿尔伯塔省，加拿大（© Mr. Simon Paul/Shutterstock）
+![加拿大式的小憩和放松](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_800x480.jpg&rf=LaDigue_800x480.jpg "加拿大式的小憩和放松")
+闪烁着海蓝色光芒的路易斯湖坐落在阿尔伯塔省班夫国家公园的加拿大落基山脉中，原住民纳科达人将该湖称为“Ho-run-num-nay”，意为“小鱼之湖”。后来，移民们以英国王室的路易斯公主的名字为这个冰川湖以及一座毗邻的小镇命名。那座小镇的海拔高达5200英尺，是加拿大海拔最高的小镇。游客们一年四季都可以通过加拿大高速公路到达路易斯湖，参加这里的夏季徒步旅行和冬季滑雪等活动。
+
+路易斯湖是加拿大最受欢迎的滑雪胜地之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_800x480.jpg&rf=LaDigue_800x480.jpg "路易斯湖，班夫国家公园，阿尔伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_1024x768.jpg&rf=LaDigue_1024x768.jpg "路易斯湖，班夫国家公园，阿尔伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "路易斯湖，班夫国家公园，阿尔伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_UHD.jpg&rf=LaDigue_UHD.jpg "路易斯湖，班夫国家公园，阿尔伯塔省，加拿大")
