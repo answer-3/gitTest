@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚森林国家公园里睡觉的狼，德国")
+
+
+---
+### 2024 1月 18：在飞马珀伽索斯的守望之下
+#### 黄昏时分的亚历山大三世桥，巴黎，法国（© Sizun Eye/Getty Images）
+![在飞马珀伽索斯的守望之下](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_800x480.jpg&rf=LaDigue_800x480.jpg "在飞马珀伽索斯的守望之下")
+一觉睡醒，身在巴黎，听起来很有皇家风范，是不是？今天，透过屏幕，您看到的是暮色中的亚历山大三世桥。这座拱形大桥横跨塞纳河，于1900年亮相。为纪念1891年俄法同盟的建立，这座桥以俄国沙皇亚历山大三世的名字命名。两座56英尺高的塔分别坐落在河的两岸，顶上是飞马珀伽索斯的镀金青铜雕塑，彰显了这一事件的崇高地位。站在桥中央，你可以欣赏到河两侧的美景，一边是浪漫花园和荣军院广场，另一边是巴黎大皇宫和小皇宫博物馆。
+
+2017年6月，在巴黎与洛杉矶共同竞争2024年奥运会主办权的背景之下，巴黎将一些世界闻名的地标性建筑转为体育设施，并在横跨塞纳河的亚历山大三世桥上安装了跳水板。
+
+[下载480](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时分的亚历山大三世桥，巴黎，法国")
