@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1024x768.jpg&rf=LaDigue_1024x768.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_UHD.jpg&rf=LaDigue_UHD.jpg "冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国")
+
+
+---
+### 2024 1月 23：印度洋之眼
+#### 印度洋的环礁，马尔代夫（© Amazing Aerial Premium/Shutterstock）
+![印度洋之眼](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋之眼")
+马尔代夫位于斯里兰卡和印度的西南部，拥有宁静的沙滩和清澈的海水，并以海鲜、环礁湖和无数的椰子树而闻名。马尔代夫群岛约有1200个岛屿，这些岛屿是由26个环礁链组成的。环礁是环形的岛屿，边缘是珊瑚，中间是礁湖。马尔代夫还是芭环礁生物圈保护区的所在地，该保护区已于2011年6月被联合国教科文组织列为世界遗产。在那里，游客可以观赏蝠鲼和鲸鲨，还可以享受潜水、冲浪等有趣的活动。
+
+马尔代夫是世界上地势最低的国家，最高和平均自然地面高度分别仅为海平面以上 2.4 米（7 英尺 10 英寸）和 1.5 米（4 英尺 11 英寸）。
+
+[下载480](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋的环礁，马尔代夫")
+[下载720](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1024x768.jpg&rf=LaDigue_1024x768.jpg "印度洋的环礁，马尔代夫")
+[下载1080](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋的环礁，马尔代夫")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋的环礁，马尔代夫")
