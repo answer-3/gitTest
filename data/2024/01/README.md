@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg&rf=LaDigue_UHD.jpg "圣德温教堂的废墟，莫纳岛，威尔士，英国")
+
+
+---
+### 2024 1月 26：不是夜猫子
+#### 北鹰鸮（© Remo Savisaar/Alamy Stock Photo）
+![不是夜猫子](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_800x480.jpg&rf=LaDigue_800x480.jpg "不是夜猫子")
+你是否发现自己白天精力充沛，而你的朋友却喜欢在外面待到很晚？如果是这样，那你就是“猛鸮”了。这种鸟是世界上为数不多的只在白天活动的猫头鹰之一，它们栖息在北美和欧亚大陆的北方森林中，有着不同的叫声，用于交配、与幼鸟交流以及危险预警。猛鸮并不挑食，它们会吃老鼠、田鼠、旅鼠、兔子、鼩鼱、鼹鼠，偶尔也吃其他小鸟，甚至有人看到它们吃青蛙和鱼。不过不用担心，我们不在猛鸮的菜单上。但是，如果人类离它们的巢穴太近，保护欲很强的鸟爸爸和鸟妈妈会扑向人类，将人类赶走。
+
+猛鸮是少数不在夜晚活动的猫头鹰之一，它们只在白天活动。
+
+[下载480](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_800x480.jpg&rf=LaDigue_800x480.jpg "北鹰鸮")
+[下载720](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_1024x768.jpg&rf=LaDigue_1024x768.jpg "北鹰鸮")
+[下载1080](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北鹰鸮")
+[下载UHD](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg&rf=LaDigue_UHD.jpg "北鹰鸮")
