@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_1024x768.jpg&rf=LaDigue_1024x768.jpg "北鹰鸮")
 [下载1080](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北鹰鸮")
 [下载UHD](https://cn.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg&rf=LaDigue_UHD.jpg "北鹰鸮")
+
+
+---
+### 2024 1月 27：巴西大自然中的异域之美
+#### 点嘴小巨嘴鸟，大西洋森林，巴西（© aaprophoto/Getty Images）
+![巴西大自然中的异域之美](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_800x480.jpg&rf=LaDigue_800x480.jpg "巴西大自然中的异域之美")
+点嘴小巨嘴鸟是一种巨嘴鸟，以其鲜艳的颜色和醒目的喙而闻名。这种鸟栖息在巴西潮湿的热带森林中，尤其是在亚马逊和潘塔纳尔地区。点嘴小巨嘴鸟的羽毛以绿色为主，喙为橙色，并带有黑色斑点，这为其独特的美丽增色不少。
+
+世界自然保护联盟已将点嘴小巨嘴鸟列为最不受关注的动物。
+
+[下载480](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_800x480.jpg&rf=LaDigue_800x480.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_1024x768.jpg&rf=LaDigue_1024x768.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg&rf=LaDigue_UHD.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
