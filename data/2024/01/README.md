@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_1024x768.jpg&rf=LaDigue_1024x768.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg&rf=LaDigue_UHD.jpg "点嘴小巨嘴鸟，大西洋森林，巴西")
+
+
+---
+### 2024 1月 28：从干涸的沙漠变成田园
+#### 昆士兰州内陆海峡地区，澳大利亚（© Southern Lightscapes-Australia/Getty Images）
+![从干涸的沙漠变成田园](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_800x480.jpg&rf=LaDigue_800x480.jpg "从干涸的沙漠变成田园")
+这里不仅有大地色调的“拼布被子”，还有狭窄的水道像静脉一样贯穿澳大利亚内陆的海峡地区。这片幅员辽阔的地区因其纵横交错的河道而闻名。当雨量充沛时，这里就会从干涸的沙漠变成野花盛开的生机勃勃的锦绣之地。数万年来，澳大利亚原住民一直在这片土地上生活，该地区的一些地方还提供旅游服务和课程，教游客如何在内陆地区生存。这个未受破坏的地区也是野生动物的家园，袋鼠在平原上蹦蹦跳跳，鸸鹋大摇大摆地走来走去，紫冠细尾鹩莺也在翩翩起舞。如果运气好的话，你甚至还能看到兔耳袋狸（一种夜间有袋动物，长着像兔子一样的长耳）。那么，你准备好去这个地方探险了吗？
+
+昆士兰州内陆海峡地区地貌干旱，河流断断续续，形成了一系列古老的洪泛平原。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_800x480.jpg&rf=LaDigue_800x480.jpg "昆士兰州内陆海峡地区，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_1024x768.jpg&rf=LaDigue_1024x768.jpg "昆士兰州内陆海峡地区，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "昆士兰州内陆海峡地区，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_UHD.jpg&rf=LaDigue_UHD.jpg "昆士兰州内陆海峡地区，澳大利亚")
