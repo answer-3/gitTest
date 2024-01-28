@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_1024x768.jpg&rf=LaDigue_1024x768.jpg "昆士兰州内陆海峡地区，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "昆士兰州内陆海峡地区，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_UHD.jpg&rf=LaDigue_UHD.jpg "昆士兰州内陆海峡地区，澳大利亚")
+
+
+---
+### 2024 1月 29：缓缓下降
+#### 戈林格瀑布，泰嫩高，萨尔茨堡，奥地利（© Frank Fischbach/Alamy Stock Photo）
+![缓缓下降](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_800x480.jpg&rf=LaDigue_800x480.jpg "缓缓下降")
+从桀骜不驯的萨尔扎霍芬峡谷到世界上最古老的哈莱因盐矿，再到世界上最大的冰洞埃斯瑞森韦尔特，奥地利拥有众多奇观。萨尔茨堡州的戈林格瀑布无疑也是其中之一，这条平缓温和的瀑布，高249英尺，包含两条大瀑布，其中一条从施瓦茨巴赫瀑布洞口倾泻而下，汇入宁静如画的水潭。在这里，一年四季都能见到极致的美景，春日绿树成荫，冬日白雪皑皑。自1985年以来，该地区就被列为奥地利的自然保护区，无论你是喜欢徒步旅行、摄影，还是想拥抱大自然，这里都是一个绝佳的旅游目的地。
+
+萨尔茨堡是著名作曲家沃尔夫冈·阿马德乌斯·莫扎特的出生地，他于1756年1月27日出生在这里。萨尔茨堡因其丰富的音乐历史成为了热门的旅游目的地。
+
+[下载480](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_800x480.jpg&rf=LaDigue_800x480.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
+[下载720](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_1024x768.jpg&rf=LaDigue_1024x768.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
+[下载1080](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
+[下载UHD](https://cn.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_UHD.jpg&rf=LaDigue_UHD.jpg "戈林格瀑布，泰嫩高，萨尔茨堡，奥地利")
