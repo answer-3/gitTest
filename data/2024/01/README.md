@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_1024x768.jpg&rf=LaDigue_1024x768.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_UHD.jpg&rf=LaDigue_UHD.jpg "艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙")
+
+
+---
+### 2024 1月 31：条纹造型
+#### 布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非（© Richard Du Toit/Minden Pictures）
+![条纹造型](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_800x480.jpg&rf=LaDigue_800x480.jpg "条纹造型")
+是时候来点“黑白思维”了。1月31日是国际斑马日，这是一个纪念这些条纹动物的日子。虽然所有斑马都有标志性的黑白条纹，但实际上现存的斑马有三种：平原斑马、山斑马和格利威斑马。今天照片上的主角是南非里特夫莱自然保护区的布氏斑马，平原斑马的亚种之一。斑马遍布非洲东部和南部，在热带稀树草原、灌木丛、林地甚至山区都能看到其身影，它们大部分时间都在吃东西，喜食草、树叶和灌木。由于平原斑马需要大量进食，因此它们会跋涉数百英里寻找食物和水。不幸的是，由于被猎杀及栖息地被破坏，斑马的生存受到了威胁。而像国际斑马日这种的活动，恰好可以提高公众对斑马所处的困境的关注度。
+
+布氏斑马是唯一可以合法饲养并供人食用的斑马亚种。该亚种的名字来自于英国探险家和博物学家威廉·约翰·伯谢尔。
+
+[下载480](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_800x480.jpg&rf=LaDigue_800x480.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
+[下载720](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_1024x768.jpg&rf=LaDigue_1024x768.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
+[下载1080](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_UHD.jpg&rf=LaDigue_UHD.jpg "布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非")
