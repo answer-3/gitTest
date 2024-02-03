@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_1024x768.jpg&rf=LaDigue_1024x768.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg&rf=LaDigue_UHD.jpg "大运河与安康圣母大教堂，威尼斯，意大利")
+
+
+---
+### 2024 2月 4：雄伟的天然穹顶
+#### 德弗塔什卡洞, Devetaki村庄，保加利亚（© Jasmine_K/Shutterstock）
+![雄伟的天然穹顶](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_800x480.jpg&rf=LaDigue_800x480.jpg "雄伟的天然穹顶")
+走进德弗塔什卡洞穴深处，在保加利亚自然奇观中穿越时空。不过，这次探险有一个条件：你不能害怕蝙蝠！大约有3万只这种会飞的哺乳动物在此栖息。这个岩溶洞穴是碳酸盐岩被水溶解后形成的，现在属于公园的一部分。德弗塔什卡洞穴中的人类活动可以追溯到公元前7万年左右的早期石器时代，另外这里还发现了公元前6000—4000年的新石器时代手工艺品。洞中的几个大开口将自然光引入洞室，为摄影师和自然爱好者提供了更好的照明效果。
+
+德弗塔什卡洞的洞顶有几个大洞，被人们称为“上帝之眼”。阳光可以穿过洞顶和洞壁上的孔洞照亮洞穴内部，因此我们可以在这里拍到非常有趣的照片，比如晚上月光穿过“眼睛”的照片。
+
+[下载480](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_800x480.jpg&rf=LaDigue_800x480.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
+[下载720](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_1024x768.jpg&rf=LaDigue_1024x768.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg&rf=LaDigue_UHD.jpg "德弗塔什卡洞, Devetaki村庄，保加利亚")
