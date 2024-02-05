@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_1024x768.jpg&rf=LaDigue_1024x768.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_UHD.jpg&rf=LaDigue_UHD.jpg "从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚")
+
+
+---
+### 2024 2月 6：天然盆景
+#### 盆景岩，太浩湖，内华达州，美国（© Jim Patterson/Tandem Stills + Motion）
+![天然盆景](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_800x480.jpg&rf=LaDigue_800x480.jpg "天然盆景")
+这是北美最大的高山湖泊和美国第二深的湖泊——太浩湖，湖中的盆景岩及其周边地区则是内华达山脉的一个热门旅游景点。盆景岩上的四棵树从巨大的花岗岩中生长出来，这一奇特的景象激发了人们的灵感，便将其命名为盆景岩。而传统的盆景也只包含一棵树或一小丛品种相同的树，因此这个名字非常适合这个景点。盆景可以引发人们思考和冥想，如果您去参观盆景岩，不妨找个安静的地方，沉浸式体验冥想的乐趣。
+
+作为太浩湖盆地的一部分，太浩湖形成于约200万年前的地壳运动，以清澈的水质，四面环山的风景而闻名。
+
+[下载480](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_800x480.jpg&rf=LaDigue_800x480.jpg "盆景岩，太浩湖，内华达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_1024x768.jpg&rf=LaDigue_1024x768.jpg "盆景岩，太浩湖，内华达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盆景岩，太浩湖，内华达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg&rf=LaDigue_UHD.jpg "盆景岩，太浩湖，内华达州，美国")
