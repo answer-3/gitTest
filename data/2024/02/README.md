@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_1024x768.jpg&rf=LaDigue_1024x768.jpg "胡德山，俄勒冈州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "胡德山，俄勒冈州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_UHD.jpg&rf=LaDigue_UHD.jpg "胡德山，俄勒冈州，美国")
+
+
+---
+### 2024 2月 9：准备好庆祝了吗？
+#### 灯光秀点亮夜幕中的西安城墙，中国春节（© Eastimages/Getty Images）
+![准备好庆祝了吗？](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_800x480.jpg&rf=LaDigue_800x480.jpg "准备好庆祝了吗？")
+几乎每一年的春节，西安城墙都被装扮得光彩动人，让这座千年古都彰显着更为浓郁的传统中国春节的韵味。而西安城墙的灯会更是给人们带来了绝美的体验感。当百米长灯点亮古城，烟火气息回归，现代城市与古老城市似乎打破了时空感，在夜幕降临以后，灯光璀璨之时，同时展现在眼前。置身其间的人们，似是穿越于古今两个时代，体会着千年的沧桑与繁华。
+
+西安城墙是中国现存规模最大、保存最完整的古代城垣。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_800x480.jpg&rf=LaDigue_800x480.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1024x768.jpg&rf=LaDigue_1024x768.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_UHD.jpg&rf=LaDigue_UHD.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
