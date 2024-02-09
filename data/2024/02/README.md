@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1024x768.jpg&rf=LaDigue_1024x768.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
 [下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_UHD.jpg&rf=LaDigue_UHD.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+
+
+---
+### 2024 2月 10：福起新岁，万事顺意
+#### 中国舞狮，大年初一（© SENEZ/Getty Images）
+![福起新岁，万事顺意](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_800x480.jpg&rf=LaDigue_800x480.jpg "福起新岁，万事顺意")
+炮竹声中辞旧岁，烟花满天迎新春。从年初一开始便进入迎禧接福、拜祭神祖、祈求丰年主题。在春节期间，全国各地均有举行各种庆贺新春活动，带有浓郁的各地地方特色。中国民俗传统，认为舞狮可以驱邪辟鬼。故此每逢喜庆节日，都喜欢敲锣打鼓，舞狮助庆，长盛不衰，历代相传。新的一年，喜气洋洋，万事胜意！
+
+舞狮，是中国优秀的民间艺术，古时又称为“太平乐”。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_800x480.jpg&rf=LaDigue_800x480.jpg "中国舞狮，大年初一")
+[下载720](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_1024x768.jpg&rf=LaDigue_1024x768.jpg "中国舞狮，大年初一")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国舞狮，大年初一")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg&rf=LaDigue_UHD.jpg "中国舞狮，大年初一")
