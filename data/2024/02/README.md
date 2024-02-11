@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_1024x768.jpg&rf=LaDigue_1024x768.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg&rf=LaDigue_UHD.jpg "乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊")
+
+
+---
+### 2024 2月 12：甜蜜的火山家园
+#### 阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Minden Pictures）
+![甜蜜的火山家园](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_800x480.jpg&rf=LaDigue_800x480.jpg "甜蜜的火山家园")
+1835年，英国博物学家查尔斯·达尔文探索了东太平洋的加拉帕戈斯火山群岛。在研究岛上的生物时，他得出结论：来自南美洲的各种动物物种，主要是能够穿越广阔水域的爬行动物和鸟类，迁移到了加拉帕戈斯群岛，并逐渐适应了周围的环境。这些观察结果最终为达尔文的自然选择进化论奠定了基础。研究中考察的物种之一是加拉帕戈斯象龟，这是一种只在加拉帕戈斯群岛上发现的乌龟，可以长到5英尺长。事实上，加拉帕戈斯群岛就是以这种巨龟命名的，“加拉帕戈斯”在西班牙语中就是乌龟的意思。今天是“达尔文日”，让我们来纪念这些温顺的庞然大物，它们曾为19世纪最伟大的科学发现之一做出过贡献。
+
+西班牙航海家发现加拉帕戈斯群岛时，因为岛上有很多巨大的象龟，就将这片群岛命名为“加拉帕戈斯”，而这个词在西班牙语中正是乌龟的意思。
+
+[下载480](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
