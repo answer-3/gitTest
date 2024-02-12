@@ -115,29 +115,29 @@
 ---
 ### 2024 2月 9：准备好庆祝了吗？
 #### 灯光秀点亮夜幕中的西安城墙，中国春节（© Eastimages/Getty Images）
-![准备好庆祝了吗？](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_800x480.jpg&rf=LaDigue_800x480.jpg "准备好庆祝了吗？")
+![准备好庆祝了吗？](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_800x480.jpg&rf=LaDigue_800x480.jpg "准备好庆祝了吗？")
 几乎每一年的春节，西安城墙都被装扮得光彩动人，让这座千年古都彰显着更为浓郁的传统中国春节的韵味。而西安城墙的灯会更是给人们带来了绝美的体验感。当百米长灯点亮古城，烟火气息回归，现代城市与古老城市似乎打破了时空感，在夜幕降临以后，灯光璀璨之时，同时展现在眼前。置身其间的人们，似是穿越于古今两个时代，体会着千年的沧桑与繁华。
 
 西安城墙是中国现存规模最大、保存最完整的古代城垣。
 
-[下载480](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_800x480.jpg&rf=LaDigue_800x480.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
-[下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1024x768.jpg&rf=LaDigue_1024x768.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
-[下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
-[下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_UHD.jpg&rf=LaDigue_UHD.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载480](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_800x480.jpg&rf=LaDigue_800x480.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_1024x768.jpg&rf=LaDigue_1024x768.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN8446327159_UHD.jpg&rf=LaDigue_UHD.jpg "灯光秀点亮夜幕中的西安城墙，中国春节")
 
 
 ---
 ### 2024 2月 10：福起新岁，万事顺意
 #### 中国舞狮，大年初一（© SENEZ/Getty Images）
-![福起新岁，万事顺意](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_800x480.jpg&rf=LaDigue_800x480.jpg "福起新岁，万事顺意")
+![福起新岁，万事顺意](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_800x480.jpg&rf=LaDigue_800x480.jpg "福起新岁，万事顺意")
 炮竹声中辞旧岁，烟花满天迎新春。从年初一开始便进入迎禧接福、拜祭神祖、祈求丰年主题。在春节期间，全国各地均有举行各种庆贺新春活动，带有浓郁的各地地方特色。中国民俗传统，认为舞狮可以驱邪辟鬼。故此每逢喜庆节日，都喜欢敲锣打鼓，舞狮助庆，长盛不衰，历代相传。新的一年，喜气洋洋，万事胜意！
 
 舞狮，是中国优秀的民间艺术，古时又称为“太平乐”。
 
-[下载480](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_800x480.jpg&rf=LaDigue_800x480.jpg "中国舞狮，大年初一")
-[下载720](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_1024x768.jpg&rf=LaDigue_1024x768.jpg "中国舞狮，大年初一")
-[下载1080](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国舞狮，大年初一")
-[下载UHD](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg&rf=LaDigue_UHD.jpg "中国舞狮，大年初一")
+[下载480](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_800x480.jpg&rf=LaDigue_800x480.jpg "中国舞狮，大年初一")
+[下载720](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_1024x768.jpg&rf=LaDigue_1024x768.jpg "中国舞狮，大年初一")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国舞狮，大年初一")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringFestival2024_ZH-CN8317655574_UHD.jpg&rf=LaDigue_UHD.jpg "中国舞狮，大年初一")
 
 
 ---
@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔")
+
+
+---
+### 2024 2月 13：及时行乐！
+#### 马里尼的狂欢节彩珠，新奥尔良，美国（© Erik Pronske Photography/Getty Images）
+![及时行乐！](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_800x480.jpg&rf=LaDigue_800x480.jpg "及时行乐！")
+准备好狂欢吧，因为马蒂·格拉斯狂欢节来了！这个节日也被称为“肥美星期二”或“忏悔星期二”，尽管现在许多庆祝者只是乐于把这个节日作为聚会的借口，但它最初是一个为了在斋戒之前充分享受生活的节日。世界各地的城市和国家都会举行“肥美星期二”庆祝活动，尤其是那些受到法国影响的城市和国家，法国移民会把这一习俗带到当地去。在这些地方中，新奥尔良市因其长达四至八周的大规模庆祝活动而与狂欢节结下了不解之缘。新奥尔良市每年都会举行多次狂欢节游行，庆祝活动从1月6日的三王节正式开始。当地的社交俱乐部“克鲁”会举办游行活动，并指定了时间表和路线。狂欢者们在沿途聚集，希望能抓住花车上的人扔的硬币、杯子和珠子，就像我们在图片中看到的那样。这一传统始于19世纪80年代，你准备好加入游行的队伍了吗?
+
+“Mardi Gras”这个词在法语中是“肥美星期二”的意思。
+
+[下载480](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_800x480.jpg&rf=LaDigue_800x480.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1024x768.jpg&rf=LaDigue_1024x768.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg&rf=LaDigue_UHD.jpg "马里尼的狂欢节彩珠，新奥尔良，美国")
