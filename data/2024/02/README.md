@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1024x768.jpg&rf=LaDigue_1024x768.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg&rf=LaDigue_UHD.jpg "丹顶鹤向伴侣鞠躬，北海道，日本")
+
+
+---
+### 2024 2月 15：河马日快乐！
+#### 河马妈妈和小河马，南卢安瓜国家公园，赞比亚（© Nature Picture Library/Alamy Stock Photo）
+![河马日快乐！](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_800x480.jpg&rf=LaDigue_800x480.jpg "河马日快乐！")
+今天，所有的目光都聚焦在河马身上！河马是仅次于大象和白犀牛的第三大陆栖哺乳动物，值得我们关注，尤其是在世界河马日这一天。这些半水生动物原产于撒哈拉以南的非洲地区，已被国际自然保护联盟列为易危物种。
+
+当今世界上只有两种河马，普通河马和侏儒河马。
+
+[下载480](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_800x480.jpg&rf=LaDigue_800x480.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
+[下载720](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1024x768.jpg&rf=LaDigue_1024x768.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_UHD.jpg&rf=LaDigue_UHD.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
