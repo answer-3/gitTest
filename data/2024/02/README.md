@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1024x768.jpg&rf=LaDigue_1024x768.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_UHD.jpg&rf=LaDigue_UHD.jpg "河马妈妈和小河马，南卢安瓜国家公园，赞比亚")
+
+
+---
+### 2024 2月 16：让每只鸟都有价值
+#### 一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国（© outtakes/Getty Images）
+![让每只鸟都有价值](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_800x480.jpg&rf=LaDigue_800x480.jpg "让每只鸟都有价值")
+在接下来的四天里，世界各地的观鸟者将参加一年一度的特别活动：大后院鸟类计数。在计数期间，鸟类爱好者会对他们看到的鸟类进行计数，并输入清单报告其发现。这些数据通过提供有关鸟类数量和栖息地如何随时间变化的信息，帮助科学家了解和保护鸟类。
+
+灰额主红雀对棉田有益，因为它可以吃掉大量的棉虫和象鼻虫。
+
+[下载480](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_800x480.jpg&rf=LaDigue_800x480.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg&rf=LaDigue_UHD.jpg "一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国")
