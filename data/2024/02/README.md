@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1024x768.jpg&rf=LaDigue_1024x768.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg&rf=LaDigue_UHD.jpg "多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利")
+
+
+---
+### 2024 2月 18：来一口新鲜空气
+#### 抹香鲸浮出水面，多米尼克（© Franco Banfi/Minden Pictures）
+![来一口新鲜空气](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_800x480.jpg&rf=LaDigue_800x480.jpg "来一口新鲜空气")
+嗨，海中的巨人们！世界鲸鱼日与加勒比海多米尼克岛沿岸的抹香鲸一起再次浮出水面。这个节日于1980年在毛伊岛设立，最初是为了庆祝夏威夷水域的座头鲸，现在已经演变成一个倡导保护所有鲸鱼物种的全球性活动。
+
+嗨，海中的巨人们！世界鲸鱼日与加勒比海多米尼克岛沿岸的抹香鲸一起再次浮出水面。这个节日于1980年在毛伊岛设立，最初是为了庆祝夏威夷水域的座头鲸，现在已经演变成一个倡导保护所有鲸鱼物种的全球性活动。
+
+[下载480](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_800x480.jpg&rf=LaDigue_800x480.jpg "抹香鲸浮出水面，多米尼克")
+[下载720](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1024x768.jpg&rf=LaDigue_1024x768.jpg "抹香鲸浮出水面，多米尼克")
+[下载1080](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "抹香鲸浮出水面，多米尼克")
+[下载UHD](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg&rf=LaDigue_UHD.jpg "抹香鲸浮出水面，多米尼克")
