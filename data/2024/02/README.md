@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1024x768.jpg&rf=LaDigue_1024x768.jpg "抹香鲸浮出水面，多米尼克")
 [下载1080](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "抹香鲸浮出水面，多米尼克")
 [下载UHD](https://cn.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg&rf=LaDigue_UHD.jpg "抹香鲸浮出水面，多米尼克")
+
+
+---
+### 2024 2月 19：一年四季都有鲜艳的色彩!
+#### 鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙（© Marco Bottigelli/Getty Images）
+![一年四季都有鲜艳的色彩!](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_800x480.jpg&rf=LaDigue_800x480.jpg "一年四季都有鲜艳的色彩!")
+这些色彩斑斓的街道之间发生了什么？想象下有这样一个地方，大西洋轻抚着色彩斑斓的海岸，泰德峰从3715米的高度俯瞰着它。这个地方就是特内里费岛，西班牙加那利群岛上一个风景秀美四季如春的天堂。但当二月来临时，这座岛屿就会焕然一新：这是独属于圣克鲁斯-德特内里费的狂欢节时间，其视觉效果和节日盛况可与著名的巴西里约热内卢狂欢节相媲美，也被认为是世界上第二热门和知名的狂欢节。
+
+克鲁斯港最初是为附近富裕的拉奥罗塔瓦镇所开发的港口，在那里它向外出口糖和葡萄酒等产品。
+
+[下载480](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1024x768.jpg&rf=LaDigue_1024x768.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
