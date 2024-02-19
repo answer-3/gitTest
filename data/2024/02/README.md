@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1024x768.jpg&rf=LaDigue_1024x768.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙")
+
+
+---
+### 2024 2月 20：一个供市民休闲娱乐的公园
+#### Kinder Scout，峰区国家公园，英国（© john finney photography/Getty Images）
+![一个供市民休闲娱乐的公园](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_800x480.jpg&rf=LaDigue_800x480.jpg "一个供市民休闲娱乐的公园")
+在英国峰区国家公园那片广阔的土地上，坐落着金德·斯科特自然保护区，它是英国历史上一次重要的人民运动的发生地。金德·斯科特海拔约2087英尺，是峰区的最高点，崎岖的荒野和狂风呼啸的高原吸引着世世代代的冒险家和自然爱好者前来探险。1932年，这里发生了历史性的大规模非法闯入事件，数百名民众徒步抗议要求公众可以自由进入这片领域，这一公民抗命运动促使了英国国家公园立法的通过。峰区国家公园的建立使得这里的丘陵和山谷得到保护，成为生态资源，供后人享受，同时也标志着对大众通行权以及自然资源的保护工作取得了重大胜利。
+
+金德·斯科特在BBC电视节目《七大自然奇观》（2005年）中被列为中部奇观之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_800x480.jpg&rf=LaDigue_800x480.jpg "Kinder Scout，峰区国家公园，英国")
+[下载720](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_1024x768.jpg&rf=LaDigue_1024x768.jpg "Kinder Scout，峰区国家公园，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Kinder Scout，峰区国家公园，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_UHD.jpg&rf=LaDigue_UHD.jpg "Kinder Scout，峰区国家公园，英国")
