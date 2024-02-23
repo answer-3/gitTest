@@ -320,3 +320,17 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1024x768.jpg&rf=LaDigue_1024x768.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_UHD.jpg&rf=LaDigue_UHD.jpg "Haghartsin修道院，迪利扬国家公园，亚美尼亚")
+
+
+---
+### 2024 2月 24：点亮一盏明灯，愿您万事顺意！
+#### 锦里街上悬挂的红色中国灯笼，成都，中国四川省（© Philippe LEJEANVRE/Getty images）
+![点亮一盏明灯，愿您万事顺意！](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_800x480.jpg&rf=LaDigue_800x480.jpg "点亮一盏明灯，愿您万事顺意！")
+正月是农历的元月，古人称“夜”为“宵”，正月十五是一年中第一个月圆之夜，所以称正月十五为“元宵节”。元宵节习俗自古以来就以热烈喜庆的观灯习俗为主。
+
+锦里曾是西蜀历史上较为古老、较具有商业气息的街道之一，早在秦汉、三国时期便闻名中国。
+
+[下载480](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_800x480.jpg&rf=LaDigue_800x480.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
+[下载720](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_1024x768.jpg&rf=LaDigue_1024x768.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
+[下载1080](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
+[下载UHD](https://cn.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_UHD.jpg&rf=LaDigue_UHD.jpg "锦里街上悬挂的红色中国灯笼，成都，中国四川省")
