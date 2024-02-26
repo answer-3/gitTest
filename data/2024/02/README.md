@@ -362,3 +362,17 @@ Haghartsin 修道院隐藏在亚美尼亚北部的森林之中，被迪利扬国
 [下载720](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_1024x768.jpg&rf=LaDigue_1024x768.jpg "大峡谷国家公园，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷国家公园，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷国家公园，亚利桑那州，美国")
+
+
+---
+### 2024 2月 27：在冰天雪地里玩耍
+#### 玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国（© Piriya Photography/Getty Images）
+![在冰天雪地里玩耍](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_800x480.jpg&rf=LaDigue_800x480.jpg "在冰天雪地里玩耍")
+今天是国际北极熊日，我们在欣赏这些“冰雪萌主”之际，也呼吁大家关注世界上最大的熊类所面临的挑战。国际北极熊日是由国际北极熊组织设立的，该组织致力于保护这些哺乳动物及其栖息地。选择这个日期是为了配合北极熊幼崽在洞穴中受到母亲保护的时间，因为这是北极熊一生中最脆弱的时期。
+
+北极熊是当今最大的陆地食肉哺乳动物，另一种几乎和北极熊一样大的熊是它的近亲科迪亚克棕熊。
+
+[下载480](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_800x480.jpg&rf=LaDigue_800x480.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_1024x768.jpg&rf=LaDigue_1024x768.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_UHD.jpg&rf=LaDigue_UHD.jpg "玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国")
