@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_1024x768.jpg&rf=LaDigue_1024x768.jpg "莫迪卡，西西里岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫迪卡，西西里岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_UHD.jpg&rf=LaDigue_UHD.jpg "莫迪卡，西西里岛，意大利")
+
+
+---
+### 2024 3月 3：一位浑身斑点的杂技演员
+#### 树上的豹子，克鲁格国家公园，南非（© Tonino De Marco/Minden Pictures）
+![一位浑身斑点的杂技演员](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_800x480.jpg&rf=LaDigue_800x480.jpg "一位浑身斑点的杂技演员")
+是时候踏入荒野了！世界野生动植物日是一年一度的活动，旨在强调全世界保护野生动植物的必要性。今年的主题是利用数字技术的进步帮助保护野生动植物：这些技术可以改善相关研究、促进交流和DNA分析，数字平台也可以让年轻人参与到保护地球动植物的努力中来。
+
+“世界野生动植物日”是由联合国大会于2013年12月20日决定设立的节日。
+
+[下载480](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_800x480.jpg&rf=LaDigue_800x480.jpg "树上的豹子，克鲁格国家公园，南非")
+[下载720](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_1024x768.jpg&rf=LaDigue_1024x768.jpg "树上的豹子，克鲁格国家公园，南非")
+[下载1080](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树上的豹子，克鲁格国家公园，南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_UHD.jpg&rf=LaDigue_UHD.jpg "树上的豹子，克鲁格国家公园，南非")
