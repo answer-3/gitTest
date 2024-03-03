@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_1024x768.jpg&rf=LaDigue_1024x768.jpg "树上的豹子，克鲁格国家公园，南非")
 [下载1080](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树上的豹子，克鲁格国家公园，南非")
 [下载UHD](https://cn.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_UHD.jpg&rf=LaDigue_UHD.jpg "树上的豹子，克鲁格国家公园，南非")
+
+
+---
+### 2024 3月 4：睡美人
+#### 从蒙特维多看到的阿雷纳尔火山,哥斯达黎加（© Lukas Bischoff/Getty Images）
+![睡美人](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_800x480.jpg&rf=LaDigue_800x480.jpg "睡美人")
+热带国家哥斯达黎加在向你招手！图中展示的圆锥形的阿雷纳尔火山高达5437英尺，屹立于周围的热带雨林以及该国最大的湖泊阿雷纳尔湖之上。1968年，在一次大规模的喷发中，这座沉睡的火山咆哮着苏醒了，当时的岩石飞溅了半英里多。而最近一次的大规模火山活动发生在2010年，如今，这座曾被熔岩照亮过山峰正处于休眠状态。对于观鸟者而言，阿雷纳尔火山国家公园是一个必游之地，公园内拥有500多种鸟类，除此之外，该公园还是各种动植物的家园，包括赤短角鹿、美洲狮、白脸卷尾猴、兰花、蝎尾蕉和蕨类植物。高高的阿雷纳尔火山俯瞰着这些热带树木，形成了一副壮观而美丽的风景。
+
+哥斯达黎加拥有全球5%的物种。
+
+[下载480](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_800x480.jpg&rf=LaDigue_800x480.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_1024x768.jpg&rf=LaDigue_1024x768.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_UHD.jpg&rf=LaDigue_UHD.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
