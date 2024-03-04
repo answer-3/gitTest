@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_1024x768.jpg&rf=LaDigue_1024x768.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
 [下载1080](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_UHD.jpg&rf=LaDigue_UHD.jpg "从蒙特维多看到的阿雷纳尔火山,哥斯达黎加")
+
+
+---
+### 2024 3月 5：陷入循环之中？
+#### 曼谷的交通圈和高速公路，泰国（© Avigator Fortuner/Shutterstock）
+![陷入循环之中？](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_800x480.jpg&rf=LaDigue_800x480.jpg "陷入循环之中？")
+在生机勃勃的泰国，曼谷这座城市充满了活力！这是一座占地面积超600平方英里的城市，其常住人口预估超过1000万人，占泰国总人口的15%以上。作为泰国的首都，曼谷拥有繁华的城市基础设施，而复杂的交通圈和高速公路网正是其特色。1864年竣工的石龙军路，是曼谷第一条利用现代方法铺设的马路。石龙军路的建成亦是曼谷历史上的重要节点，曼谷的主要交通方式自此从水上交通向陆路交通转变。而1972年引入的复杂的高架快速路网和廊曼收费公路的建成则使得开车进出城更加方便。多年来，曼谷的交通网络在不断地发展，以满足城市扩张的需求。
+
+曼谷第一条高速公路是查龙玛哈那空高速公路，于1981年通车。
+
+[下载480](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_800x480.jpg&rf=LaDigue_800x480.jpg "曼谷的交通圈和高速公路，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_1024x768.jpg&rf=LaDigue_1024x768.jpg "曼谷的交通圈和高速公路，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼谷的交通圈和高速公路，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_UHD.jpg&rf=LaDigue_UHD.jpg "曼谷的交通圈和高速公路，泰国")
