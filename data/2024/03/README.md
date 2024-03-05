@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_1024x768.jpg&rf=LaDigue_1024x768.jpg "曼谷的交通圈和高速公路，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼谷的交通圈和高速公路，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_UHD.jpg&rf=LaDigue_UHD.jpg "曼谷的交通圈和高速公路，泰国")
+
+
+---
+### 2024 3月 6：尽情地嬉戏玩水吧！
+#### Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国（© Eric Vogt/Tandem Stills + Motion）
+![尽情地嬉戏玩水吧！](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_800x480.jpg&rf=LaDigue_800x480.jpg "尽情地嬉戏玩水吧！")
+在俄勒冈州一处狭缝型峡谷的尽头，有一个特别的地方正等待着徒步旅行者去探索：瓦克莱拉瀑布。其水源来自哥伦比亚河的支流坦纳河，这个瀑布的名字是由马扎马登山俱乐部的成员以美国原住民村庄的名字命名的。走到步行道的尽头，游客可以观赏到壮观的两级瀑布，水流从350英尺高的地方坠落到下面的水潭中，而这个水潭正是一个绝佳的玩水、纳凉胜地，当你在里面游泳的时候，可别忘了留意附近的水鸫（也被称为美洲河乌），这是一种以瀑布为家的鸟类。人们可以看到它们沿着溪流飞翔，偶尔也会潜入水中。
+
+与大多数瀑布一样，瓦克莱拉瀑布的水流在一定程度上受季节的影响。不过由于坦纳河的水源主要来自地下泉水，因此其水流并不会被恶劣天气严重影响到。
+
+[下载480](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_800x480.jpg&rf=LaDigue_800x480.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_1024x768.jpg&rf=LaDigue_1024x768.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg&rf=LaDigue_UHD.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
