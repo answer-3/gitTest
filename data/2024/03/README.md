@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_1024x768.jpg&rf=LaDigue_1024x768.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg&rf=LaDigue_UHD.jpg "Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国")
+
+
+---
+### 2024 3月 7：攀登新的高峰
+#### Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙（© Sergi Boixader/Alamy Stock Photo）
+![攀登新的高峰](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_800x480.jpg&rf=LaDigue_800x480.jpg "攀登新的高峰")
+奇特的山峰耸立在埃尔斯港自然公园的上空，这是一组位于西班牙加泰罗尼亚地区波特斯德托尔托萨贝塞特山的岩石群。这组岩石群里最高的山峰海拔约3,330英尺，从山顶上俯瞰埃布罗三角洲，可以看到溪流和松树林，还有通往山中的小径。该山的名字中包含“Benet”一词，这个词源于阿拉伯语，暗示着该地区有着丰富多彩的过去。如今，埃尔斯港自然公园是各种动物的家园，从野生山羊和水獭到秃鹫和老鹰，园区内物种丰富。不过，动物并不是该地区唯一的“居民”。山脚下还坐落着一个具有社区意识的村庄，村民们仍然保持着共同的传统，例如使用植物纤维来制作篮子和厨房用具的古老工艺。
+
+在大航海时代，西班牙率先对新大陆进行了探索和殖民，并形成了历史上最大的帝国之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_800x480.jpg&rf=LaDigue_800x480.jpg "Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_1024x768.jpg&rf=LaDigue_1024x768.jpg "Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg&rf=LaDigue_UHD.jpg "Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙")
