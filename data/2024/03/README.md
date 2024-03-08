@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_1024x768.jpg&rf=LaDigue_1024x768.jpg "伊瓜苏大瀑布鸟瞰图，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊瓜苏大瀑布鸟瞰图，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg&rf=LaDigue_UHD.jpg "伊瓜苏大瀑布鸟瞰图，巴西")
+
+
+---
+### 2024 3月 9：因时间而改变
+#### 比斯第恶土，新墨西哥州，美国（© Ian Shive/Tandem Stills + Motion）
+![因时间而改变](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_800x480.jpg&rf=LaDigue_800x480.jpg "因时间而改变")
+时间是伟大的变革者，它改变着世界，也改变着我们所有人。例如，新墨西哥州的这片名为比斯第恶土的荒地，曾经是一片郁郁葱葱的热带森林。近7000万年前，这里没有扭曲的地形和高耸的尖塔，而是一群白垩纪晚期恐龙的家园，包括甲龙、鸭嘴龙和强大的霸王龙。如今，这里到处都是另一种奇观，岩层看起来更像是雕塑，而不是自然现象。比斯第恶土的名字“Bisti/De-Na-Zin”是以纳瓦霍语命名的：“Bisti” 的意思是 "在土坯岩层中"，“De-Na-Zin” 则来自附近的 "站立的仙起重机"石刻。来到四角地区的游客一定不要错过这片由页岩和砂岩组成的超凡脱俗的景观。
+
+在世界上任何一个单一的沉积盆地中，荒地展露了跨越白垩纪-古近纪边界的最长、最完整、最丰富的化石层序列。
+
+[下载480](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_800x480.jpg&rf=LaDigue_800x480.jpg "比斯第恶土，新墨西哥州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_1024x768.jpg&rf=LaDigue_1024x768.jpg "比斯第恶土，新墨西哥州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "比斯第恶土，新墨西哥州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg&rf=LaDigue_UHD.jpg "比斯第恶土，新墨西哥州，美国")
