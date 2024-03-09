@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_1024x768.jpg&rf=LaDigue_1024x768.jpg "比斯第恶土，新墨西哥州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "比斯第恶土，新墨西哥州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg&rf=LaDigue_UHD.jpg "比斯第恶土，新墨西哥州，美国")
+
+
+---
+### 2024 3月 10：是时候调整时间了
+#### 圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州（© Richard T. Nowitz/Getty Images）
+![是时候调整时间了](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_800x480.jpg&rf=LaDigue_800x480.jpg "是时候调整时间了")
+今天的时间至关重要：三月的第二个星期日标志着夏令时的开始。今天凌晨2点开始，时钟向前拨动一小时，这意味着今天白天会“多”出一个小时。本杰明·富兰克林通常被认为是夏令时的发明者，但第一个真正意义上提出拨动时钟建议的人是新西兰昆虫学家乔治·赫德森。在1895年，因为他想在白天有更多的时间来采集昆虫，他提出了这一改动。
+
+夏令时规则的改变会给现有的计算机安装带来问题。例如，2007年北美对夏令时规则的修改要求许多计算机系统进行升级，而电子邮件和日历程序的升级压力则是最大的。
+
+[下载480](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_800x480.jpg&rf=LaDigue_800x480.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
+[下载720](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
+[下载1080](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_UHD.jpg&rf=LaDigue_UHD.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
