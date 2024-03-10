@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
 [下载1080](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_UHD.jpg&rf=LaDigue_UHD.jpg "圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州")
+
+
+---
+### 2024 3月 11：醉人的山峦
+#### Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利（© Richard T. Nowitz/Getty Images）
+![醉人的山峦](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_800x480.jpg&rf=LaDigue_800x480.jpg "醉人的山峦")
+科内利亚诺和瓦尔多比亚德内的Prosecco丘陵是大自然与人类智慧完美结合的地方。由于其独特性，这些山丘已被联合国教科文组织列入世界遗产名录。特殊的丘陵地带给该地带来了由葡萄园和树林构成的有机环境。而在马赛克般的景观中脱颖而出的小村庄和葡萄园，却只是让这个地方显得独一无二的部分因素。
+
+与香槟和弗朗恰柯塔不同，Prosecco通常采用查玛法（又称马丁诺帝法）生产，即在大型不锈钢罐中进行二次发酵，而不是在每个酒瓶中发酵，从而降低了葡萄酒的生产成本，其最短的生产时间为30天。
+
+[下载480](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_800x480.jpg&rf=LaDigue_800x480.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_1024x768.jpg&rf=LaDigue_1024x768.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_UHD.jpg&rf=LaDigue_UHD.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
