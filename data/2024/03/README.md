@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_1024x768.jpg&rf=LaDigue_1024x768.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_UHD.jpg&rf=LaDigue_UHD.jpg "Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利")
+
+
+---
+### 2024 3月 12：峡谷的守护者
+#### 布莱斯峡谷国家公园，犹他州，美国（© Jim Patterson/Tandem Stills + Motion）
+![峡谷的守护者](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_800x480.jpg&rf=LaDigue_800x480.jpg "峡谷的守护者")
+徒步是游览犹他州布莱斯峡谷国家公园这些迷人的红色石柱的最佳选择！公园里的徒步小径可以引导您穿行于世界上最大的石柱岩群之间，这些石柱是由侵蚀作用形成的岩石尖顶。这些马蹄形的天然露天剧场会随着阳光的照射而变化，营造出了一种超现实的景观。该地区最初居住着美洲原住民部落，包括派尤特人。虽然没有证据表明他们曾在此长期居住，但派尤特族印第安人曾利用庞沙冈特高原进行季节性狩猎和采集。布莱斯峡谷于1928年被指定为国家公园，峡谷内分布着多个观景点，如灵感点、约文帕点和彩虹点，可将周围的景致尽收眼底。
+
+彩虹点是布莱斯峡谷国家公园的最高处，海拔9105英尺（2775米），位于18英里（29公里）观光车程的终点处。从这里可以看到宝瓶星座高原、布莱斯露天剧场、亨利山脉、赤岩断崖和白岩断崖。
+
+[下载480](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_800x480.jpg&rf=LaDigue_800x480.jpg "布莱斯峡谷国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_1024x768.jpg&rf=LaDigue_1024x768.jpg "布莱斯峡谷国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱斯峡谷国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg&rf=LaDigue_UHD.jpg "布莱斯峡谷国家公园，犹他州，美国")
