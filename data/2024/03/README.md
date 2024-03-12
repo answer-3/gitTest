@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_1024x768.jpg&rf=LaDigue_1024x768.jpg "布莱斯峡谷国家公园，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱斯峡谷国家公园，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg&rf=LaDigue_UHD.jpg "布莱斯峡谷国家公园，犹他州，美国")
+
+
+---
+### 2024 3月 13：鸟瞰
+#### 小红鹳飞越马加迪湖,肯尼亚（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
+![鸟瞰](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰")
+多么不可思议的景色啊！这张航拍照片展示了以肯尼亚马加迪湖为背景的小红鹳群。小红鹳是六种火烈鸟之一，以其鲜艳的粉红色羽毛和独特的觅食行为而闻名。由于喙的构造，这些鸟喜欢在水面附近进食。它们主要栖息在碳酸盐浓度较高的非洲苏打湖。马加迪湖就是这样一个充满蓝藻和海藻的苏打湖，为火烈鸟提供了充足的营养。成千上万只火烈鸟聚集在湖边的壮观景象揭示了这些独特生态系统的重要性。
+
+小红鹳可能是最常见的火烈鸟品种，其数量在高峰期曾多达两百万只。
+
+[下载480](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_800x480.jpg&rf=LaDigue_800x480.jpg "小红鹳飞越马加迪湖,肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_1024x768.jpg&rf=LaDigue_1024x768.jpg "小红鹳飞越马加迪湖,肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小红鹳飞越马加迪湖,肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_UHD.jpg&rf=LaDigue_UHD.jpg "小红鹳飞越马加迪湖,肯尼亚")
