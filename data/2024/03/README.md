@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_1024x768.jpg&rf=LaDigue_1024x768.jpg "小红鹳飞越马加迪湖,肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小红鹳飞越马加迪湖,肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_UHD.jpg&rf=LaDigue_UHD.jpg "小红鹳飞越马加迪湖,肯尼亚")
+
+
+---
+### 2024 3月 14：一个π
+#### Wat Phra Ngam，大城府历史公园，泰国（© boonchai wedmakawand/Alamy Stock Photo）
+![一个π](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_800x480.jpg&rf=LaDigue_800x480.jpg "一个π")
+有人这样说过，世界上唯一不变的是变化。然而，在数学里却有许多固定不变的常数，今天，我们要庆祝的也许是其中最著名的一个：π。圆周率是圆的周长与直径之比，约为3.14159。每年的3月14日，全世界的数学爱好者都会用烘焙来庆祝圆周率π日——这既是对数学常数π的庆祝，也是对其同音字，美味的“派”的庆祝。它始于1988年，当时物理学家拉里·肖将日期（3/14）与这个常数的前三位数联系起来。今天，数学家和爱好者们用吃派和背诵π来庆祝圆周率日。你知道吗，当你的时钟敲响1:59时，表示你离圆周率的实际值又近了三位小数。圆周率无处不在，甚至在大自然中也是如此。图中是泰国大城府寺庙的一棵菩提树，其形状就像圆周率的符号。无论你是数学怪才，还是只是为了享受美食，每个人都可以享受“派”节！
+
+每年的3月14日被称为“圆周率日”。
+
+[下载480](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_800x480.jpg&rf=LaDigue_800x480.jpg "Wat Phra Ngam，大城府历史公园，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_1024x768.jpg&rf=LaDigue_1024x768.jpg "Wat Phra Ngam，大城府历史公园，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Wat Phra Ngam，大城府历史公园，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_UHD.jpg&rf=LaDigue_UHD.jpg "Wat Phra Ngam，大城府历史公园，泰国")
