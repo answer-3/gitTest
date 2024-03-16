@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_1024x768.jpg&rf=LaDigue_1024x768.jpg "正在吃竹子的大熊猫，中国成都")
 [下载1080](https://cn.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在吃竹子的大熊猫，中国成都")
 [下载UHD](https://cn.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_UHD.jpg&rf=LaDigue_UHD.jpg "正在吃竹子的大熊猫，中国成都")
+
+
+---
+### 2024 3月 17：今天，让我们穿绿衣裳吧！
+#### 圣菲尼安湾，凯里郡，爱尔兰（© Atlantide Phototravel/Getty Images）
+![今天，让我们穿绿衣裳吧！](https://cn.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_800x480.jpg&rf=LaDigue_800x480.jpg "今天，让我们穿绿衣裳吧！")
+今天，全球数百万具有爱尔兰血统的人都在庆祝圣帕特里克节。圣帕特里克是爱尔兰国家的守护神，大约在公元432年，他将基督教引入到爱尔兰。公元461年3月17日，圣帕特里克逝世，这一天成为了爱尔兰纪念他的日子。
+
+考古学家在圣菲尼安湾附近发现了青铜时代的遗迹。在拉特克林有一座土堡的遗迹，还有许多石墓和地下储藏室。
+
+[下载480](https://cn.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_800x480.jpg&rf=LaDigue_800x480.jpg "圣菲尼安湾，凯里郡，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣菲尼安湾，凯里郡，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣菲尼安湾，凯里郡，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_UHD.jpg&rf=LaDigue_UHD.jpg "圣菲尼安湾，凯里郡，爱尔兰")
