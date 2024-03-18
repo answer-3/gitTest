@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_1024x768.jpg&rf=LaDigue_1024x768.jpg "大象岩，古城欧拉，沙特阿拉伯")
 [下载1080](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大象岩，古城欧拉，沙特阿拉伯")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg&rf=LaDigue_UHD.jpg "大象岩，古城欧拉，沙特阿拉伯")
+
+
+---
+### 2024 3月 19：春日私语
+#### 盛开的扁桃树, 加利福尼亚州，美国（© Jeffrey Lewis/Tandem Stills + Motion）
+![春日私语](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_800x480.jpg&rf=LaDigue_800x480.jpg "春日私语")
+在阳光普照的金州（加利福尼亚州的别称）果园中，扁桃仁享有崇高的地位，它以美味的果实诱惑着人们的味蕾，用漂亮的花朵装点着自然环境。而加利福尼亚州种植的扁桃仁占世界市场供应量的80%，占美国市场供应量的100%。据悉，扁桃仁中含有对心脏有益的单不饱和脂肪，还富含纤维、蛋白质以及大量的维生素和矿物质，是一种营养丰富的食物。二三月份，在加利福尼亚州的中央山谷中，这些扁桃树的种子会从娇嫩的花朵中孕育出来，然后在一种毛茸茸的、有着保护作用的外壳中生长，直至成熟。扁桃树属于蔷薇科，在花期会绽放出美丽的花朵，而这些芬芳的花朵会将果园涂染成白色和粉色色调。
+
+扁桃仁是在埃及图坦卡蒙陵墓中发现的珍宝之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的扁桃树, 加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1024x768.jpg&rf=LaDigue_1024x768.jpg "盛开的扁桃树, 加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的扁桃树, 加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的扁桃树, 加利福尼亚州，美国")
