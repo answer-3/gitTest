@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1024x768.jpg&rf=LaDigue_1024x768.jpg "盛开的扁桃树, 加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的扁桃树, 加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的扁桃树, 加利福尼亚州，美国")
+
+
+---
+### 2024 3月 20：粉嫩的春日美景
+#### 鸟瞰春日盛开的樱花，中国（© outcast85/Getty images）
+![粉嫩的春日美景](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_800x480.jpg&rf=LaDigue_800x480.jpg "粉嫩的春日美景")
+春分时节，中国大部分地区已进入明媚的春天。此时，严寒已过，气温迅速回升。春分过后，人们开始陆续外出。在户外活动中，放风筝是一项重要的项目。古代还有春分戴花、饮酒的习俗。在这一天，无论男女老少都会在头发上戴花。
+
+据文献资料考证，两千多年前的秦汉时期，樱花已在中国宫苑内栽培。唐朝时樱花已普遍出现在私家庭院。
+
+[下载480](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰春日盛开的樱花，中国")
+[下载720](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_1024x768.jpg&rf=LaDigue_1024x768.jpg "鸟瞰春日盛开的樱花，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰春日盛开的樱花，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰春日盛开的樱花，中国")
