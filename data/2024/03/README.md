@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴西亚马逊上空巨大的砧状云")
 [下载1080](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴西亚马逊上空巨大的砧状云")
 [下载UHD](https://cn.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_UHD.jpg&rf=LaDigue_UHD.jpg "巴西亚马逊上空巨大的砧状云")
+
+
+---
+### 2024 3月 24：你能挪过去一点吗?
+#### 樱花树枝上的灰胸绣眼鸟，韩国（© TigerSeo/Getty Images）
+![你能挪过去一点吗?](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_800x480.jpg&rf=LaDigue_800x480.jpg "你能挪过去一点吗?")
+跟这些在韩国赏樱花的灰胸绣眼鸟打个招呼吧！它们身披黄羽，身形滚圆，个子小巧，喜欢成群出没。虽然这种雀形目鸟类原产于非洲、澳大拉西亚和亚洲，但由于引进的关系，在法属波利尼西亚和夏威夷等地也能看到它们的身影。灰胸绣眼鸟又名银绣眼鸟，有各种颜色和图案，但它们都有标志性的眼圈。它们嗜甜如命，爱吃花蜜，但也不挑食，水果、昆虫和浆果它们也喜欢吃。在阳春三月，让我们赞美这些为春天增添一抹奇妙色彩的小精灵吧！
+
+虽然灰胸绣眼鸟可以控制昆虫的数量，但由于它们喜欢吃水果，一些果园的主人认为它们是害虫。
+
+[下载480](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_800x480.jpg&rf=LaDigue_800x480.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
+[下载720](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_1024x768.jpg&rf=LaDigue_1024x768.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
+[下载1080](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_UHD.jpg&rf=LaDigue_UHD.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
