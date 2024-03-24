@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_1024x768.jpg&rf=LaDigue_1024x768.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
 [下载1080](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_UHD.jpg&rf=LaDigue_UHD.jpg "樱花树枝上的灰胸绣眼鸟，韩国")
+
+
+---
+### 2024 3月 25：春意盎然
+#### 弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大（© LeonU/Getty Images）
+![春意盎然](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_800x480.jpg&rf=LaDigue_800x480.jpg "春意盎然")
+伴随着不断绽放的花朵，春天正式开始倒计时。在今天的照片中，弗雷泽河谷的郁金香绽放出鲜艳的色彩，为四月的阿伯兹福德郁金香节做准备。流经城市北部边界的弗雷泽河滋养了阿伯兹福德肥沃的土壤。
+
+世界上最大的郁金香节在加拿大渥太华举行。荷兰送来的郁金香是为了纪念加拿大和荷兰在第二次世界大战期间所建立的深厚友谊，当时加拿大军队领导了解放荷兰的行动，并接待了流亡海外的荷兰王室。
+
+[下载480](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_800x480.jpg&rf=LaDigue_800x480.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_1024x768.jpg&rf=LaDigue_1024x768.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_UHD.jpg&rf=LaDigue_UHD.jpg "弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大")
