@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_1024x768.jpg&rf=LaDigue_1024x768.jpg "海水从古老的珊瑚礁上倾泻而下，杭莱，越南")
 [下载1080](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海水从古老的珊瑚礁上倾泻而下，杭莱，越南")
 [下载UHD](https://cn.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_UHD.jpg&rf=LaDigue_UHD.jpg "海水从古老的珊瑚礁上倾泻而下，杭莱，越南")
+
+
+---
+### 2024 3月 27：戏剧成为关注的焦点
+#### 布宜诺斯艾利斯哥伦布剧院，阿根廷（© Wei Hao Ho/Alamy Stock Photo）
+![戏剧成为关注的焦点](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_800x480.jpg&rf=LaDigue_800x480.jpg "戏剧成为关注的焦点")
+今天，整个世界都是一个大舞台。每年的3月27日，世界戏剧日都会在雷鸣般的掌声中拉开帷幕，为戏剧这个数百年来一直影响着大众的艺术形式奏响颂歌。世界戏剧日旨在推广戏剧，引起人们对戏剧艺术的重视，共享戏剧艺术给人类带来的精神财富。今天图中所见的是布宜诺斯艾利斯的哥伦布剧院，它是阿根廷丰富戏剧遗产的象征。这座剧院建于1908年，以其宏伟的建筑和卓越的音响效果而闻名，是世界上首屈一指的歌剧院。多年来，这里举办了许多传奇人物的演出，如恩里科·卡鲁索、理查·施特劳斯、莉丽·庞斯、玛丽娜·德·加巴林、乔斯·史东、布兰福德·马萨利斯等。在这个专属于戏剧的日子里，让我们一起欣赏这种以最壮观的方式讲述故事的艺术形式！
+
+哥伦布剧院卓越的音响效果享誉全球，可跻身世界五大演出场所之列，鲁契亚诺·帕瓦罗蒂也认可这一观点。
+
+[下载480](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_800x480.jpg&rf=LaDigue_800x480.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
+[下载720](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_1024x768.jpg&rf=LaDigue_1024x768.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
+[下载1080](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
+[下载UHD](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&rf=LaDigue_UHD.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
