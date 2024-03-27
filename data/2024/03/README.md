@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_1024x768.jpg&rf=LaDigue_1024x768.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
 [下载1080](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
 [下载UHD](https://cn.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg&rf=LaDigue_UHD.jpg "布宜诺斯艾利斯哥伦布剧院，阿根廷")
+
+
+---
+### 2024 3月 28：花香满径
+#### 上海的樱花，中国（© Yaorusheng/Getty Images）
+![花香满径](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_800x480.jpg&rf=LaDigue_800x480.jpg "花香满径")
+春天，大自然展现出勃勃生机，樱花盛开标志着一个季节的开始。在全球范围内，从日本到美国，这一奇观吸引了数百万人的目光。在中国，樱花从3月下旬开到4月下旬，粉色和白色的樱花点缀着一幅幅美景。这些脆弱的花瓣在中国人的传统中有着深远的意义，象征着新生、希望和生命的短暂。中国有很多赏樱地点，包括武汉的东湖樱花公园、上海的顾村公园和鲁迅公园，以及北京的玉渊潭公园。樱花看起来与梅花相似，但区分两者的一个简单方法是看它们的花瓣。樱花的花瓣末端有分叉，而梅花没有。
+
+全球变暖可能影响樱花树的花期。
+
+[下载480](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_800x480.jpg&rf=LaDigue_800x480.jpg "上海的樱花，中国")
+[下载720](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_1024x768.jpg&rf=LaDigue_1024x768.jpg "上海的樱花，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上海的樱花，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_UHD.jpg&rf=LaDigue_UHD.jpg "上海的樱花，中国")
