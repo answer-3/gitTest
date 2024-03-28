@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_1024x768.jpg&rf=LaDigue_1024x768.jpg "上海的樱花，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上海的樱花，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_UHD.jpg&rf=LaDigue_UHD.jpg "上海的樱花，中国")
+
+
+---
+### 2024 3月 29：潮涨潮落，灯火通明
+#### 日落时的南斯塔克灯塔，霍利希德，威尔士，英国（© mariotlr/Getty Images）
+![潮涨潮落，灯火通明](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_800x480.jpg&rf=LaDigue_800x480.jpg "潮涨潮落，灯火通明")
+南斯塔克灯塔建在威尔士圣岛崎岖的悬崖上，俯瞰着爱尔兰海的深水区。自1809年建成以来，这座91英尺高的白塔一直为水手们指引方向；它为都柏林-霍利黑德-利物浦航线上的船只提供了安全通道。灯塔建成时，使用抹香鲸油点亮灯具；但多年来，灯塔的机械装置已升级为更先进的技术，如LED灯泡和菲涅尔透镜。灯塔于1984年实现自动化，其强大的光束照射范围可达28英里，至今仍是重要的导航设备。当夕阳西下，天空布满五彩斑斓的色彩时，南斯塔克灯塔在黄昏中的剪影令人叹为观止。游客们会勇敢地从陡峭的悬崖上爬下400级台阶，探索灯塔以及它的机房和展览区。
+
+南斯塔克灯塔建于1809年，用于提醒船只注意下方危险的岩石。
+
+[下载480](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_800x480.jpg&rf=LaDigue_800x480.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
+[下载720](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
