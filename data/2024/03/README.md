@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的南斯塔克灯塔，霍利希德，威尔士，英国")
+
+
+---
+### 2024 3月 30：来自“颠倒世界”的问候
+#### 睡在号角树上的褐喉树懒，哥斯达黎加（© Juan Carlos Vindas/Getty Images）
+![来自“颠倒世界”的问候](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_800x480.jpg&rf=LaDigue_800x480.jpg "来自“颠倒世界”的问候")
+哥斯达黎加郁郁葱葱的森林是两种树懒的栖息地：霍夫曼双趾树懒和今天的主角——褐喉树懒。尽管褐喉树懒的体型比许多树栖哺乳动物都要大，但它们为了适应树上的生活，减少了肌肉含量，缩小了体型。它们的胃很大，有四个胃室，吃饱后可占体重的30%。这些毛茸茸的小动物久坐不动，以至于它们的皮毛上长出了藻类。这种共生关系为它们加入了绿色元素，在雨林树冠中提供了有效的伪装。2021年，这些行动缓慢的生物被宣布为哥斯达黎加的国家象征。为了强调树懒在该国生态系统中的重要性，卡洛斯·阿尔瓦拉多总统还签署了这项倡议，使其变成了法律条文。
+
+树懒是致力于森林保护的哥斯达黎加的国家象征。
+
+[下载480](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_800x480.jpg&rf=LaDigue_800x480.jpg "睡在号角树上的褐喉树懒，哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_1024x768.jpg&rf=LaDigue_1024x768.jpg "睡在号角树上的褐喉树懒，哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "睡在号角树上的褐喉树懒，哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg&rf=LaDigue_UHD.jpg "睡在号角树上的褐喉树懒，哥斯达黎加")
