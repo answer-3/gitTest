@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_1024x768.jpg&rf=LaDigue_1024x768.jpg "睡在号角树上的褐喉树懒，哥斯达黎加")
 [下载1080](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "睡在号角树上的褐喉树懒，哥斯达黎加")
 [下载UHD](https://cn.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg&rf=LaDigue_UHD.jpg "睡在号角树上的褐喉树懒，哥斯达黎加")
+
+
+---
+### 2024 3月 31：纯洁与优雅的象征
+#### 潘塔纳尔湿地的大白鹭，巴西（© Geraldi Corsi/Getty Images）
+![纯洁与优雅的象征](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_800x480.jpg&rf=LaDigue_800x480.jpg "纯洁与优雅的象征")
+在巴西潘塔纳尔泻湖平静的水面上，我们看到了一只娇小的白鹭。这些生物具有令人难以置信的调节体温的能力，它们会调节阳光照射面积，甚至用自己的翅膀来控制体温。
+
+大白鹭的飞行速度缓慢却很有力：它们每秒只拍两下翅膀，巡航速度约为每小时25英里。
+
+[下载480](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_800x480.jpg&rf=LaDigue_800x480.jpg "潘塔纳尔湿地的大白鹭，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_1024x768.jpg&rf=LaDigue_1024x768.jpg "潘塔纳尔湿地的大白鹭，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潘塔纳尔湿地的大白鹭，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_UHD.jpg&rf=LaDigue_UHD.jpg "潘塔纳尔湿地的大白鹭，巴西")
