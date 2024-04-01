@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_1024x768.jpg&rf=LaDigue_1024x768.jpg "勃朗峰上的冰海，夏慕尼，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "勃朗峰上的冰海，夏慕尼，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg&rf=LaDigue_UHD.jpg "勃朗峰上的冰海，夏慕尼，法国")
+
+
+---
+### 2024 4月 2：一缕阳光下的林地
+#### 日德兰半岛的山毛榉树和野生海葵 ，丹麦（© Nick Brundle Photography/Getty Images）
+![一缕阳光下的林地](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_800x480.jpg&rf=LaDigue_800x480.jpg "一缕阳光下的林地")
+今天，图片上的风景将我们带到了丹麦的日德兰半岛。随着春天的到来，这片北方的土地展现出了一种属于山毛榉树的绿色色调，而山毛榉树正是丹麦的“国树”。对于丹麦人民来说，这些正在发芽的山毛榉树是一种独特的存在，在四五月份，他们会把树上的嫩叶采摘下来用于烹饪中，尤其是用在沙拉中。过去，欧洲人经常使用山毛榉树光滑的树皮来书写文字。这也是为什么，在现代荷兰语中，"书籍"一词直接翻译为"山毛榉树"。当阳光穿过森林中的树冠照耀下来时，野生海葵用白色的花瓣点亮了林地，它们代表着精致之美和真诚纯粹，曾在莫奈和梵高等艺术家的杰作中“担任主角”。
+
+山毛榉树是雌雄同株的植物。
+
+[下载480](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_800x480.jpg&rf=LaDigue_800x480.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
+[下载720](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_1024x768.jpg&rf=LaDigue_1024x768.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
+[下载1080](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
+[下载UHD](https://cn.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_UHD.jpg&rf=LaDigue_UHD.jpg "日德兰半岛的山毛榉树和野生海葵 ，丹麦")
