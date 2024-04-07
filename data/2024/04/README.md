@@ -96,3 +96,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_1024x768.jpg&rf=LaDigue_1024x768.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_UHD.jpg&rf=LaDigue_UHD.jpg "奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国")
+
+
+---
+### 2024 4月 8：闻闻春天的气息
+#### 欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国（© Oksana Schmidt/Getty Images）
+![闻闻春天的气息](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_800x480.jpg&rf=LaDigue_800x480.jpg "闻闻春天的气息")
+欧洲刺猬，又称西欧刺猬或普通刺猬，是一种原产于欧洲的刺猬物种。北起伊比利亚和意大利，南至斯堪的纳维亚半岛，西至不列颠群岛，均有它们的身影。刺猬之中，偶尔会出现白化刺猬或“金发”刺猬，据说这种刺猬有一对罕见的隐性基因，因此眼睛是黑色的，刺是乳白色的，但严格来说，它们并不是白化刺猬。
+
+刺猬一直是童话故事中富有趣味的形象。最古老的传说是，它们用身上的刺来搬运植物的果实。
+
+[下载480](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
+[下载720](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_1024x768.jpg&rf=LaDigue_1024x768.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_UHD.jpg&rf=LaDigue_UHD.jpg "欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国")
