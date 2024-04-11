@@ -152,3 +152,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_1024x768.jpg&rf=LaDigue_1024x768.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
 [下载1080](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
 [下载UHD](https://cn.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg&rf=LaDigue_UHD.jpg "丘伦梅鲁瀑布鸟瞰图，委内瑞拉")
+
+
+---
+### 2024 4月 12：一座天然拱门
+#### 拱门国家公园，犹他州，美国（© Anthony Heflin/Shutterstock）
+![一座天然拱门](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_800x480.jpg&rf=LaDigue_800x480.jpg "一座天然拱门")
+如果你想沉浸式感受在时光中漫步的滋味，拱门国家公园是一个绝佳的选择！该公园拥有2000多座天然石拱，数百座高大的尖塔、大型石鳍和巨大的平衡石，是世界上风景最优美的旅游胜地之一。在两平方英里左右的空间内囊括了不少壮丽景观，包括北窗拱门（最具人气的巨环之一），炮塔拱门和双拱门。而以伊甸园、大象丘（5653英尺高）和大象巡游等名字命名的景点对游客而言，则意味着这里永远不缺壮观的景色。
+
+持续的侵蚀加上垂直应力和水平应力最终会导致拱门坍塌，但新的拱门仍会在数千年内继续形成。
+
+[下载480](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_800x480.jpg&rf=LaDigue_800x480.jpg "拱门国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_1024x768.jpg&rf=LaDigue_1024x768.jpg "拱门国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园，犹他州，美国")
