@@ -166,3 +166,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_1024x768.jpg&rf=LaDigue_1024x768.jpg "拱门国家公园，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SunsetArchesNP_ZH-CN9875945974_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园，犹他州，美国")
+
+
+---
+### 2024 4月 13：花开正满枝
+#### 春天的苹果树，德国（© Smileus/Getty Images）
+![花开正满枝](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_800x480.jpg&rf=LaDigue_800x480.jpg "花开正满枝")
+在这个风景如画的果园里，春天预示着苹果树的繁花盛开。当空气中的寒意开始消退，娇嫩的苹果花绽放了，释放出的甜美气息在整个乡村弥漫开来，标志着丰收进程的开始。苹果属于蔷薇科，以其清脆的口感和酸甜的味道而闻名，是世界上最受人喜爱的水果之一。这些果子有各种各样的颜色，从鲜艳的红色到金黄色以及亮绿色。从酸甜可口的“史密斯奶奶”到纯甜的富士苹果，每种苹果都有其独特的风味。苹果富含膳食纤维、抗氧化剂以及维生素C和维生素K等人体必需维生素，促进身体健康。无论你是喜欢吃新鲜的果肉，还是喜欢烘焙成甜品，抑或是压榨成苹果酒，苹果都是经典的美味佳肴。
+
+苹果体积的25%是由空气构成的，这就是为什么它能漂浮在水面上。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_800x480.jpg&rf=LaDigue_800x480.jpg "春天的苹果树，德国")
+[下载720](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_1024x768.jpg&rf=LaDigue_1024x768.jpg "春天的苹果树，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的苹果树，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_UHD.jpg&rf=LaDigue_UHD.jpg "春天的苹果树，德国")
