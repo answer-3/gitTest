@@ -180,3 +180,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_1024x768.jpg&rf=LaDigue_1024x768.jpg "春天的苹果树，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的苹果树，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_UHD.jpg&rf=LaDigue_UHD.jpg "春天的苹果树，德国")
+
+
+---
+### 2024 4月 14：岩石保龄球
+#### 保龄球海滩的日落，门多西诺县，加利福尼亚，美国（© Melo Qiao/Getty Images）
+![岩石保龄球](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_800x480.jpg&rf=LaDigue_800x480.jpg "岩石保龄球")
+欢迎来到大自然的保龄球馆！位于加州门多西诺海岸的保龄球海滩以散布在海岸上的那些引人注目的岩石而命名。这些砂岩球（一种被称为结核的现象）是在数百万年的沉积过程中形成的，沉积层围绕着由矿物胶结物固定在一起的砂石核心堆积而成。侵蚀作用逐渐磨损了外层，露出我们今天看到的球形。这创造了一个只有在退潮时才会出现的迷人景象。这种砂岩球很罕见，人们对它们的来源有很多疯狂的猜测，有人认为它们是外星碎片，也有人怀疑它们是恐龙化石。然而，答案非常简单：这是大自然的力量在起作用。
+
+由于这些岩块结核的形状、大小和成分各不相同，因此被说成恐龙蛋以及外星碎片。
+
+[下载480](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_800x480.jpg&rf=LaDigue_800x480.jpg "保龄球海滩的日落，门多西诺县，加利福尼亚，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_1024x768.jpg&rf=LaDigue_1024x768.jpg "保龄球海滩的日落，门多西诺县，加利福尼亚，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "保龄球海滩的日落，门多西诺县，加利福尼亚，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_UHD.jpg&rf=LaDigue_UHD.jpg "保龄球海滩的日落，门多西诺县，加利福尼亚，美国")
