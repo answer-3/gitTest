@@ -222,3 +222,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_1024x768.jpg&rf=LaDigue_1024x768.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_UHD.jpg&rf=LaDigue_UHD.jpg "暮色中的曼哈顿下城联合广场，纽约，美国")
+
+
+---
+### 2024 4月 17：我是不是睡得太久了？
+#### 春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国（© Scott Suriano/Getty Images）
+![我是不是睡得太久了？](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_800x480.jpg&rf=LaDigue_800x480.jpg "我是不是睡得太久了？")
+欢迎来到这个世界，可爱的熊宝宝！图中这只毛茸茸的美洲黑熊幼崽才从冬眠中醒来，它在巢穴中度过了生命最初的几个月，现在，它或许对外面的世界感到陌生又困惑。黑熊幼崽一般出生在一月份至二月份，而后一直呆在巢穴里，直到四月中旬或五月初才会离开。刚踏入春天时，小黑熊的体重只有5磅左右，等长到一岁时，体重会长到约80磅。成年黑熊的体重一般在100磅至600磅之间，具体能长到重，取决于它们的年龄、性别、季节、以及栖息地的食物资源。今天图片的背景是弗吉尼亚州仙纳度国家公园，迄今为止，黑熊是这里唯一被发现的熊类。
+
+黑熊有着厚厚的“皮毛外套”，这个外套由多层蓬松的软毛组成，在寒冷的冬天可以保暖。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_800x480.jpg&rf=LaDigue_800x480.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1024x768.jpg&rf=LaDigue_1024x768.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg&rf=LaDigue_UHD.jpg "春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国")
