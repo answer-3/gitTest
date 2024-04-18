@@ -250,3 +250,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1024x768.jpg&rf=LaDigue_1024x768.jpg "中世纪城墙，阿维拉，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中世纪城墙，阿维拉，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg&rf=LaDigue_UHD.jpg "中世纪城墙，阿维拉，西班牙")
+
+
+---
+### 2024 4月 19：历史的轮回
+#### 布罗德加环，奥克尼岛，苏格兰（© Paul Williams - FunkyStock/Getty Images）
+![历史的轮回](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_800x480.jpg&rf=LaDigue_800x480.jpg "历史的轮回")
+在苏格兰北部的奥克尼群岛的中心地带，有一个古老的谜团：布罗德加环。这个新石器时代的石圈是一种古老的圆形土方工程，可以追溯到公元前2500年到2000年之间，石圈的直径约为340英尺。该遗址位于两个湖泊之间的狭长地带，最初由60块石头组成，如今只剩下36块。该石圈的确切用途至今仍不得而知。为了进一步了解该遗址，一项名为“挖掘布罗德加环”的发掘项目于2008年启动，但该项目尚未取得任何结论性成果。1999年，包括布罗德加环在内的新石器时代的奥克尼中心地带被联合国教科文组织列为世界遗产。如果你计划去苏格兰旅行，不妨去布罗德加环逛逛。在这里，你不仅可以呼吸到清新的空气，还可以感受石圈的悠久历史。
+
+布罗德加环已有5000年的历史了。它比巨石阵和埃及的大金字塔还要古老，但比附近的斯丹尼斯立石更年轻。
+
+[下载480](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_800x480.jpg&rf=LaDigue_800x480.jpg "布罗德加环，奥克尼岛，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1024x768.jpg&rf=LaDigue_1024x768.jpg "布罗德加环，奥克尼岛，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布罗德加环，奥克尼岛，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg&rf=LaDigue_UHD.jpg "布罗德加环，奥克尼岛，苏格兰")
