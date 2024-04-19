@@ -264,3 +264,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1024x768.jpg&rf=LaDigue_1024x768.jpg "布罗德加环，奥克尼岛，苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布罗德加环，奥克尼岛，苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg&rf=LaDigue_UHD.jpg "布罗德加环，奥克尼岛，苏格兰")
+
+
+---
+### 2024 4月 20：保存，保护，享受！
+#### 日出时分的大棱镜泉，美国怀俄明州黄石国家公园（© XIN WANG/Getty Images）
+![保存，保护，享受！](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_800x480.jpg&rf=LaDigue_800x480.jpg "保存，保护，享受！")
+准备好你的登山靴吧，因为美国国家公园周到了！美国各地最迷人的风景区已敞开大门，邀请大家免费拥抱大自然。在整个庆祝活动期间，美国国家公园管理局将组织各种活动，包括由护林员带领的参观活动、志愿者活动和教育研讨会。
+
+黄石国家公园坐落在一座休眠火山上，是地球上间歇泉和温泉最多的地方。
+
+[下载480](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
+[下载720](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
+[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
+[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
