@@ -278,3 +278,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分的大棱镜泉，美国怀俄明州黄石国家公园")
+
+
+---
+### 2024 4月 21：未选择的路
+#### Cades Cove ，大雾山国家公园，田纳西州，美国（© Richard Bernabe/Shutterstock）
+![未选择的路](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_800x480.jpg&rf=LaDigue_800x480.jpg "未选择的路")
+随着美国国家公园周活动的开展，让我们一起去田纳西州的大雾山国家公园走走吧！该公园成立于1934年，占地面积超过522,419英亩。这座公园的大部分地区都被森林覆盖着，是1500种开花植物、952种藻类、65种哺乳动物和240多种鸟类的家园，大雾山国家公也因此成为了国际生物圈保护区。
+
+你知道大雾山被誉为“世界蝾螈之都”吗？大雾山中有30种不同的蝾螈！
+
+[下载480](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_800x480.jpg&rf=LaDigue_800x480.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1024x768.jpg&rf=LaDigue_1024x768.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg&rf=LaDigue_UHD.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
