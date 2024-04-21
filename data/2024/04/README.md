@@ -292,3 +292,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1024x768.jpg&rf=LaDigue_1024x768.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg&rf=LaDigue_UHD.jpg "Cades Cove ，大雾山国家公园，田纳西州，美国")
+
+
+---
+### 2024 4月 22：我们在庆祝什么?
+#### 绿海龟，圣地亚哥，加利福尼亚，美国（© Ralph Pace/Minden Pictures）
+![我们在庆祝什么?](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_800x480.jpg&rf=LaDigue_800x480.jpg "我们在庆祝什么?")
+今天是“地球日”，一个专门为保护地球环境而设立的节日，旨在提高民众对于现有环境问题的认识。1969年，时任威斯康星州参议员的盖洛德·纳尔逊目睹了库亚霍加河着火和圣巴巴拉石油泄漏等事件，他认为世界需要一项环保倡议，于是埋下了设立“地球日”的种子。一年后，首届“地球日”活动举行。现在，“地球日”已经发展成为一年一度的活动，有超过193个国家的10亿多人参加。今年，这项活动的重点是塑料，因为塑料污染已经严重影响了陆地和海洋环境。许多物种，包括图片中的这只绿海龟，误将海洋中的塑料垃圾当作食物食用。并且，这些塑料垃圾还会带来缠绕风险，也有可能分解成微塑料。每年约有2500万吨塑料进入水生生态系统。因此，赶快行动起来吧！植树造林、清理海滩，倡导环境保护及可持续发展，为人类共同的家园贡献自己的一份力量。毕竟，没有第二个地球！
+
+第18届“地球一小时”活动的主题是“为地球献出一小时”。
+
+[下载480](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_800x480.jpg&rf=LaDigue_800x480.jpg "绿海龟，圣地亚哥，加利福尼亚，美国")
+[下载720](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_1024x768.jpg&rf=LaDigue_1024x768.jpg "绿海龟，圣地亚哥，加利福尼亚，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绿海龟，圣地亚哥，加利福尼亚，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_UHD.jpg&rf=LaDigue_UHD.jpg "绿海龟，圣地亚哥，加利福尼亚，美国")
