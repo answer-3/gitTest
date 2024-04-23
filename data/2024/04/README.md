@@ -320,3 +320,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_1024x768.jpg&rf=LaDigue_1024x768.jpg "三一学院图书馆，都柏林，爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三一学院图书馆，都柏林，爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_UHD.jpg&rf=LaDigue_UHD.jpg "三一学院图书馆，都柏林，爱尔兰")
+
+
+---
+### 2024 4月 24：嘿，今天长势如何？
+#### 盛开的白延龄草，安大略省，加拿大（© Jun Zhang/Getty Images）
+![嘿，今天长势如何？](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_800x480.jpg&rf=LaDigue_800x480.jpg "嘿，今天长势如何？")
+三片花瓣、三片叶子和三个柱头——这就是白延龄草，它的名字源自拉丁语中的“三”，原产于北美东部，是春季最常见的林地野花之一。与一些稍有暖意就绽放色彩的“冲动型”花朵不同，这种植物开花缓慢。从美国邮票上的图案到俄亥俄州的州花，再到加拿大安大略省的官方象征，白延龄草扎根于各国文化。除了美观之外，白延龄草在草药界也有一席之地。所以，你在林间漫步时，请留意这种花卉珍品！
+
+延龄草在肥沃的高地混交林最为常见。从春末到初夏，它都会绽放迷人的三瓣白色花朵，花朵上有一轮三片叶状苞片，很容易辨认。延龄草是春季典型的短命植物，生命周期与落叶林地的季节变化同步。
+
+[下载480](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的白延龄草，安大略省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1024x768.jpg&rf=LaDigue_1024x768.jpg "盛开的白延龄草，安大略省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的白延龄草，安大略省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的白延龄草，安大略省，加拿大")
