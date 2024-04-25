@@ -310,16 +310,16 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 
 ---
 ### 2024 4月 23：预订已满！
-#### 三一学院图书馆，都柏林，爱尔兰（© Lukas Bischoff/Getty Images）
-![预订已满！](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_800x480.jpg&rf=LaDigue_800x480.jpg "预订已满！")
-在爱尔兰中心，在都柏林圣三一学院图书馆历史悠久的大厅里，卷轴和古籍低声诉说着久远的故事。今天，这些沉默的故事讲述者将大放异彩。世界图书日由联合国教科文组织于1995年设立，旨在提醒人们阅读、出版和版权的重要性。但为什么是4月23日呢？因为这一天是威廉·莎士比亚、米格尔·德·塞万提斯和其他几位文学巨匠共同的忌日！从每年在马里兰州肯辛顿举办的汇集众多作家、诗人和文学组织的街头庆祝活动，到世界各地许多国家向孩子们分发图书券，这一天在书页翻动的沙沙声中变得生机勃勃。有趣的是，联合国教科文组织每年都会推选一个城市为“世界图书之都”，被选中的城市将在被授予的一年中开展促进阅读的活动，今年当选是法国斯特拉斯堡。那么，你选好要读的书了吗？
+#### 三一学院图书馆，都柏林，爱尔兰（© Vincent Isore/Getty Images）
+![预订已满！](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_800x480.jpg&rf=LaDigue_800x480.jpg "预订已满！")
+在爱尔兰中心，在都柏林三一学院图书馆历史悠久的大厅里，卷轴和古籍低声诉说着久远的故事。今天，这些沉默的故事讲述者将大放异彩。世界图书日由联合国教科文组织于1995年设立，旨在提醒人们阅读、出版和版权的重要性。但为什么是4月23日呢？因为这一天是威廉·莎士比亚、米格尔·德·塞万提斯和其他几位文学巨匠共同的忌日！从每年在马里兰州肯辛顿举办的汇集众多作家、诗人和文学组织的街头庆祝活动，到世界各地许多国家向孩子们分发图书券，这一天在书页翻动的沙沙声中变得生机勃勃。有趣的是，联合国教科文组织每年都会推选一个城市为“世界图书之都”，被选中的城市将在被授予的一年中开展促进阅读的活动，今年当选是法国斯特拉斯堡。那么，你选好要读的书了吗？
 
 “世界图书之都”是联合国教科文组织发起的一项倡议，旨在表彰那些从4月23日的世界图书和版权日起，在一年内推广图书和促进阅读的城市。
 
-[下载480](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_800x480.jpg&rf=LaDigue_800x480.jpg "三一学院图书馆，都柏林，爱尔兰")
-[下载720](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_1024x768.jpg&rf=LaDigue_1024x768.jpg "三一学院图书馆，都柏林，爱尔兰")
-[下载1080](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三一学院图书馆，都柏林，爱尔兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_UHD.jpg&rf=LaDigue_UHD.jpg "三一学院图书馆，都柏林，爱尔兰")
+[下载480](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_800x480.jpg&rf=LaDigue_800x480.jpg "三一学院图书馆，都柏林，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1024x768.jpg&rf=LaDigue_1024x768.jpg "三一学院图书馆，都柏林，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三一学院图书馆，都柏林，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrinityDublin_ZH-CN9521778819_UHD.jpg&rf=LaDigue_UHD.jpg "三一学院图书馆，都柏林，爱尔兰")
 
 
 ---
@@ -348,3 +348,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_1024x768.jpg&rf=LaDigue_1024x768.jpg "南极洲冰山上的阿德利企鹅")
 [下载1080](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南极洲冰山上的阿德利企鹅")
 [下载UHD](https://cn.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_UHD.jpg&rf=LaDigue_UHD.jpg "南极洲冰山上的阿德利企鹅")
+
+
+---
+### 2024 4月 26：这棵树是个快乐的家伙！
+#### 卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国（© Abbie Warnock-Matthews/Shutterstock）
+![这棵树是个快乐的家伙！](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_800x480.jpg&rf=LaDigue_800x480.jpg "这棵树是个快乐的家伙！")
+美国第一个植树节是在1872年举行的，从那以后，这项活动真正地生根发芽。每年四月的最后一个星期五，美国各地的人们都会通过植树来纪念这个节日，通常会把这些树献给所爱的人。这一天也是纪念树木的好日子——树木不仅为无数种动物提供家园，还能吸收二氧化碳，净化我们呼吸的空气，帮助城市保持凉爽，甚至还能起到预防洪水的作用。
+
+1982年，该公园被联合国教科文组织认定为世界遗产，因此获得了国际认可。
+
+[下载480](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国")
