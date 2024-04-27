@@ -376,3 +376,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_1024x768.jpg&rf=LaDigue_1024x768.jpg "澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_UHD.jpg&rf=LaDigue_UHD.jpg "澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国")
+
+
+---
+### 2024 4月 28：去公园走走吧！
+#### 瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国（© Adam Mowery/Tandem Stills + Motion）
+![去公园走走吧！](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_800x480.jpg&rf=LaDigue_800x480.jpg "去公园走走吧！")
+好好利用国家公园周的最后一天吧！如果你还没有时间参加为期九天的庆祝活动，请看过来！让我们带你去德克萨斯州西部的瓜达卢佩山脉国家公园看看。该公园于1972年正式成立，占地86,416英亩。在这里，瓜达卢佩山脉耸立在奇瓦瓦沙漠的盐丘之上。海拔8751英尺的瓜达卢佩峰是该山脉的最高点，也是德克萨斯州的最高点。当地另一个突出的地标是8085英尺高的酋长岩，经常被旅行者当作路标。而加利福尼亚州也有一个约3000英尺高的同名“酋长岩”，可别将二者混淆了。即使国家公园周结束了，一年中仍有很多日子可以参观这个国家丰富的自然风光。
+
+这里有许多世界级的洞穴，例如1986年发现的卡尔斯巴德洞穴（最著名的洞穴）和列楚基耶洞穴。
+
+[下载480](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_800x480.jpg&rf=LaDigue_800x480.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_UHD.jpg&rf=LaDigue_UHD.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
