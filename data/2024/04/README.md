@@ -390,3 +390,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_UHD.jpg&rf=LaDigue_UHD.jpg "瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国")
+
+
+---
+### 2024 4月 29：被保存得很好的古建筑
+#### 福建土楼，福建省历史文化遗产建筑，中国（© Hongjie Han/Getty Images）
+![被保存得很好的古建筑](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_800x480.jpg&rf=LaDigue_800x480.jpg "被保存得很好的古建筑")
+准备好踏入独特的建筑世界了吗？在这里，主流的住宅是如此的古旧。今天的图片展示的是福建土楼，它们修建于12世纪至20世纪，是中国福建东南部山区客家人独一无二的乡村住宅。客家人是汉族的一个独特分支，拥有独特的客家文化。福建土楼便是客家人在辗转迁徙中，发扬古老建筑技术创造的“建筑奇迹”。土楼以竹条作为支撑，由粘土、沙土和灰瓦建造而成。这些圆形住宅有着浅色的墙壁，深色的屋顶和宽敞的内部空间，从上往下看，它们就像一个个巨大的轮胎或卷筒侧躺在道路旁。
+
+直径14米，南靖县南坑镇的翠林楼是最小的土楼。
+
+[下载480](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_800x480.jpg&rf=LaDigue_800x480.jpg "福建土楼，福建省历史文化遗产建筑，中国")
+[下载720](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_1024x768.jpg&rf=LaDigue_1024x768.jpg "福建土楼，福建省历史文化遗产建筑，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福建土楼，福建省历史文化遗产建筑，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg&rf=LaDigue_UHD.jpg "福建土楼，福建省历史文化遗产建筑，中国")
