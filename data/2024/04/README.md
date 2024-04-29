@@ -404,3 +404,17 @@ Kakshaal Too 山脉宽54公里，最高点为托木尔峰。该地区的风景�
 [下载720](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_1024x768.jpg&rf=LaDigue_1024x768.jpg "福建土楼，福建省历史文化遗产建筑，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福建土楼，福建省历史文化遗产建筑，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg&rf=LaDigue_UHD.jpg "福建土楼，福建省历史文化遗产建筑，中国")
+
+
+---
+### 2024 4月 30：“草原大喵”的完美速度
+#### 清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚（© Paul Souders/Getty Images）
+![“草原大喵”的完美速度](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_800x480.jpg&rf=LaDigue_800x480.jpg "“草原大喵”的完美速度")
+别眨眼，它的速度快得惊人！我们在恩戈罗恩戈罗保护区可以看到世界上跑得最快的哺乳动物：猎豹！它们是坦桑尼亚标志性的大型猫科动物之一。猎豹栖息在不同的地形中，从塞伦盖蒂草原到撒哈拉沙漠的干旱地带，都能见到它们的身影。它们有着长长的尾巴、细长的四肢和修长的体型，独特的生理特征使得它们可以快速移动。
+
+猎豹对人类很少展示出攻击性，且很容易被人类驯服，自古以来便是如此。
+
+[下载480](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_800x480.jpg&rf=LaDigue_800x480.jpg "清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_1024x768.jpg&rf=LaDigue_1024x768.jpg "清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_UHD.jpg&rf=LaDigue_UHD.jpg "清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚")
