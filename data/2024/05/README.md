@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_1024x768.jpg&rf=LaDigue_1024x768.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_UHD.jpg&rf=LaDigue_UHD.jpg "蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国")
+
+
+---
+### 2024 5月 3：最热的地方也有凉爽之处
+#### 春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州（© Charles Harker/Getty Images）
+![最热的地方也有凉爽之处](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_800x480.jpg&rf=LaDigue_800x480.jpg "最热的地方也有凉爽之处")
+当温暖的阳光照在你身上时，你就知道自己来到了亚利桑那州的索诺拉沙漠！在这片干旱的土地上，生活着各种动物，如走鹃、吉拉毒蜥和沙漠乌龟。索诺拉沙漠有两个雨季，因此会有五颜六色的野花盛开，图中的沙漠毒菊就是其中之一。这些耐寒的灌木适应了干燥的气候，银灰色的叶子上覆盖着细毛，有助于减少蒸腾作用导致的水分流失。沙漠毒菊开出鲜艳的黄色花朵，一簇簇地挂在枝头，为沙漠增添了一抹亮色。另一种耐旱的沙漠植物是名为巨人柱的仙人掌，它可以活150多年，长到40英尺高。这些仙人掌为沙漠物种提供食物和栖息地。在托霍诺奥德姆人的文化中，仙人掌也是一种神圣的植物，可以用来满足生活需求和举行宗教仪式。
+
+索诺拉沙漠被认为是北美地区最热的沙漠。
+
+[下载480](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_800x480.jpg&rf=LaDigue_800x480.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
+[下载720](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_1024x768.jpg&rf=LaDigue_1024x768.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
+[下载1080](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
+[下载UHD](https://cn.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_UHD.jpg&rf=LaDigue_UHD.jpg "春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州")
