@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_UHD.jpg&rf=LaDigue_UHD.jpg "斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰")
+
+
+---
+### 2024 5月 5：为墨西哥干杯!
+#### 圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥（© Mint Images/Getty Images）
+![为墨西哥干杯!](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_800x480.jpg&rf=LaDigue_800x480.jpg "为墨西哥干杯!")
+五月五日节是墨西哥传统的爱国主义节日，这一活动不能与9月16日举行的墨西哥独立日混为一谈，20世纪80年代，由于龙舌兰酒、啤酒和葡萄酒的广告宣传，五月五日节在美国得到了认可，难怪如今的五月五日节在美国已成为一个狂欢的节日。值得一提的是，墨西哥除了美酒佳肴之外，丰富多彩的文化也值得品尝，无论是建筑（比如图中的圣米格尔德阿连德市的街道）、历史、艺术还是风景。
+
+如今，五月五日节带来的啤酒销量与“超级碗”相当。
+
+[下载480](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_800x480.jpg&rf=LaDigue_800x480.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_UHD.jpg&rf=LaDigue_UHD.jpg "圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥")
