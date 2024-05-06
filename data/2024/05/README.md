@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗奇斯山脊，英格兰峰区")
 [下载1080](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗奇斯山脊，英格兰峰区")
 [下载UHD](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_UHD.jpg&rf=LaDigue_UHD.jpg "罗奇斯山脊，英格兰峰区")
+
+
+---
+### 2024 5月 7：水影里的小黄鸭
+#### 一只小鸭子在水草地上游泳，萨福克郡，英国（© Nick Hurst/Getty Images）
+![水影里的小黄鸭](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_800x480.jpg&rf=LaDigue_800x480.jpg "水影里的小黄鸭")
+今天，这只小鸭子摇摇摆摆地走到聚光灯下，准备用它俏皮又滑稽的动作吸引我们！鸭子羽毛鲜艳，叫声欢快，是田园风光的缩影，但它们在一些城市环境中也同样自在。然而，真正抢尽风头的是小鸭子的到来！小小的，毛茸茸的小鸭子顺从地跟随着鸭妈妈，在每一次划水和啄食中学习水性。这些水禽以昆虫和藻类为食，在保持水生生态系统平衡方面发挥着重要作用。
+
+小鸭子们是相亲相爱的兄弟姐妹，在孵化前就会互相交流。
+
+[下载480](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_800x480.jpg&rf=LaDigue_800x480.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_UHD.jpg&rf=LaDigue_UHD.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
