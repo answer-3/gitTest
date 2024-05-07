@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_UHD.jpg&rf=LaDigue_UHD.jpg "一只小鸭子在水草地上游泳，萨福克郡，英国")
+
+
+---
+### 2024 5月 8：海港景色
+#### 伊夫堡，马赛，法国（© Sergii Figurnyi/Alamy）
+![海港景色](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_800x480.jpg&rf=LaDigue_800x480.jpg "海港景色")
+准备好在法国马赛享受阳光和奥林匹克精神吧。马赛是一座充满活力的海滨城市，以其丰富的海洋遗产和文化多样性而闻名，是通往地中海的门户。今天，奥运火炬的到来点燃了这里期待奥运的热潮。作为连接现代奥运会与古希腊文化遗产的一个象征，奥运火炬于4月16日在希腊奥林匹亚点燃，奥运圣火就此开启环绕法国的旅程，直至抵达巴黎奥运会。夏季奥运会将于7月26日开幕，而马赛正在为举办奥运会帆船比赛做准备，这座城市充满活力，将传统与创新融为一体。
+
+马赛拥有世界上最大的商业港口，每年吞吐量超过1亿吨。
+
+[下载480](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_800x480.jpg&rf=LaDigue_800x480.jpg "伊夫堡，马赛，法国")
+[下载720](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_1024x768.jpg&rf=LaDigue_1024x768.jpg "伊夫堡，马赛，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊夫堡，马赛，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_UHD.jpg&rf=LaDigue_UHD.jpg "伊夫堡，马赛，法国")
