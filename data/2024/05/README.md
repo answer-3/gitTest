@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_1024x768.jpg&rf=LaDigue_1024x768.jpg "伊夫堡，马赛，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊夫堡，马赛，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_UHD.jpg&rf=LaDigue_UHD.jpg "伊夫堡，马赛，法国")
+
+
+---
+### 2024 5月 9：恣意绽放的郁金香
+#### 埃米尔甘公园的郁金香，伊斯坦布尔，土耳其（© Ozbalci/Getty Images）
+![恣意绽放的郁金香](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_800x480.jpg&rf=LaDigue_800x480.jpg "恣意绽放的郁金香")
+一大片五颜六色的郁金香给人带来的诱惑不言而喻。郁金香原产于中亚，从弗农山庄园到土耳其伊斯坦布尔熙熙攘攘的街道，这些球茎植物深受世界各地人们的喜爱。但郁金香不仅仅是装饰性花卉，它们还具有重要的文化意义。在不同的传统中，郁金香代表着爱情、生命、美丽和激情。在艺术作品中，郁金香常常被描绘成重生或青春的象征。
+
+自2005年以来，每年四月这里都会举办国际郁金香节，公园在这些郁金香花朵的映衬下变得绚丽多彩。
+
+[下载480](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_800x480.jpg&rf=LaDigue_800x480.jpg "埃米尔甘公园的郁金香，伊斯坦布尔，土耳其")
+[下载720](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃米尔甘公园的郁金香，伊斯坦布尔，土耳其")
+[下载1080](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃米尔甘公园的郁金香，伊斯坦布尔，土耳其")
+[下载UHD](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_UHD.jpg&rf=LaDigue_UHD.jpg "埃米尔甘公园的郁金香，伊斯坦布尔，土耳其")
