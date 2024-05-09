@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃米尔甘公园的郁金香，伊斯坦布尔，土耳其")
 [下载1080](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃米尔甘公园的郁金香，伊斯坦布尔，土耳其")
 [下载UHD](https://cn.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_UHD.jpg&rf=LaDigue_UHD.jpg "埃米尔甘公园的郁金香，伊斯坦布尔，土耳其")
+
+
+---
+### 2024 5月 10：岛屿在召唤！
+#### 米苏尔岛，拉贾安帕群岛，印度尼西亚（© Giordano Cipriani/Getty Images）
+![岛屿在召唤！](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_800x480.jpg&rf=LaDigue_800x480.jpg "岛屿在召唤！")
+想象一下，身在一个如此纯净的水生保护区，听着海洋把它的秘密悄悄告诉你！米苏尔岛是印度尼西亚拉贾安帕群岛中的一个岛屿，面积近800平方英里。群岛由四个主要岛屿组成，包括米索尔岛、威吉奥岛、巴丹塔岛和萨拉瓦蒂岛。在这里，海浪轻柔地抚摸着粉白色的沙滩，海面下则游弋着绚丽的海洋生物。这里的珊瑚礁以生物多样性著称，是许多潜水爱好者的梦想之地。游客还可以游览1982年建立的米苏尔岛自然保护区，观赏白色袋貂、蜜袋鼯、普通袋狸和其他有袋类动物。作为禁止捕鱼和狩猎的“禁渔区”以及鲨鱼和蝠鲼保护区，米苏尔岛为我们海洋的未来带来了希望。在这个小岛上，大自然最美好的礼物得到了保护和珍惜。
+
+1526年，葡萄牙航海家豪尔赫·德·梅内泽斯和他的船员在从比亚克、鸟头半岛和卫古岛前往哈马黑拉岛（特尔纳特）的途中，首次记录了欧洲人看到并登陆拉贾安帕群岛。
+
+[下载480](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_800x480.jpg&rf=LaDigue_800x480.jpg "米苏尔岛，拉贾安帕群岛，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_1024x768.jpg&rf=LaDigue_1024x768.jpg "米苏尔岛，拉贾安帕群岛，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏尔岛，拉贾安帕群岛，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_UHD.jpg&rf=LaDigue_UHD.jpg "米苏尔岛，拉贾安帕群岛，印度尼西亚")
