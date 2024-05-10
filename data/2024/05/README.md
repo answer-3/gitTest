@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_1024x768.jpg&rf=LaDigue_1024x768.jpg "米苏尔岛，拉贾安帕群岛，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏尔岛，拉贾安帕群岛，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_UHD.jpg&rf=LaDigue_UHD.jpg "米苏尔岛，拉贾安帕群岛，印度尼西亚")
+
+
+---
+### 2024 5月 11：小蓝鸟一路顺风
+#### 树枝上栖息的靛蓝彩鹀，德克萨斯州（© Jeff R Clow/Getty Images）
+![小蓝鸟一路顺风](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_800x480.jpg&rf=LaDigue_800x480.jpg "小蓝鸟一路顺风")
+候鸟为什么要迁徙？它们又是如何飞越半个地球的？今天，为了纪念世界候鸟日，我们向大家介绍靛蓝彩鹀，一种羽毛像天空的颜色的小鸟。它们利用星星导航，穿越数千英里，在北美洲的繁殖地和中美洲及南美洲北部的越冬地之间迁徙。
+
+和其他迁徙物种一样，靛蓝彩鹀在夜间迁徙，利用星星导航！
+
+[下载480](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_800x480.jpg&rf=LaDigue_800x480.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
+[下载720](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_1024x768.jpg&rf=LaDigue_1024x768.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
+[下载1080](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
+[下载UHD](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_UHD.jpg&rf=LaDigue_UHD.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
