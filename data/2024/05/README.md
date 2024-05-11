@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_1024x768.jpg&rf=LaDigue_1024x768.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
 [下载1080](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
 [下载UHD](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_UHD.jpg&rf=LaDigue_UHD.jpg "树枝上栖息的靛蓝彩鹀，德克萨斯州")
+
+
+---
+### 2024 5月 12：放牧和饲养
+#### 潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷（© Gabriel Rojo/Minden Pictures）
+![放牧和饲养](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_800x480.jpg&rf=LaDigue_800x480.jpg "放牧和饲养")
+母亲是爱和慰藉永恒的源泉，她们没有穿着超人一样的斗篷，但却是我们生命中真正的英雄。母亲节给了我们一个机会，向妈妈表达我们的爱意。在今天的图片中，我们看到美洲驼的亲戚——原驼妈妈和她的幼崽在阿根廷潘帕斯广阔的草原上漫步。就像人类的母亲一样，雌性原驼也会极力保护自己的孩子，那些幼小未成年的原驼。
+
+母亲节这天，人们拨打电话的次数约有1.22亿次，比一年中其他任何日子都要多。
+
+[下载480](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_800x480.jpg&rf=LaDigue_800x480.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
+[下载720](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_1024x768.jpg&rf=LaDigue_1024x768.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
+[下载1080](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
+[下载UHD](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_UHD.jpg&rf=LaDigue_UHD.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
