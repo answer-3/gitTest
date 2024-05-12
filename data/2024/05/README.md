@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_1024x768.jpg&rf=LaDigue_1024x768.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
 [下载1080](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
 [下载UHD](https://cn.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_UHD.jpg&rf=LaDigue_UHD.jpg "潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷")
+
+
+---
+### 2024 5月 13：鱼眼视角
+#### 鱼河大峡谷，纳米比亚（© R. M. Nunes/Getty Images）
+![鱼眼视角](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_800x480.jpg&rf=LaDigue_800x480.jpg "鱼眼视角")
+从世界上最古老的沙漠——纳米布沙漠，到奇妙的箭袋树森林，南非的纳米比亚拥有许多宝藏旅游景点。该国家最长的河流——鱼河，在数百万年的时间里侵蚀出了欧洲大陆最大的峡谷：鱼河大峡谷，它长约100英里，深约1800英尺，蜿蜒曲折，穿过风化的片麻岩层和白云岩。作为纳米比亚的热门景点之一，鱼河大峡谷以其长达50多英里的徒步小径和“鱼河峡谷超级马拉松比赛”吸引了无数探险者。此外，峡谷里还生活着哈特曼山斑马、山羚、东部岩象鼩等大大小小的生物。无论您是来轻徒步、远足、露营或者只是欣赏美景，鱼河大峡谷一定会让您终身难忘的。
+
+鱼河大峡谷徒步路线是南非最受欢迎的徒步路线之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_800x480.jpg&rf=LaDigue_800x480.jpg "鱼河大峡谷，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1024x768.jpg&rf=LaDigue_1024x768.jpg "鱼河大峡谷，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鱼河大峡谷，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg&rf=LaDigue_UHD.jpg "鱼河大峡谷，纳米比亚")
