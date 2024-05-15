@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_1024x768.jpg&rf=LaDigue_1024x768.jpg "焦特布尔蓝色之城，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "焦特布尔蓝色之城，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg&rf=LaDigue_UHD.jpg "焦特布尔蓝色之城，印度")
+
+
+---
+### 2024 5月 16：这片水域里有很多故事！
+#### 维戈的兰德大桥，西班牙（© Julio Conde/Getty Images）
+![这片水域里有很多故事！](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_800x480.jpg&rf=LaDigue_800x480.jpg "这片水域里有很多故事！")
+您准备好穿越时空了吗？为了纪念1809年维戈人民发动起义反对法国入侵，使维戈成为欧洲首个成功驱逐拿破仑军队的城市，每年春天，维戈的居民都会盛装打扮，回到1809年，庆祝他们重新夺回维戈。
+
+维哥湾是儒勒·凡尔纳的小说《海底两万里》的背景之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_800x480.jpg&rf=LaDigue_800x480.jpg "维戈的兰德大桥，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1024x768.jpg&rf=LaDigue_1024x768.jpg "维戈的兰德大桥，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维戈的兰德大桥，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg&rf=LaDigue_UHD.jpg "维戈的兰德大桥，西班牙")
