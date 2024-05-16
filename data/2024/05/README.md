@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1024x768.jpg&rf=LaDigue_1024x768.jpg "维戈的兰德大桥，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维戈的兰德大桥，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg&rf=LaDigue_UHD.jpg "维戈的兰德大桥，西班牙")
+
+
+---
+### 2024 5月 17：今天不是无关紧要的一天
+#### 塔兰吉雷国家公园的非洲象家族，坦桑尼亚（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
+![今天不是无关紧要的一天](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_800x480.jpg&rf=LaDigue_800x480.jpg "今天不是无关紧要的一天")
+今天是“濒危物种日”，让我们齐心协力保护濒危物种。每年五月的第三个星期五，我们都会密切关注动物和植物。濒危物种联盟于2006年创立了这个活动，旨在为拯救濒危物种而努力。目前，濒临灭绝的物种已超过44,000种。世界上最濒危的动物包括爪哇犀牛、黑犀牛、山地大猩猩和玳瑁。
+
+地球大气中的二氧化碳被认为是导致动物濒危的主要原因之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_800x480.jpg&rf=LaDigue_800x480.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1024x768.jpg&rf=LaDigue_1024x768.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_UHD.jpg&rf=LaDigue_UHD.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
