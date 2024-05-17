@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1024x768.jpg&rf=LaDigue_1024x768.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_UHD.jpg&rf=LaDigue_UHD.jpg "塔兰吉雷国家公园的非洲象家族，坦桑尼亚")
+
+
+---
+### 2024 5月 18：流浪者未必都是迷路人
+#### 破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大（© Ron Watts/Design Pics/Getty Images）
+![流浪者未必都是迷路人](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_800x480.jpg&rf=LaDigue_800x480.jpg "流浪者未必都是迷路人")
+在温哥华岛的西海岸，深绿色的温带雨林与岩石海岸和沙滩交相辉映。让我们一起参观一下环太平洋国家公园保护区吧！该保护区占地511平方公里，于1970年被认定为国家公园。几个世纪以来，该地区的努查努阿特人一直在这片土地上生活。如今，努查努阿特人下属的15个部落中，有7个部落在公园内拥有至少22个小型保护区，有9个部落与公园接壤。保护区的另一个显著特征是沿海西部铁杉生物气候带。这片温带森林地带是黑熊、温哥华岛美洲狮和貂等多种动物的家园。
+
+破碎群岛因其超棒的皮划艇活动和野外露营而闻名于世，吸引着冒险者们组队前来探索这个遥远而荒凉的公园内的小岛。
+
+[下载480](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_800x480.jpg&rf=LaDigue_800x480.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1024x768.jpg&rf=LaDigue_1024x768.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_UHD.jpg&rf=LaDigue_UHD.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
