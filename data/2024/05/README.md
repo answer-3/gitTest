@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1024x768.jpg&rf=LaDigue_1024x768.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_UHD.jpg&rf=LaDigue_UHD.jpg "破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大")
+
+
+---
+### 2024 5月 19：历史与大海的交汇处
+#### 韦尔纳扎村，五渔村，利古里亚，意大利（© Roberto Moiola/Sysaworld/Getty Images）
+![历史与大海的交汇处](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_800x480.jpg&rf=LaDigue_800x480.jpg "历史与大海的交汇处")
+韦尔纳扎是意大利西北部五渔村的一个村庄，坐落在意大利里维埃拉崎岖的悬崖上。在这里，古建筑矗立在利古里亚海的海岸线上，生活中充满了渔民的喧嚣。韦尔纳扎（Vernazza）得名于当地一种名为“Vernaccia”的葡萄酒，“Vernaccia”这个词的意思是“本地的”或“我们的”。该地区最著名的古迹之一是多利亚城堡，建于15世纪，是一个防御堡垒，用于保护村庄免受频繁的海盗袭击。由于19世纪热那亚-拉斯佩齐亚铁路的修建，该村的陆路交通变得更加便利。鹅卵石铺就的街道没有汽车，非常适合步行游览。在这里，你可能想参观圣玛尔塔教堂和雷焦圣母圣殿。你知道吗，这里还是2021年动画电影《卢卡》的灵感来源！韦尔纳扎不仅仅是一个旅游胜地，它还是为那些追求意大利最纯粹灵魂的人准备的一片世外桃源。
+
+五渔村往北走的第四个小镇名叫韦尔纳扎，这里没有汽车通行，仍然是意大利里维埃拉最真实的“渔村”之一。它还是五渔村唯一的天然港口，以其优雅的房屋闻名于世。
+
+[下载480](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_800x480.jpg&rf=LaDigue_800x480.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_1024x768.jpg&rf=LaDigue_1024x768.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎村，五渔村，利古里亚，意大利")
