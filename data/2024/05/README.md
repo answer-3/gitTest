@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_1024x768.jpg&rf=LaDigue_1024x768.jpg "蜜蜂照料蜂巢")
 [下载1080](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蜜蜂照料蜂巢")
 [下载UHD](https://cn.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_UHD.jpg&rf=LaDigue_UHD.jpg "蜜蜂照料蜂巢")
+
+
+---
+### 2024 5月 21：充满茶香的一天
+#### 卡梅隆高地茶园，马拉西亚（© alex cheong/Getty Images）
+![充满茶香的一天](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "充满茶香的一天")
+没有什么能比得上一杯好茶！无论您喜欢大吉岭茶、伯爵茶、乌龙茶、抹茶，还是英式早餐茶，今天都是为这个受人喜爱的饮品而庆祝的日子——因为5月21日是国际茶日。人类饮茶的历史至少有5000年了，它起源中国，在16世纪和17世纪，西方商人通过丝绸之路将茶叶引入欧洲，并逐渐传播到世界各地。现在，茶已成为仅次于水的世界第二大饮料。
+
+1885年，英国探险家卡梅伦勋爵在一次测绘任务中发现了金马仑高原。
+
+[下载480](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "卡梅隆高地茶园，马拉西亚")
+[下载720](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡梅隆高地茶园，马拉西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅隆高地茶园，马拉西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅隆高地茶园，马拉西亚")
