@@ -282,13 +282,27 @@
 
 ---
 ### 2024 5月 21：充满茶香的一天
-#### 卡梅隆高地茶园，马拉西亚（© alex cheong/Getty Images）
+#### 卡梅隆高地茶园，马来西亚（© alex cheong/Getty Images）
 ![充满茶香的一天](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "充满茶香的一天")
 没有什么能比得上一杯好茶！无论您喜欢大吉岭茶、伯爵茶、乌龙茶、抹茶，还是英式早餐茶，今天都是为这个受人喜爱的饮品而庆祝的日子——因为5月21日是国际茶日。人类饮茶的历史至少有5000年了，它起源中国，在16世纪和17世纪，西方商人通过丝绸之路将茶叶引入欧洲，并逐渐传播到世界各地。现在，茶已成为仅次于水的世界第二大饮料。
 
 1885年，英国探险家卡梅伦勋爵在一次测绘任务中发现了金马仑高原。
 
-[下载480](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "卡梅隆高地茶园，马拉西亚")
-[下载720](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡梅隆高地茶园，马拉西亚")
-[下载1080](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅隆高地茶园，马拉西亚")
-[下载UHD](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅隆高地茶园，马拉西亚")
+[下载480](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_800x480.jpg&rf=LaDigue_800x480.jpg "卡梅隆高地茶园，马来西亚")
+[下载720](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡梅隆高地茶园，马来西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡梅隆高地茶园，马来西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg&rf=LaDigue_UHD.jpg "卡梅隆高地茶园，马来西亚")
+
+
+---
+### 2024 5月 22：深入了解生物多样性
+#### 塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚（© Ignacio Palacios/Getty Images）
+![深入了解生物多样性](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_800x480.jpg&rf=LaDigue_800x480.jpg "深入了解生物多样性")
+今天，我们要庆祝地球的生物多样性！究竟什么是生物多样性？它指的是一个地区的所有生物，从动物和植物到真菌和微生物。大自然中这种微妙而又充满活力的平衡是我们赖以生存的基础。这绝对值得庆祝！2000年，联合国正式宣布5月22日为 "国际生物多样性日"。不幸的是，由于气候变化、自然资源枯竭、城市化和污染等因素，地球上的生物多样性正在慢慢减少。我们有责任回馈大自然，保护地球环境。毕竟，大自然赠与了我们很多珍贵迷人的物种，比如塔斯马尼亚雪桉树，也就是今天图片中的这棵树，它扎根于地球上生物多样性最丰富的地方——澳大利亚塔斯马尼亚的菲尔德山国家公园。
+
+“参与部分计划”是2024年国际生物多样性日的主题，旨在扭转生物种类减少的趋势。
+
+[下载480](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_800x480.jpg&rf=LaDigue_800x480.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1024x768.jpg&rf=LaDigue_1024x768.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_UHD.jpg&rf=LaDigue_UHD.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
