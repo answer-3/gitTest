@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1024x768.jpg&rf=LaDigue_1024x768.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_UHD.jpg&rf=LaDigue_UHD.jpg "塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚")
+
+
+---
+### 2024 5月 23：寻找一个“庇护所”
+#### 印度星龟，斯里兰卡（© Robin Chittenden/Minden Pictures）
+![寻找一个“庇护所”](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_800x480.jpg&rf=LaDigue_800x480.jpg "寻找一个“庇护所”")
+这才是真正的明星！印度星龟迈着自信而缓慢的脚步走进了大家的视野里。今天是世界海龟日！自2000年以来，美国龟类救援组织每年都会庆祝这一节日。那么陆龟和乌龟有什么区别呢？最大的区别在于陆龟是一种专门生活在陆地上的龟类，而乌龟则更喜欢水，可以在水中生活。
+
+海龟在一个繁殖季会产2到8窝蛋，每个窝里会有100余颗蛋。
+
+[下载480](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_800x480.jpg&rf=LaDigue_800x480.jpg "印度星龟，斯里兰卡")
+[下载720](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_1024x768.jpg&rf=LaDigue_1024x768.jpg "印度星龟，斯里兰卡")
+[下载1080](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度星龟，斯里兰卡")
+[下载UHD](https://cn.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_UHD.jpg&rf=LaDigue_UHD.jpg "印度星龟，斯里兰卡")
