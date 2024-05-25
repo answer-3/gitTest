@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿伊特本哈杜，摩洛哥")
 [下载1080](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿伊特本哈杜，摩洛哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_UHD.jpg&rf=LaDigue_UHD.jpg "阿伊特本哈杜，摩洛哥")
+
+
+---
+### 2024 5月 26：野性与自由
+#### 香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国（© Alan Majchrowicz/Getty Images）
+![野性与自由](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_800x480.jpg&rf=LaDigue_800x480.jpg "野性与自由")
+如果你想寻觅野花铺满青草地这样生机盎然的地方，华盛顿州北喀斯喀特山脉的梅索谷就是你的理想之地。羽扇豆开着紫色、蓝色和白色的尖尖的花朵，箭叶香根开着金黄色的大花朵，配上崎岖的山脉作为背景，造就了如诗如画般的美景。这些花朵在山谷的生态系统中也发挥着至关重要的作用，羽扇豆是固氮植物，它们通过将大气中的氮转化为邻近植物可以吸收和利用的形态来提高土壤肥力。另一方面，箭叶香根能吸引蜜蜂和蝴蝶等传粉者，有助于植物繁殖，进而促进该地区的生物多样性。无论你是经验丰富的植物学家还是自然爱好者，梅索谷的野花和迷人的荒野一定会给你留下深刻的印象。
+
+“梅索”这个名字来自奥肯那根的地名/mətxʷú/，意思是“向日葵（种子）”。
+
+[下载480](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_800x480.jpg&rf=LaDigue_800x480.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_1024x768.jpg&rf=LaDigue_1024x768.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg&rf=LaDigue_UHD.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
