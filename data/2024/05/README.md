@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_1024x768.jpg&rf=LaDigue_1024x768.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg&rf=LaDigue_UHD.jpg "香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国")
+
+
+---
+### 2024 5月 27：我们去乘船吧！
+#### 塞斯特里莱万特的沉默湾，利古里亚大区，意大利（© StevanZZ/Getty Images）
+![我们去乘船吧！](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_800x480.jpg&rf=LaDigue_800x480.jpg "我们去乘船吧！")
+日落时分，塞斯特里莱万特城镇仿佛渲染了一层柔光，美得就像一幅画。这颗隐藏在东利古里亚里维埃拉海岸的明珠，以其自然美景和可追溯至罗马时代的历史遗产吸引了无数游客。该镇位于波托菲诺和五渔村之间，拥有令人惊叹的风景和海滩，如沉默湾、童话湾，后者与安徒生以及“小美人鱼”的传说有着奇妙的关联。美丽的蓬塔马纳拉自然公园和古老的中世纪街道则能带给游客另一种独特的体验，它们的存在使塞斯特里莱万特成为一个拥有罕见美景和历史魅力的目的地。
+
+童话湾是为了纪念丹麦作家汉斯·克里斯汀·安徒生而命名的。1833年，安徒生曾短暂地居住在塞斯特里莱万特。
+
+[下载480](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_800x480.jpg&rf=LaDigue_800x480.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg&rf=LaDigue_UHD.jpg "塞斯特里莱万特的沉默湾，利古里亚大区，意大利")
