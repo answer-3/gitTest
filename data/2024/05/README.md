@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_UHD.jpg&rf=LaDigue_UHD.jpg "罗萨诺修道院，迈泰奥拉，色萨利 ，希腊")
+
+
+---
+### 2024 5月 29：水獭在看什么？
+#### 青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛（© Neil Henderson/Alamy Stock Photo）
+![水獭在看什么？](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_800x480.jpg&rf=LaDigue_800x480.jpg "水獭在看什么？")
+今天，让我们走进水獭的世界，它们顽皮又可爱，既是游泳健将，也是捕猎高手。这些生物分布在除南极洲和澳洲之外的每一个大陆上。目前已知的水獭种类有13种，它们形状和大小各异，有生活在沿海水域的海獭，也有在淡水栖息地嬉戏玩水的河獭。今天的图片展示的是欧亚水獭，它们生活在苏格兰西海岸美丽的姆尔斯岛上。这些水獭拥有蹼足、流线型体形和浓密的皮毛，在水下的速度和灵活性十分出色，除此之外，它们还能深潜并屏住呼吸数分钟。
+
+欧亚水獭（或称欧亚杂种水獭）是一种原产于欧亚大陆的半水栖哺乳动物，是鼬科水獭亚科中分布最广泛的成员。
+
+[下载480](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_800x480.jpg&rf=LaDigue_800x480.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
+[下载720](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_1024x768.jpg&rf=LaDigue_1024x768.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
+[下载1080](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_UHD.jpg&rf=LaDigue_UHD.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
