@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_1024x768.jpg&rf=LaDigue_1024x768.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
 [下载1080](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_UHD.jpg&rf=LaDigue_UHD.jpg "青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛")
+
+
+---
+### 2024 5月 30：欢迎来到大沼泽地
+#### 一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国（© Jonathan Gewirtz/Tandem Stills + Motion）
+![欢迎来到大沼泽地](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_800x480.jpg&rf=LaDigue_800x480.jpg "欢迎来到大沼泽地")
+90年前的今天，美国通过了一项法案，一个自然瑰宝也由此诞生：大沼泽地国家公园。这个位于佛罗里达州的公园囊括了美国最大的亚热带荒野。它占地150多万英亩，园区里生活着36种受联邦保护以及濒危的野生动物，如温顺的海牛、神秘的佛罗里达美洲豹。在这里，空气中回荡着350多种鸟类的叫声，如秧鹤、食螺鸢，水域中也是生机勃勃，有各种各样的鱼类，如锯盖鱼、红鱼，还有美洲鳄的身影。除了生物多样性之外，该公园还赢得了全球的认可，被联合国教科文组织评为世界遗产、国际生物圈保护区和国际重要湿地。因此，让我们向大沼泽地国家公园致敬！愿它可以继续为我们带来惊喜，并激发我们的好奇心以及欣赏周围野生世界的兴趣。
+
+大沼泽地国家公园的部分地区是南佛罗里达州观测暗夜星空的理想场所，其中最佳观赏地点在大沼泽地偏远的南部和西部地区，例如火烈鸟区和万岛。
+
+[下载480](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_800x480.jpg&rf=LaDigue_800x480.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_1024x768.jpg&rf=LaDigue_1024x768.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Everglades90th_ZH-CN9853372570_UHD.jpg&rf=LaDigue_UHD.jpg "一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国")
