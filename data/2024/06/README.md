@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1024x768.jpg&rf=LaDigue_1024x768.jpg "帝王棕榈树，里约热内卢植物园，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帝王棕榈树，里约热内卢植物园，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_UHD.jpg&rf=LaDigue_UHD.jpg "帝王棕榈树，里约热内卢植物园，巴西")
+
+
+---
+### 2024 6月 2：黑夜中的一盏明灯
+#### 普卢马纳克的灯塔，阿摩尔滨海省，法国（© Christian Handl/Getty Images）
+![黑夜中的一盏明灯](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_800x480.jpg&rf=LaDigue_800x480.jpg "黑夜中的一盏明灯")
+布列塔尼阿摩尔滨海省的粉红色花岗岩海岸线是世界上独一无二的景点。它绵延约十公里，穿过特雷伯当、特雷加斯泰勒和佩罗斯-吉雷克等市镇。这些花岗岩石形成于近3亿年前，它们从岩浆腔中慢慢冷却而成，并富含外来矿物质。与科西嘉岛或中国等其他类似的海岸不同，这片海岸的特点是矿物杂乱无章，巨石层层叠叠，或在侵蚀作用下形成柔和的圆角结构。
+
+该灯塔的俗名“Ploumanac'h ”源自附近的普鲁马纳克镇，在布列塔尼语中的意思是 “僧侣池”。而灯塔的官方名称 “Mean Ruz”则来自布列塔尼语中的“Maen Ruz”，意为“红色的石头”。
+
+[下载480](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_800x480.jpg&rf=LaDigue_800x480.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_1024x768.jpg&rf=LaDigue_1024x768.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_UHD.jpg&rf=LaDigue_UHD.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
