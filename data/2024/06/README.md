@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_1024x768.jpg&rf=LaDigue_1024x768.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_UHD.jpg&rf=LaDigue_UHD.jpg "普卢马纳克的灯塔，阿摩尔滨海省，法国")
+
+
+---
+### 2024 6月 3：一起骑车去兜风吧
+#### 哥本哈根的自行车，丹麦（© Alphotographic/Getty Images）
+![一起骑车去兜风吧](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_800x480.jpg&rf=LaDigue_800x480.jpg "一起骑车去兜风吧")
+德国发明家卡尔·冯·德雷斯于1817年发明了第一辆两轮车“德莱辛”。这辆车当然需要进一步的改善，因为木制车架和轮子没有脚踏板，需要依靠骑行者推动！现代版本的自行车是在19世纪后期开发出来的，但其所用的材料仍在不断地改进，以使骑行更轻松、更安全。所以，在世界自行车日，骑上自行车去找你的伙伴吧！
+
+自行车是最好的交通工具！既环保又健康，经济实惠，简单耐用，而且充满乐趣。一旦学会骑车，你将永远不会忘记如何骑车兜风。在美籍波兰科学家莱泽克·西比里斯基的倡议下，联合国宣布2018年6月3日为“世界自行车日”。
+
+[下载480](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_800x480.jpg&rf=LaDigue_800x480.jpg "哥本哈根的自行车，丹麦")
+[下载720](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_1024x768.jpg&rf=LaDigue_1024x768.jpg "哥本哈根的自行车，丹麦")
+[下载1080](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥本哈根的自行车，丹麦")
+[下载UHD](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_UHD.jpg&rf=LaDigue_UHD.jpg "哥本哈根的自行车，丹麦")
