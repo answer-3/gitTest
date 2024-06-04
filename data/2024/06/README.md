@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_1024x768.jpg&rf=LaDigue_1024x768.jpg "黑胸蜂虎，巴迪亚国家公园，尼泊尔")
 [下载1080](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑胸蜂虎，巴迪亚国家公园，尼泊尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_UHD.jpg&rf=LaDigue_UHD.jpg "黑胸蜂虎，巴迪亚国家公园，尼泊尔")
+
+
+---
+### 2024 6月 5：世界环境日快乐！
+#### 马达加斯加的马苏阿拉国家公园（© Dennis van de Water/Shutterstock）
+![世界环境日快乐！](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_800x480.jpg&rf=LaDigue_800x480.jpg "世界环境日快乐！")
+世界环境日快乐！1973年，首届世界环境日活动以“只有一个地球”为主题，由联合国组织举办，旨在鼓励人们保护环境。如今，全世界有143个国家庆祝这个节日。今年的主题将聚于焦土地恢复、荒漠化和抗旱能力。
+
+2024年世界环境日将在沙特阿拉伯举行，主题活动将聚焦于土地恢复、荒漠化和抗旱能力。
+
+[下载480](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_800x480.jpg&rf=LaDigue_800x480.jpg "马达加斯加的马苏阿拉国家公园")
+[下载720](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_1024x768.jpg&rf=LaDigue_1024x768.jpg "马达加斯加的马苏阿拉国家公园")
+[下载1080](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加的马苏阿拉国家公园")
+[下载UHD](https://cn.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加的马苏阿拉国家公园")
