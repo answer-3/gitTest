@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_1024x768.jpg&rf=LaDigue_1024x768.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_UHD.jpg&rf=LaDigue_UHD.jpg "蓬德高鸟类公园的大红鹳，卡玛格，法国")
+
+
+---
+### 2024 6月 7：希望的浪潮
+#### 座头鲸家族，荷兰港，阿拉斯加州（© Jude Newkirk/Amazing Aerial Agency）
+![希望的浪潮](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_800x480.jpg&rf=LaDigue_800x480.jpg "希望的浪潮")
+今天，在庆祝世界海洋日之际，让我们共同踏上一场海洋之旅吧！世界海洋日是为了纪念和保护世界上的海洋，提醒人们海洋在维持地球生命方面所发挥的关键性作用。毕竟，从最小的浮游生物到如图中所示的座头鲸一样巨大的鲸鱼，这些庞大的水体中充满了奇迹。由于浮游生物（微小的植物、藻类和细菌）的光合作用，海洋还产生了地球上近一半的氧气。此外，海洋还从大气中吸收大量的二氧化碳，这有助于减轻人类活动造成的气候变化影响。
+
+座头鲸通常每年迁徙路程长达16,000公里。
+
+[下载480](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸家族，荷兰港，阿拉斯加州")
+[下载720](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_1024x768.jpg&rf=LaDigue_1024x768.jpg "座头鲸家族，荷兰港，阿拉斯加州")
+[下载1080](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸家族，荷兰港，阿拉斯加州")
+[下载UHD](https://cn.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸家族，荷兰港，阿拉斯加州")
