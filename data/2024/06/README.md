@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙")
+
+
+---
+### 2024 6月 10：比赛将在这里开始！
+#### 龙舟池日出，集美区，厦门，中国（© outcast85/Getty images）
+![比赛将在这里开始！](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_800x480.jpg&rf=LaDigue_800x480.jpg "比赛将在这里开始！")
+吃粽子、看龙舟赛的日子到了！这一天，人们祈福辟邪、欢庆娱乐、分享美食。别忘了，看龙舟赛也是端午节重要的节庆民俗活动之一，早在中国古代战国时期就有了。赛龙舟表达了人们对美好生活的憧憬。
+
+2011年，集美龙舟赛已升格为国家级赛事。
+
+[下载480](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_800x480.jpg&rf=LaDigue_800x480.jpg "龙舟池日出，集美区，厦门，中国")
+[下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1024x768.jpg&rf=LaDigue_1024x768.jpg "龙舟池日出，集美区，厦门，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "龙舟池日出，集美区，厦门，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_UHD.jpg&rf=LaDigue_UHD.jpg "龙舟池日出，集美区，厦门，中国")
