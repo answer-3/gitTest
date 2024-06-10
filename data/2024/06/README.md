@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1024x768.jpg&rf=LaDigue_1024x768.jpg "龙舟池日出，集美区，厦门，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "龙舟池日出，集美区，厦门，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_UHD.jpg&rf=LaDigue_UHD.jpg "龙舟池日出，集美区，厦门，中国")
+
+
+---
+### 2024 6月 11：这些羚羊是真正的珍宝
+#### 热带稀树草原上的南非剑羚，博茨瓦纳大草原（© Karine Aigner/Tandem Stills + Motion）
+![这些羚羊是真正的珍宝](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_800x480.jpg&rf=LaDigue_800x480.jpg "这些羚羊是真正的珍宝")
+竖起犄角，昂首挺胸！今天的图片展示的是一群南非剑羚，这是一种大型羚羊，统治着非洲西南部广袤的热带稀树草原。它们原产于博茨瓦纳、纳米比亚、南非和津巴布韦的部分干旱地区，主要生活在卡拉哈里沙漠和纳米布沙漠。它们能够在极度干旱的条件下生存，可以数周不喝水，仅从吃的食物中获取水分。此外，南非剑羚是草原上的奔跑健将，最高时速可达每小时37英里。它们的显著特征是头上那对又长又直的犄角，尽管雌性剑羚和雄性剑羚都拥有这种强大的防御武器，但雌性的角往往更长更光滑，而雄性的角则更粗、基部更宽。如果有天您去到了卡拉哈里的沙地平原，一定要留意这些沙漠中的珍宝。
+
+南非剑羚的图案被印在了纳米比亚的国徽上。在奥兰治蒙德镇，当地的剑羚可以在街道上自由漫步。
+
+[下载480](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_800x480.jpg&rf=LaDigue_800x480.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
+[下载720](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1024x768.jpg&rf=LaDigue_1024x768.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
+[下载1080](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
+[下载UHD](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg&rf=LaDigue_UHD.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
