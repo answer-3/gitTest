@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1024x768.jpg&rf=LaDigue_1024x768.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
 [下载1080](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
 [下载UHD](https://cn.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg&rf=LaDigue_UHD.jpg "热带稀树草原上的南非剑羚，博茨瓦纳大草原")
+
+
+---
+### 2024 6月 12：星光盛宴
+#### 大弯国家公园上空的银河，得克萨斯州，美国（© wisanuboonrawd/Adobe Stock）
+![星光盛宴](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_800x480.jpg&rf=LaDigue_800x480.jpg "星光盛宴")
+准备好探索大自然了吗？让我们走进西得克萨斯的大弯国家公园，今天正好是它的80周年纪念日。它于1944年6月12日成立，当时德克萨斯州将这片土地转让给了联邦政府。该公园占地超过1,250平方英里，是奇瓦瓦沙漠最大的保护区。
+
+大弯国家公园是美国最大的奇瓦瓦沙漠地形和生态保护区，对这个国家具有重要的意义。公园因格兰德河（在墨西哥称为布拉沃河）的一个大弯道而命名。
+
+[下载480](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_800x480.jpg&rf=LaDigue_800x480.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1024x768.jpg&rf=LaDigue_1024x768.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg&rf=LaDigue_UHD.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
