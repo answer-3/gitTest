@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1024x768.jpg&rf=LaDigue_1024x768.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg&rf=LaDigue_UHD.jpg "大弯国家公园上空的银河，得克萨斯州，美国")
+
+
+---
+### 2024 6月 13：瓷砖的故事
+#### 雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒（© da-kuk/Getty Images）
+![瓷砖的故事](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_800x480.jpg&rf=LaDigue_800x480.jpg "瓷砖的故事")
+准备好了吗？让我们一起踮起脚尖进入乌兹别克斯坦撒马尔罕市的雷吉斯坦广场。在波斯语中，雷吉斯坦意为“沙地”或“沙漠”，它是帖木儿帝国时期的活动中心。广场上的建筑风格体现了“帖木儿文艺复兴”的精髓，这是一个文化和知识复兴的时期，在公元14世纪至16世纪初期席卷了整个穆斯林世界。
+
+公元前329年，撒马尔罕被亚历山大大帝征服，当时它被称为马拉坎达（希腊语为Mαράκανδα）。在1220年被成吉思汗领导的蒙古人征服之前，这座城市曾先后被伊朗和突厥的统治者统治。
+
+[下载480](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_800x480.jpg&rf=LaDigue_800x480.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒")
+[下载720](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_1024x768.jpg&rf=LaDigue_1024x768.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒")
+[下载1080](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒")
+[下载UHD](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_UHD.jpg&rf=LaDigue_UHD.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒")
