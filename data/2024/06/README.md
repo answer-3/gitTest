@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_1024x768.jpg&rf=LaDigue_1024x768.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒")
 [下载1080](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒")
 [下载UHD](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_UHD.jpg&rf=LaDigue_UHD.jpg "雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒")
+
+
+---
+### 2024 6月 14：孤独，但不寂寞
+#### 佩姬湾灯塔，新斯科舍省，加拿大（© Pugalenthi/Getty Images）
+![孤独，但不寂寞](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_800x480.jpg&rf=LaDigue_800x480.jpg "孤独，但不寂寞")
+佩姬湾灯塔坐落在崎岖不平的花岗岩上，是新斯科舍省海岸坚毅的守护者。这座灯塔建于1914年，高15米，于1915年首次亮起，是加拿大经久不衰的海洋精神的一个载体。在这座灯塔出现之前，这里曾有一座建于1868年的木质灯塔，于1954年被飓风埃德娜摧毁了。2009年之前，灯塔的底层一直在夏季时扮演着邮局的角色，后来加拿大邮政以霉菌生长存在安全隐患为由关闭了这个邮局。这座灯塔现在已经实现了自动化，吸引着众多游客前来一睹加拿大航海历史的风采，感受海洋的魅力。
+
+佩姬湾灯塔的底层曾设有一个小型的加拿大乡村邮局，游客们在夏季时可以在这里寄送明信片和信件。每封信上都有一个灯塔形状的特殊邮戳标记。然而，加拿大邮政以霉菌生长存在安全隐患为由，于2009年11月关闭了这个灯塔邮局。
+
+[下载480](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_800x480.jpg&rf=LaDigue_800x480.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1024x768.jpg&rf=LaDigue_1024x768.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&rf=LaDigue_UHD.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
