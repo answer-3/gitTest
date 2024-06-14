@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1024x768.jpg&rf=LaDigue_1024x768.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg&rf=LaDigue_UHD.jpg "佩姬湾灯塔，新斯科舍省，加拿大")
+
+
+---
+### 2024 6月 15：有志者事竟成
+#### 在纳扎雷冲浪的冲浪者，葡萄牙（© Rui Caria/Getty Images）
+![有志者事竟成](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_800x480.jpg&rf=LaDigue_800x480.jpg "有志者事竟成")
+今天是国际冲浪日，大家都在冲浪！这项活动在庆祝冲浪的同时，也提醒人们保护海洋环境的重要性，以及要为野生动物和冲浪者保持水域的纯净。冲浪有着悠久的历史：大约在5000年前的秘鲁，人们在出海捕鱼时用芦苇船冲浪。然而，现代冲浪运动是在前殖民时期的夏威夷诞生的。在这里，人们开始站在冲浪板上冲浪取乐。历史学家认为，冲浪于1885年传入美国，当时有三位十几岁的夏威夷王子在加利福尼亚的寄宿学校放假期间，在红木冲浪板上冲浪。
+
+世界冲浪日的庆祝活动包括举办冲浪比赛、烤烧烤、放电影以及其他与冲浪有关的活动。冲浪者还会利用这一天来组织各种活动回馈环境，比如海滩清洁活动、沙丘和其他栖息地的恢复活动以及诸如游说大家维护加州冲浪休闲娱乐区、在夏威夷种植草海桐（一种开花的海滨植物）等其他活动。
+
+[下载480](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_800x480.jpg&rf=LaDigue_800x480.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1024x768.jpg&rf=LaDigue_1024x768.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg&rf=LaDigue_UHD.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
