@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1024x768.jpg&rf=LaDigue_1024x768.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg&rf=LaDigue_UHD.jpg "在纳扎雷冲浪的冲浪者，葡萄牙")
+
+
+---
+### 2024 6月 16：这位父亲棋高一着
+#### 赤狐父子，华盛顿，美国（© Chase Dekker/Minden Pictures）
+![这位父亲棋高一着](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_800x480.jpg&rf=LaDigue_800x480.jpg "这位父亲棋高一着")
+今天是父亲节，这是一个庆祝父亲们为我们所做的一切，感恩他们照顾我们、帮助我们成长，以及讲最棒的父亲节笑话的最佳时机。动物界也有伟大的父亲，比如今天的图片中的狐狸爸爸。雌性红狐在产后需要留在洞穴里照顾幼崽，因此雄性红狐会把时间花在外出给雌性红狐送食物上。当幼崽稍大一点时，它们的父亲就会抽时间陪它们玩耍，教它们日后所需的生存技能，比如狩猎和觅食。图中的狐狸患有黑变病，这是一种导致动物颜色变深的疾病。
+
+帝企鹅爸爸孵蛋的时间长达75天。
+
+[下载480](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_800x480.jpg&rf=LaDigue_800x480.jpg "赤狐父子，华盛顿，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_1024x768.jpg&rf=LaDigue_1024x768.jpg "赤狐父子，华盛顿，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赤狐父子，华盛顿，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg&rf=LaDigue_UHD.jpg "赤狐父子，华盛顿，美国")
