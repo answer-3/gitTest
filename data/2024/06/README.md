@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_1024x768.jpg&rf=LaDigue_1024x768.jpg "赤狐父子，华盛顿，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赤狐父子，华盛顿，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg&rf=LaDigue_UHD.jpg "赤狐父子，华盛顿，美国")
+
+
+---
+### 2024 6月 17：传播花粉
+#### 绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加（© adrian hepworth/Alamy Stock Photo）
+![传播花粉](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_800x480.jpg&rf=LaDigue_800x480.jpg "传播花粉")
+让我们为帮助植物繁茂生长的小英雄们喝彩！“授粉者周”活动期间，我们要为这些运送花粉、帮助植物繁衍的生物而庆祝。虽然有些植物是自花授粉，或以风或水为媒介传粉，但大多数植物都是在蜜蜂、黄蜂、蝴蝶、飞蛾、鸟类（如今天图片中的绿顶辉蜂鸟），甚至蝙蝠的帮助下实现受精。非营利组织“授粉者合作伙伴”发起了“授粉者周”活动，以提高人们保护这些生物的意识。现在，世界各地的教育活动和其他项目也加入了这一庆祝活动。我们应该关心授粉者吗？当然应该！从水果、蔬菜到坚果、巧克力和甘蔗，我们饮食中的很多成分都是由这些授粉生物带来的。
+
+我们每吃三口食物，就有一口是授粉生物的功劳。
+
+[下载480](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_800x480.jpg&rf=LaDigue_800x480.jpg "绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_1024x768.jpg&rf=LaDigue_1024x768.jpg "绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_UHD.jpg&rf=LaDigue_UHD.jpg "绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加")
