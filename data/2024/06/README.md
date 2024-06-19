@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_1024x768.jpg&rf=LaDigue_1024x768.jpg "库克斯港的水塔，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库克斯港的水塔，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_UHD.jpg&rf=LaDigue_UHD.jpg "库克斯港的水塔，德国")
+
+
+---
+### 2024 6月 20：夏天的脚步近了
+#### 科基诺，古代巨石观测站，北马其顿（© stoimilov/Shutterstock）
+![夏天的脚步近了](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_800x480.jpg&rf=LaDigue_800x480.jpg "夏天的脚步近了")
+这种现象被称为夏至，一个北半球的地球极点最偏向太阳的时刻。今天的图片展示的是科基诺巨石天文台，它是北马其顿科基诺考古遗址的一部分。据说，科基诺天文台在夏至、冬至和春分时节标记太阳的位置。天文台由两个平台组成，其上层平台上的一块石块标明了从下层平台的座位上看夏至日出的方向。因此，来到北马其顿，千万不要错过体验这一古老的天文奇观！
+
+该遗址距今已有3800年的历史，遗址中的标记被用于研究太阳和月亮的运动以及制定阴历历法。
+
+[下载480](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_800x480.jpg&rf=LaDigue_800x480.jpg "科基诺，古代巨石观测站，北马其顿")
+[下载720](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1024x768.jpg&rf=LaDigue_1024x768.jpg "科基诺，古代巨石观测站，北马其顿")
+[下载1080](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科基诺，古代巨石观测站，北马其顿")
+[下载UHD](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_UHD.jpg&rf=LaDigue_UHD.jpg "科基诺，古代巨石观测站，北马其顿")
