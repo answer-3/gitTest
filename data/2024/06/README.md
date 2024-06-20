@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1024x768.jpg&rf=LaDigue_1024x768.jpg "科基诺，古代巨石观测站，北马其顿")
 [下载1080](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科基诺，古代巨石观测站，北马其顿")
 [下载UHD](https://cn.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_UHD.jpg&rf=LaDigue_UHD.jpg "科基诺，古代巨石观测站，北马其顿")
+
+
+---
+### 2024 6月 21：清凉的湖水
+#### 蓝色水面上的渔船航拍图，郴州市，湖南省，中国（© Haitong Yu/Getty images）
+![清凉的湖水](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_800x480.jpg&rf=LaDigue_800x480.jpg "清凉的湖水")
+夏至已至，中国的大部分地区即将进入一年中最炎热的时节，您准备好解暑降温的装备了吗？今天，邀请您欣赏的是位于湖南省郴州市的一片天蓝色的湖泊。郴州市位于湖南省的东南部地区，地处长江与珠江交汇处。境内有东江湖、苏仙岭、万华岩、莽山国家森林公园等丰富多彩的历史文化遗迹和名胜古迹。
+
+郴州东江湖地区的水质达到了中国国家一级饮用水标准。
+
+[下载480](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_800x480.jpg&rf=LaDigue_800x480.jpg "蓝色水面上的渔船航拍图，郴州市，湖南省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_1024x768.jpg&rf=LaDigue_1024x768.jpg "蓝色水面上的渔船航拍图，郴州市，湖南省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝色水面上的渔船航拍图，郴州市，湖南省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg&rf=LaDigue_UHD.jpg "蓝色水面上的渔船航拍图，郴州市，湖南省，中国")
