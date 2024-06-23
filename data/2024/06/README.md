@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_1024x768.jpg&rf=LaDigue_1024x768.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
 [下载1080](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg&rf=LaDigue_UHD.jpg "达卡环形交叉路口的鸟瞰图，孟加拉国")
+
+
+---
+### 2024 6月 24：让人心旷神怡的美景
+#### 克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚（© Shane P. White/Minden Pictures）
+![让人心旷神怡的美景](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_800x480.jpg&rf=LaDigue_800x480.jpg "让人心旷神怡的美景")
+也许您以前见过一些颜色独特的湖泊，但是当您看到印度尼西亚的弗洛勒斯岛上的克里穆图火山口湖后，可能还是会大吃一惊。这个自然奇观拥有三个湖泊，每个湖泊都有自己的颜色和民间传说，吸引着那些寻求超凡脱俗旅行体验的游客。地球深处的火山喷口释放出蒸汽和气体，改变了这些湖泊的矿物成分，导致它们的外观颜色会发生周期性变化。克里穆图的每一个火山口湖都有自己独特的化学成分，这就是为什么它们可以同时呈现不同的颜色，并且这些颜色可以独立变化。最西边的老人湖通常呈现出蓝色调，与此同时，青年湖通常呈现出绿色调，而魔力湖则通常呈现出红色调。当地的利奥人崇敬这些湖泊，认为它们是灵魂的安息之地。如果您已经厌倦了普通的海边旅行，不妨去克里穆图探索这三个能变色的神奇湖泊。
+
+克里穆图是当地利奥人的圣地，他们相信死者的灵魂会迁徙到这里。
+
+[下载480](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_800x480.jpg&rf=LaDigue_800x480.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_1024x768.jpg&rf=LaDigue_1024x768.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg&rf=LaDigue_UHD.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
