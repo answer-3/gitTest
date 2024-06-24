@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_1024x768.jpg&rf=LaDigue_1024x768.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg&rf=LaDigue_UHD.jpg "克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚")
+
+
+---
+### 2024 6月 25：拍出炫酷照片的好地方
+#### 火浪岩层，火焰谷州立公园，内华达州，美国（© Clint Losee/Tandem Stills + Motion）
+![拍出炫酷照片的好地方](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_800x480.jpg&rf=LaDigue_800x480.jpg "拍出炫酷照片的好地方")
+在内华达州干旱广袤的莫哈维沙漠中，坐落着壮观的火焰谷州立公园。该公园占地46000英亩，得名于火红色的阿兹台克砂岩，这是一种侏罗纪早期的地质地层，由古老的沙丘组成。公园最大的亮点是“火浪”，这是一个地质奇观，表面有着红色、粉色和白色的条纹，看上去就像冰冻的波浪。
+
+《星际迷航7：星空奇兵》中的维里迪安III行星的场景是在火焰谷州立公园取景拍摄的。
+
+[下载480](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_800x480.jpg&rf=LaDigue_800x480.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_1024x768.jpg&rf=LaDigue_1024x768.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_UHD.jpg&rf=LaDigue_UHD.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
