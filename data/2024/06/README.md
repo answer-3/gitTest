@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_1024x768.jpg&rf=LaDigue_1024x768.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_UHD.jpg&rf=LaDigue_UHD.jpg "火浪岩层，火焰谷州立公园，内华达州，美国")
+
+
+---
+### 2024 6月 26：美丽的条纹小鱼！
+#### 考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚（© Constantinos Petrinos/NPL/Minden Pictures）
+![美丽的条纹小鱼！](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_800x480.jpg&rf=LaDigue_800x480.jpg "美丽的条纹小鱼！")
+今天，让我们潜入印度尼西亚邦盖群岛周围的海浪深处，邂逅考氏鳍竺鲷。天竺鲷鱼可以长到3英寸，它们微小的身体能发出微微光亮，黑色的竖条纹和白边鳍则有助于它们伪装。与那些会远距离洄游的有鳍生物不同，这种小型鱼类活动范围比较小，很少远离当地的珊瑚礁。
+
+考氏鳍竺鲷是海洋中的伪装大师，它们自然地隐藏在海葵的触手之中来抵御捕食者们。
+
+[下载480](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_800x480.jpg&rf=LaDigue_800x480.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_1024x768.jpg&rf=LaDigue_1024x768.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_UHD.jpg&rf=LaDigue_UHD.jpg "考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚")
