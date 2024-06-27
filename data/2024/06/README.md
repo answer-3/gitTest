@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄昏时分的圣母百花大教堂，佛罗伦萨，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时分的圣母百花大教堂，佛罗伦萨，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时分的圣母百花大教堂，佛罗伦萨，意大利")
+
+
+---
+### 2024 6月 28：最具加勒比海风情的海岛
+#### 诺曼底海岸的绍塞群岛，法国（© Tuul & Bruno Morandi/Getty Images）
+![最具加勒比海风情的海岛](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_800x480.jpg&rf=LaDigue_800x480.jpg "最具加勒比海风情的海岛")
+绍塞群岛位于圣米歇尔山海湾北部，是诺曼底群岛的一部分。这是一个梦幻般的群岛，不仅有轻抚着花岗岩的海浪，还有在退潮时会展现出迷宫般的小岛和沙洲的大海。大岛是群岛中的一颗明珠，它在第一缕阳光中醒来，沐浴在温暖着石屋的柔和光线中。渔民们在准备渔船，海鸥在为日出伴奏。
+
+绍塞群岛是欧洲最大的群岛，退潮时有365个小岛，涨潮时有52个。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底海岸的绍塞群岛，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_1024x768.jpg&rf=LaDigue_1024x768.jpg "诺曼底海岸的绍塞群岛，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺曼底海岸的绍塞群岛，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_UHD.jpg&rf=LaDigue_UHD.jpg "诺曼底海岸的绍塞群岛，法国")
