@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_1024x768.jpg&rf=LaDigue_1024x768.jpg "诺曼底海岸的绍塞群岛，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺曼底海岸的绍塞群岛，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_UHD.jpg&rf=LaDigue_UHD.jpg "诺曼底海岸的绍塞群岛，法国")
+
+
+---
+### 2024 6月 29：只见树木，不见森林
+#### 宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国（© Martin Ruegner/Getty Images）
+![只见树木，不见森林](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_800x480.jpg&rf=LaDigue_800x480.jpg "只见树木，不见森林")
+在德国北部梅克伦堡-前波美拉尼亚州的宁哈根有一处独特的宝藏，名叫“幽灵森林”，它是波罗的海沿岸的一片由山毛榉、橡树和白蜡树组成的混交林。春天，神秘的树木焕发出勃勃生机，就像一个个警惕的幽灵。连绵起伏的丘陵和涛声是这一神奇景色的背景。在这里，空气中弥漫着咸咸的泥土气息，春天绽放出灿烂的光芒。参天的山毛榉树将枝条伸向天空，仿佛在庆祝时间的流逝。树叶在轻风中翩翩起舞，空气中弥漫着淡淡的神秘气息。在长满青苔的小径间，树木低声诉说着过去的故事，而海浪则唱着新生之歌。欢迎来到宁哈根的幽灵森林，春天将手指伸向大地，将灵魂包裹在无限美丽的大自然中。
+
+山毛榉可以长到40到45米高，树枝伸展的宽度几乎与树的高度相当。
+
+[下载480](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_800x480.jpg&rf=LaDigue_800x480.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1024x768.jpg&rf=LaDigue_1024x768.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_UHD.jpg&rf=LaDigue_UHD.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
