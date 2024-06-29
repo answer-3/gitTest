@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1024x768.jpg&rf=LaDigue_1024x768.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_UHD.jpg&rf=LaDigue_UHD.jpg "宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国")
+
+
+---
+### 2024 6月 30：你不会忘记它的！
+#### 乌布寺庙的石雕,巴厘岛,印度尼西亚（© R. Schönebaum/plainpicture）
+![你不会忘记它的！](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_800x480.jpg&rf=LaDigue_800x480.jpg "你不会忘记它的！")
+在莽莽苍苍的雨林、稻田和陡峭的峡谷中，藏着印度尼西亚巴厘岛的文化中心乌布村。据说在8世纪时，一位印度教祭司来到巴厘岛，发现了一个盛产药草和植物的地方。乌布的名字就来源于“ubad”这个词，意为医药。乌布村坐落在青山绿水之间，这里印度教寺庙林立，本土的神话故事也很丰富。今天的图片上展示的神话生物是巴龙，作为精灵之王，它是一种像豹子一样的生物，还是幸运和繁荣的象征。巴龙舞是巴厘岛土生土长的舞蹈，表演时要戴上装饰好的动物面具。
+
+猴子丛林是乌布最知名的景点。
+
+[下载480](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_800x480.jpg&rf=LaDigue_800x480.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg&rf=LaDigue_UHD.jpg "乌布寺庙的石雕,巴厘岛,印度尼西亚")
