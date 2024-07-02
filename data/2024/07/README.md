@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_1024x768.jpg&rf=LaDigue_1024x768.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.ItalicaRuins_ZH-CN5932138207_UHD.jpg&rf=LaDigue_UHD.jpg "意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙")
+
+
+---
+### 2024 7月 3：等等，谁在那儿？
+#### 猫鼬家族（© anetapics/Shutterstock）
+![等等，谁在那儿？](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_800x480.jpg&rf=LaDigue_800x480.jpg "等等，谁在那儿？")
+大家一起说，“哈库纳·马塔塔”！今天是“世界猫鼬日”，一个庆祝这些以直立姿势而闻名的可爱动物的节日。但不要被它们的名字所迷惑，猫鼬并不是猫。它们是獴科的小型食肉动物，原产于非洲西南部的沙漠和草原。猫鼬是高度社会化的动物，生活在被称为“暴徒”的紧密群体中，最多可由30只个体组成。这些群体通力合作，一起觅食、相互梳理毛发、照看孩子，并轮流担任哨兵，监视捕食者。猫鼬在洞穴中过夜，并躲避中午的炎热——它们喜欢午休。
+
+猫鼬因同类暴力致死的比例高达19%，是哺乳动物中占比最高的。
+
+[下载480](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_800x480.jpg&rf=LaDigue_800x480.jpg "猫鼬家族")
+[下载720](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_1024x768.jpg&rf=LaDigue_1024x768.jpg "猫鼬家族")
+[下载1080](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猫鼬家族")
+[下载UHD](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_UHD.jpg&rf=LaDigue_UHD.jpg "猫鼬家族")
