@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_1024x768.jpg&rf=LaDigue_1024x768.jpg "猫鼬家族")
 [下载1080](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猫鼬家族")
 [下载UHD](https://cn.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_UHD.jpg&rf=LaDigue_UHD.jpg "猫鼬家族")
+
+
+---
+### 2024 7月 4：风景如画的白色小镇
+#### 扎哈拉德拉谢拉，安达卢西亚，西班牙（© Francesco Carovillano/eStock Photo）
+![风景如画的白色小镇](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_800x480.jpg&rf=LaDigue_800x480.jpg "风景如画的白色小镇")
+扎哈拉德拉谢拉是西班牙加的斯省的一个白色小镇，它位于格拉萨莱马山脉自然公园内，毗邻扎哈拉-埃尔加斯托水库，在小镇的高处可以欣赏到水库绿松石般的壮丽景色。它还有美丽的鹅卵石街道网，保留着格拉纳达王国时期的布局。这片景观形成于安达卢斯时期，是王国之间商业交流和政治会议的战略要地。它悠久的历史和向现代城镇的演变可以追溯到16世纪。
+
+由于绝大多数建筑都是白色的，该地被认为是“白色小镇”之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_800x480.jpg&rf=LaDigue_800x480.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_1024x768.jpg&rf=LaDigue_1024x768.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_UHD.jpg&rf=LaDigue_UHD.jpg "扎哈拉德拉谢拉，安达卢西亚，西班牙")
