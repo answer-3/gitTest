@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1024x768.jpg&rf=LaDigue_1024x768.jpg "丹翠雨林的诺亚海滩，昆士兰州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹翠雨林的诺亚海滩，昆士兰州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg&rf=LaDigue_UHD.jpg "丹翠雨林的诺亚海滩，昆士兰州，澳大利亚")
+
+
+---
+### 2024 7月 6：让我们扬帆起航！
+#### 从康威河眺望康威城堡，威尔士（© David Chapman/Alamy Stock Photo）
+![让我们扬帆起航！](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_800x480.jpg&rf=LaDigue_800x480.jpg "让我们扬帆起航！")
+在康威河节上穿越时空，扬帆起航！这项活动于1993年首次在康威城堡下的康威码头举行，体现了威尔士航海传统的精髓。在码头日这一免费露天活动中，划船爱好者们可以尽情体验传统船只和现代船只进行友谊赛的乐趣。人们聚集在一起观看航海游行，品尝当地美食，如用茶、干果和香料调味的茶面包，以及由可食用海藻组成的海藻面包。
+
+联合国教科文组织认为康威是“13世纪末和14世纪初欧洲军事建筑的最佳典范”之一，并将其列为世界遗产。
+
+[下载480](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_800x480.jpg&rf=LaDigue_800x480.jpg "从康威河眺望康威城堡，威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_1024x768.jpg&rf=LaDigue_1024x768.jpg "从康威河眺望康威城堡，威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从康威河眺望康威城堡，威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_UHD.jpg&rf=LaDigue_UHD.jpg "从康威河眺望康威城堡，威尔士")
