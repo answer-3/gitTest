@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_1024x768.jpg&rf=LaDigue_1024x768.jpg "越南安沛省木仓寨的水稻梯田")
 [下载1080](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "越南安沛省木仓寨的水稻梯田")
 [下载UHD](https://cn.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_UHD.jpg&rf=LaDigue_UHD.jpg "越南安沛省木仓寨的水稻梯田")
+
+
+---
+### 2024 7月 8：一剂抗氧化剂
+#### 野生蓝莓（© Baac3nes/Getty Images）
+![一剂抗氧化剂](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_800x480.jpg&rf=LaDigue_800x480.jpg "一剂抗氧化剂")
+今天，空气中弥漫着一种酸酸甜甜的水果香味，这是美国人心爱的蓝莓，这一天也是美国蓝莓日。野生蓝莓有13000多年的历史，而人工栽培的蓝莓直到20世纪初才出现。当时，农业专家伊丽莎白·科尔曼·怀特和植物学家弗雷德里克·科维尔在新泽西州合作培育出第一个栽培品种，蓝莓才开始被人工种植。
+
+蓝莓实际上不是蓝色的，而是深紫色。深紫色是花青素的颜色，而蓝莓中恰好含有大量的花青素。
+
+[下载480](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_800x480.jpg&rf=LaDigue_800x480.jpg "野生蓝莓")
+[下载720](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_1024x768.jpg&rf=LaDigue_1024x768.jpg "野生蓝莓")
+[下载1080](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野生蓝莓")
+[下载UHD](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_UHD.jpg&rf=LaDigue_UHD.jpg "野生蓝莓")
