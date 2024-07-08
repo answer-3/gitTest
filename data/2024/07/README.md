@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_1024x768.jpg&rf=LaDigue_1024x768.jpg "野生蓝莓")
 [下载1080](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野生蓝莓")
 [下载UHD](https://cn.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_UHD.jpg&rf=LaDigue_UHD.jpg "野生蓝莓")
+
+
+---
+### 2024 7月 9：千仞高壁
+#### 阿根廷拉里奥哈省塔兰帕亚国家公园（© Gonzalo Azumendi/Getty Images）
+![千仞高壁](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_800x480.jpg&rf=LaDigue_800x480.jpg "千仞高壁")
+今天是阿根廷独立日，塔兰帕亚国家公园邀请我们走进这个国家古老的心脏地带。它坐落在拉里奥哈省，占地830平方英里，是联合国教科文组织认定的世界遗产。公园里，红色的岩层高耸入云，海拔高达469英尺，上面还刻有史前生命的秘密。这里发现过迄今为止最古老的恐龙化石，还有神秘的岩画展示出古老的艺术。公园的悬崖和洞穴上有西恩纳加人、迪亚吉塔人和其他土著文明创造的岩画，他们曾在公元3世纪至9世纪居住在该地区。此外，当地的植物（如耐旱的灌木和仙人掌）和动物则展现了大自然的美丽。原驼、野兔和狐狸在土地上自由漫步，秃鹰、白喉沙雀和沙色窜鸟在天空翩翩起舞。野性的大自然在召唤你，邀请你到塔兰帕亚国家公园探险。
+
+这种地貌是沙漠气候下水和风侵蚀的结果，当地温差很大，白天高温，晚上低温，夏季有暴雨，春季有强风。
+
+[下载480](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_800x480.jpg&rf=LaDigue_800x480.jpg "阿根廷拉里奥哈省塔兰帕亚国家公园")
+[下载720](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿根廷拉里奥哈省塔兰帕亚国家公园")
+[下载1080](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿根廷拉里奥哈省塔兰帕亚国家公园")
+[下载UHD](https://cn.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_UHD.jpg&rf=LaDigue_UHD.jpg "阿根廷拉里奥哈省塔兰帕亚国家公园")
