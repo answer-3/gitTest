@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1024x768.jpg&rf=LaDigue_1024x768.jpg "甘吉，西西里岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "甘吉，西西里岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg&rf=LaDigue_UHD.jpg "甘吉，西西里岛，意大利")
+
+
+---
+### 2024 7月 12：风雨无阻
+#### 雷尼尔山国家公园的野花，华盛顿州，美国（© RomanKhomlyak/Getty Images）
+![风雨无阻](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_800x480.jpg&rf=LaDigue_800x480.jpg "风雨无阻")
+在雷尼尔山冰川的注视下，成片的野花绽放出勃勃的生机。每年夏天，这座山周围的草地上都会盛开着色彩鲜艳的亚高山花朵：紫色的紫菀、粉色的珊瑚兰和黄色的虎皮花只是这里的部分植物。雷尼尔山又名塔霍马山，海拔超14400英尺，是华盛顿州最高的山峰。它被36平方英里的冰川和永久雪原覆盖，是美国48个州中冰川覆盖率最高的山峰。
+
+雷尼尔山是一座冰川覆盖的活火山，从几百英里外就能看到。
+
+[下载480](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_800x480.jpg&rf=LaDigue_800x480.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_1024x768.jpg&rf=LaDigue_1024x768.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
