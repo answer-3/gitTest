@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_1024x768.jpg&rf=LaDigue_1024x768.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg&rf=LaDigue_UHD.jpg "雷尼尔山国家公园的野花，华盛顿州，美国")
+
+
+---
+### 2024 7月 13：快看，这是沉积岩哦
+#### 卡帕多西亚的童话烟囱和窑洞，土耳其（© Storm Is Me/Shutterstock）
+![快看，这是沉积岩哦](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_800x480.jpg&rf=LaDigue_800x480.jpg "快看，这是沉积岩哦")
+今天是国际岩石日，我们要讨论的是花岗岩、石灰石和板岩。岩石有三种类型：火成岩是由凝固的岩浆和熔岩形成的；沉积岩是由沉积颗粒（如沙子）层层堆积而成；变质岩是其他岩石受热和受压后形成的。
+
+古代火山爆发后，厚厚的火山灰覆盖了这一地区，凝固成一种几十米厚的软岩石，被称为凝灰岩。
+
+[下载480](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_800x480.jpg&rf=LaDigue_800x480.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
+[下载720](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
+[下载1080](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
+[下载UHD](https://cn.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg&rf=LaDigue_UHD.jpg "卡帕多西亚的童话烟囱和窑洞，土耳其")
