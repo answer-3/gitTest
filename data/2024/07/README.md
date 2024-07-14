@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_1024x768.jpg&rf=LaDigue_1024x768.jpg "女王花园群岛的镰形真鲨，古巴")
 [下载1080](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "女王花园群岛的镰形真鲨，古巴")
 [下载UHD](https://cn.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg&rf=LaDigue_UHD.jpg "女王花园群岛的镰形真鲨，古巴")
+
+
+---
+### 2024 7月 15：宁静惬意的海滨风光
+#### 立石公园，神奈川县，日本（© blew_s/Shutterstock）
+![宁静惬意的海滨风光](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_800x480.jpg&rf=LaDigue_800x480.jpg "宁静惬意的海滨风光")
+今天的图片带我们来到横须贺市的立石公园，在这里可以欣赏相模湾和富士山的壮丽景色，是庆祝海洋日的理想场所。立石公园是一个风景优美的海滨公园，历史上曾激发过艺术家和摄影师的创作灵感。
+
+该公园以立石海岸线的美丽景色而闻名，远处的富士山能尽收眼底。
+
+[下载480](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_800x480.jpg&rf=LaDigue_800x480.jpg "立石公园，神奈川县，日本")
+[下载720](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_1024x768.jpg&rf=LaDigue_1024x768.jpg "立石公园，神奈川县，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "立石公园，神奈川县，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg&rf=LaDigue_UHD.jpg "立石公园，神奈川县，日本")
