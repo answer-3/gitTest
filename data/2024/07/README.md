@@ -240,13 +240,27 @@
 
 ---
 ### 2024 7月 18：意义深远
-#### Coral reef in the Indian Ocean, Mayotte, France（© Gabriel Barathieu/Minden Pictures）
+#### 印度洋的珊瑚礁，马约特岛，法国（© Gabriel Barathieu/Minden Pictures）
 ![意义深远](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_800x480.jpg&rf=LaDigue_800x480.jpg "意义深远")
 盛开的柱状珊瑚、绿色的海龟和五颜六色的珊瑚鱼，欢迎来到珊瑚礁这个欣欣向荣的水下世界。从7月15日到21日，珊瑚礁保护意识周是向他们致敬的最佳时机。珊瑚礁是由被称为珊瑚虫的微小海洋生物形成的，珊瑚虫创造了巨大的群落，为各种海洋物种提供了家园。当我们把注意力转向它们的美丽和益处的同时，认识到潜在的威胁（气候变化、污染和有害的人类活动）也至关重要。
 
 大多数珊瑚礁在温暖、浅水、清澈、阳光充足、激荡的水中生长得最好。珊瑚礁最早出现于4.85亿年前的早奥陶纪初期，取代了寒武纪的微生物和海绵珊瑚礁。
 
-[下载480](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_800x480.jpg&rf=LaDigue_800x480.jpg "Coral reef in the Indian Ocean, Mayotte, France")
-[下载720](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1024x768.jpg&rf=LaDigue_1024x768.jpg "Coral reef in the Indian Ocean, Mayotte, France")
-[下载1080](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Coral reef in the Indian Ocean, Mayotte, France")
-[下载UHD](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&rf=LaDigue_UHD.jpg "Coral reef in the Indian Ocean, Mayotte, France")
+[下载480](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋的珊瑚礁，马约特岛，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1024x768.jpg&rf=LaDigue_1024x768.jpg "印度洋的珊瑚礁，马约特岛，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋的珊瑚礁，马约特岛，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋的珊瑚礁，马约特岛，法国")
+
+
+---
+### 2024 7月 19：巧妙的伪装
+#### 河岸上的一只年轻美洲虎，潘塔纳尔，巴西（© Tambako the Jaguar/Getty Images）
+![巧妙的伪装](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_800x480.jpg&rf=LaDigue_800x480.jpg "巧妙的伪装")
+请看今天的图片中的野生动物：美洲虎！它是美洲最大的猫科动物，在这里可以看到它在巴西潘塔纳尔的美丽身影。美洲虎大约在200万年前从欧亚大陆经白令海峡迁徙到美洲。如今，美洲虎栖息在从美国西南部林地到阿根廷北部雨林的各种栖息地。
+
+现代美洲虎的祖先很可能是在早更新世时期通过曾经横跨白令海峡的陆桥从欧亚大陆进入美洲的。如今，美洲虎的活动范围从美国西南部横跨墨西哥和中美洲大部分地区、亚马逊雨林，向南延伸到巴拉圭和阿根廷北部。
+
+[下载480](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_800x480.jpg&rf=LaDigue_800x480.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_1024x768.jpg&rf=LaDigue_1024x768.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg&rf=LaDigue_UHD.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
