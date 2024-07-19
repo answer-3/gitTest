@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_1024x768.jpg&rf=LaDigue_1024x768.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg&rf=LaDigue_UHD.jpg "河岸上的一只年轻美洲虎，潘塔纳尔，巴西")
+
+
+---
+### 2024 7月 20：到月亮上去
+#### 月球（© Victor Blum/Getty Images）
+![到月亮上去](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_800x480.jpg&rf=LaDigue_800x480.jpg "到月亮上去")
+“个人的一小步，人类的一大步！”今天是国际月球日，旨在纪念阿波罗11号首次实现了人类登月的梦想。这一天最初被定为“国家月球日”，并于2021年被联合国确立为一个获得全球认可的节日。几千年来，人类一直凝视着天空，思索着月亮的起源和神秘之处，太空探索的出现使得月球成为许多任务的目标。
+
+想象一下，如果地球缩小到硬币大小，月球会有多大？答案是：月球大约只有一粒咖啡豆大小。
+
+[下载480](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_800x480.jpg&rf=LaDigue_800x480.jpg "月球")
+[下载720](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_1024x768.jpg&rf=LaDigue_1024x768.jpg "月球")
+[下载1080](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "月球")
+[下载UHD](https://cn.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_UHD.jpg&rf=LaDigue_UHD.jpg "月球")
