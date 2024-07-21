@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_1024x768.jpg&rf=LaDigue_1024x768.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg&rf=LaDigue_UHD.jpg "肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚")
+
+
+---
+### 2024 7月 22：和我一起避暑吧！
+#### 树上的中国小熊猫, 成都, 四川省, 中国（© Jackyenjoyphotography/Getty Images）
+![和我一起避暑吧！](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_800x480.jpg&rf=LaDigue_800x480.jpg "和我一起避暑吧！")
+今天是大暑节气，既是夏季的最后一个节气，也是一年中阳光最猛烈、最炎热的日子。图中那只在树枝上看向我们的小可爱是大名鼎鼎的中华小熊猫。夏日炎炎，我们也需要放松一下，挑个绿荫密布的地方避暑吧！
+
+2020年，中国科学院动物研究所研究员魏辅文研究发现两个小熊猫亚种约于22万年前就分家了，其后鲜有基因交流，故将小熊猫川西亚种提升为种阶并命名为中华小熊猫。
+
+[下载480](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_800x480.jpg&rf=LaDigue_800x480.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+[下载720](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_1024x768.jpg&rf=LaDigue_1024x768.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+[下载1080](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_UHD.jpg&rf=LaDigue_UHD.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
