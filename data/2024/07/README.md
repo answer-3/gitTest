@@ -297,12 +297,26 @@
 ---
 ### 2024 7月 22：和我一起避暑吧！
 #### 树上的中国小熊猫, 成都, 四川省, 中国（© Jackyenjoyphotography/Getty Images）
-![和我一起避暑吧！](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_800x480.jpg&rf=LaDigue_800x480.jpg "和我一起避暑吧！")
+![和我一起避暑吧！](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_800x480.jpg&rf=LaDigue_800x480.jpg "和我一起避暑吧！")
 今天是大暑节气，既是夏季的最后一个节气，也是一年中阳光最猛烈、最炎热的日子。图中那只在树枝上看向我们的小可爱是大名鼎鼎的中华小熊猫。夏日炎炎，我们也需要放松一下，挑个绿荫密布的地方避暑吧！
 
 2020年，中国科学院动物研究所研究员魏辅文研究发现两个小熊猫亚种约于22万年前就分家了，其后鲜有基因交流，故将小熊猫川西亚种提升为种阶并命名为中华小熊猫。
 
-[下载480](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_800x480.jpg&rf=LaDigue_800x480.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
-[下载720](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_1024x768.jpg&rf=LaDigue_1024x768.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
-[下载1080](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_UHD.jpg&rf=LaDigue_UHD.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+[下载480](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_800x480.jpg&rf=LaDigue_800x480.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+[下载720](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_1024x768.jpg&rf=LaDigue_1024x768.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+[下载1080](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN5359095820_UHD.jpg&rf=LaDigue_UHD.jpg "树上的中国小熊猫, 成都, 四川省, 中国")
+
+
+---
+### 2024 7月 23：历史的回响
+#### 迈索尼城堡，麦西尼亚州，希腊（© Andrew Mayovskyy/Shutterstock）
+![历史的回响](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_800x480.jpg&rf=LaDigue_800x480.jpg "历史的回响")
+迈索尼城堡坐落在希腊南部爱奥尼亚海沿岸的岩石岬角上，是中世纪强权的象征。城堡位于麦西尼亚州一个名为迈索尼的村庄。13世纪初，威尼斯人修建了这座城堡，作为当时一个重要的贸易站和防御堡垒，它保护了西南海岸线免受入侵者的侵害。布尔齐塔是迈索尼城堡的延伸，它坐落在一个小岛上，曾通过一座石桥与主城堡相连。
+
+迈索尼的经济以旅游业为主，当地的海滩和历史悠久的城堡吸引了众多游客。
+
+[下载480](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_800x480.jpg&rf=LaDigue_800x480.jpg "迈索尼城堡，麦西尼亚州，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_1024x768.jpg&rf=LaDigue_1024x768.jpg "迈索尼城堡，麦西尼亚州，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "迈索尼城堡，麦西尼亚州，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_UHD.jpg&rf=LaDigue_UHD.jpg "迈索尼城堡，麦西尼亚州，希腊")
