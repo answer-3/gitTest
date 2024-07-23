@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_1024x768.jpg&rf=LaDigue_1024x768.jpg "迈索尼城堡，麦西尼亚州，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "迈索尼城堡，麦西尼亚州，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_UHD.jpg&rf=LaDigue_UHD.jpg "迈索尼城堡，麦西尼亚州，希腊")
+
+
+---
+### 2024 7月 24：可爱的羊咩咩一家
+#### 北约克郡的黑面羊羊群，英格兰（© R A Kearton/Getty Images）
+![可爱的羊咩咩一家](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_800x480.jpg&rf=LaDigue_800x480.jpg "可爱的羊咩咩一家")
+如果没有他们，家庭聚会的氛围就会大打折扣！今天是美国的堂表亲日，让我们聚在一起庆祝与堂表亲之间独特的亲情纽带。趁此机会，不妨回忆一下你们之间经历过的冒险，成长的秘密，以及那些打打闹闹却让彼此更亲近的时光。“一代堂表亲”（指父亲或母亲的兄弟姐妹的孩子）共享约12.5%的DNA，这就是为什么你对他们常常充满爱和理解。所以，快去和你的堂表亲们好好计划一下，是去野餐？还是去你最喜欢的地方共享美食，度过这愉快的一天。欢乐的时光，不要忘记拍照留念，就像英格兰北约克郡山谷中的这群黑面羊一样。也许，这群羊里面也有几只是“堂表亲”。
+
+斯瓦乐代尔羊（又称黑面羊）这个品种与苏格兰黑脸羊和粗毛羊有着“亲戚关系”，它们主要分布在英国高地，能在开阔的地区茁壮成长，并以此闻名。
+
+[下载480](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_800x480.jpg&rf=LaDigue_800x480.jpg "北约克郡的黑面羊羊群，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_1024x768.jpg&rf=LaDigue_1024x768.jpg "北约克郡的黑面羊羊群，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北约克郡的黑面羊羊群，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_UHD.jpg&rf=LaDigue_UHD.jpg "北约克郡的黑面羊羊群，英格兰")
