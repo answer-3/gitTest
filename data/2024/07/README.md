@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_1024x768.jpg&rf=LaDigue_1024x768.jpg "大烟山国家公园的森林小道，田纳西州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大烟山国家公园的森林小道，田纳西州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_UHD.jpg&rf=LaDigue_UHD.jpg "大烟山国家公园的森林小道，田纳西州，美国")
+
+
+---
+### 2024 7月 26：比赛开始
+#### 塞纳河上的新桥，巴黎，法国（© f11photo/Getty Images）
+![比赛开始](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_800x480.jpg&rf=LaDigue_800x480.jpg "比赛开始")
+今天是巴黎夏季奥运会开幕的日子。“光之城”巴黎成为继伦敦之后第二个第三次举办夏季奥运会的城市。这届奥运会的独特之处在于其开幕式：参赛选手不再站在体育场内，而将乘坐船队沿塞纳河游行，两岸观众会为之欢呼。其实，这不是巴黎第一次打破陈规了。在1900年的巴黎奥运会中，虽然在997名参赛运动员中只有22名是女性，但这是历史上第一次有女运动员参加奥运会。
+
+2022年11月14日，“弗里热（The Phryges）”作为2024年夏季奥运会和残奥会的吉祥物亮相。它们是一对拟人化的弗里吉亚帽，在法国历史上是自由的象征。
+
+[下载480](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_800x480.jpg&rf=LaDigue_800x480.jpg "塞纳河上的新桥，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞纳河上的新桥，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞纳河上的新桥，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_UHD.jpg&rf=LaDigue_UHD.jpg "塞纳河上的新桥，巴黎，法国")
