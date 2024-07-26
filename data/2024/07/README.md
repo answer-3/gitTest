@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞纳河上的新桥，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞纳河上的新桥，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_UHD.jpg&rf=LaDigue_UHD.jpg "塞纳河上的新桥，巴黎，法国")
+
+
+---
+### 2024 7月 27：完美的葡萄酒
+#### 摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国（© Jorg Greuel/Getty Images）
+![完美的葡萄酒](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_800x480.jpg&rf=LaDigue_800x480.jpg "完美的葡萄酒")
+欢迎来到让葡萄酒爱好者梦想成真的法尔茨。位于德国西部的法尔茨以风景如画的葡萄园而闻名，这里山峦起伏，土壤肥沃，气候温暖。得天独厚的风土条件培育出了种类繁多的葡萄。除了雷司令，这里还出产霞多丽、长相思、白皮诺、米勒-图高和丹菲特等著名葡萄品种。法尔茨是德国最大的红葡萄酒产区，该地区超过40%的葡萄园所种植的葡萄都用于酿造红葡萄酒。
+
+虽然野生品种的葡萄很可能原产于法尔茨地区，但是罗马人在公元1年左右带来了葡萄的栽培和种植技术。
+
+[下载480](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_800x480.jpg&rf=LaDigue_800x480.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
+[下载720](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1024x768.jpg&rf=LaDigue_1024x768.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg&rf=LaDigue_UHD.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
