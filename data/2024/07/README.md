@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1024x768.jpg&rf=LaDigue_1024x768.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg&rf=LaDigue_UHD.jpg "摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国")
+
+
+---
+### 2024 7月 28：色彩斑斓的海岸线
+#### 斯科讷省海滩上的浴场小屋，瑞典（© Martin Wahlborg/Getty Images）
+![色彩斑斓的海岸线](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_800x480.jpg&rf=LaDigue_800x480.jpg "色彩斑斓的海岸线")
+说到生机勃勃的海滩景色，瑞典的斯科讷省绝对不会让人失望。今天的图片展示的是斯科讷镇沙滩上的彩色小屋。这片海滩位于法尔斯特布半岛西侧，绵延6英里多，是最受欢迎的海滩之一。这部分海滩靠近斯卡诺尔码头，是夏季游客最喜欢的沐浴地点。
+
+从拥有海滩和避暑胜地的平坦沿海地区向北方内陆深入，是瑞典最肥沃的平原之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_800x480.jpg&rf=LaDigue_800x480.jpg "斯科讷省海滩上的浴场小屋，瑞典")
+[下载720](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯科讷省海滩上的浴场小屋，瑞典")
+[下载1080](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯科讷省海滩上的浴场小屋，瑞典")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_UHD.jpg&rf=LaDigue_UHD.jpg "斯科讷省海滩上的浴场小屋，瑞典")
