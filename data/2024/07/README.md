@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯科讷省海滩上的浴场小屋，瑞典")
 [下载1080](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯科讷省海滩上的浴场小屋，瑞典")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_UHD.jpg&rf=LaDigue_UHD.jpg "斯科讷省海滩上的浴场小屋，瑞典")
+
+
+---
+### 2024 7月 29：咆哮与探索
+#### 科贝国家公园的老虎兄弟，北阿坎德邦，印度（© Sourabh Bharti/Getty Images）
+![咆哮与探索](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_800x480.jpg&rf=LaDigue_800x480.jpg "咆哮与探索")
+今天是世界爱虎日，这一节日设立于2010年，在每年的7月29日举办庆祝活动，旨在保护老虎免受偷猎和因森林砍伐导致栖息地丧失等威胁。19世纪末，野生老虎的数量估计约为10万只。而如今，老虎的数量已不足6000只。
+
+老虎是世界上现存最大的猫科动物。
+
+[下载480](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_800x480.jpg&rf=LaDigue_800x480.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_1024x768.jpg&rf=LaDigue_1024x768.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg&rf=LaDigue_UHD.jpg "科贝国家公园的老虎兄弟，北阿坎德邦，印度")
