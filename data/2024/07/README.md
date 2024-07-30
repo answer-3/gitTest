@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg&rf=LaDigue_UHD.jpg "圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚")
+
+
+---
+### 2024 7月 31：这里有“胡图”吗？
+#### 石林，日落点，布莱斯峡谷国家公园，犹他州，美国（© Tim Fitzharris/Minden Pictures）
+![这里有“胡图”吗？](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_800x480.jpg&rf=LaDigue_800x480.jpg "这里有“胡图”吗？")
+让我们去石林旅行吧，犹他州的布莱斯峡谷国家公园就是我们的目的地。这座公园以摩门先驱埃比尼泽·布莱斯的名字命名，公园内有日落点，也就是今天图片中看到的石林。这些岩层是由霜冻风化和溪流侵蚀形成的，将石头塑造成超凡脱俗的地貌。日落点位于海拔8000至9000英尺的地方，可以一览红色、橙色和白色的石峰全景。其中最著名的是雷神之锤，这是一座石林，俯瞰着被称为“寂静之城”的公园的一部分。在日落点通往日出点的女王花园小径，你可以欣赏到更多美景和岩层，包括维多利亚女王石林。据居住在这一地区的派尤特土著居民所讲述的传说，石林是被狡猾的库伊特狐狸变成石头的罪人。无论你是徒步旅行者、摄影师还是普通游客，石林都在期待你的到来。
+
+公园的主要景点是布莱斯峡谷，尽管它的名字有“峡谷”，但实际上它并不是一个峡谷。
+
+[下载480](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_800x480.jpg&rf=LaDigue_800x480.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_1024x768.jpg&rf=LaDigue_1024x768.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_UHD.jpg&rf=LaDigue_UHD.jpg "石林，日落点，布莱斯峡谷国家公园，犹他州，美国")
