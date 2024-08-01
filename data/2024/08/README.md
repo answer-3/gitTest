@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
 [下载1080](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
 [下载UHD](https://cn.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg&rf=LaDigue_UHD.jpg "卡普泰湖水上市场，兰加马蒂，孟加拉")
+
+
+---
+### 2024 8月 2：彩虹之下的某个地方
+#### 象鼻湾，维尔京群岛国家公园，圣约翰岛（© wheatley/Getty Images）
+![彩虹之下的某个地方](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹之下的某个地方")
+1956年，商人兼自然保护主义者劳伦斯·洛克菲勒看到了加勒比海美属维尔京群岛之一圣约翰岛的美景，并意识到必须保护它。时间快进到今天，我们正在庆祝维尔京群岛国家公园成立68周年。这座公园占地约60%的岛屿和5,650英亩的水下土地，是一个活生生的保护范例，这还要归功于洛克菲勒向美国政府捐赠了5,000多英亩的土地。即使在2017年飓风“厄玛”和“玛丽亚”造成破坏之后，公园仍然强势回归，仅2018年就接待了超过10万名游客。公园里有800多种植物，如野生罗望子和世纪树，140种鸟类，如绿颈鹑鸠和绿喉蜂鸟，以及大约50种珊瑚。在礁湾小径上，徒步旅行者可以看到古老的泰诺岩画和甘蔗种植园遗址，展示了该岛的殖民历史。从图中树干湾的水下浮潜小径到马霍湾满是海龟的水域，公园提供了各种各样的海洋冒险活动。
+
+维尔京群岛国家公园覆盖了圣约翰岛的大部分地区，公园40%的面积都在水下。
+
+[下载480](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_800x480.jpg&rf=LaDigue_800x480.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
+[下载720](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_1024x768.jpg&rf=LaDigue_1024x768.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg&rf=LaDigue_UHD.jpg "象鼻湾，维尔京群岛国家公园，圣约翰岛")
