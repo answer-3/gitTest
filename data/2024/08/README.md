@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_1024x768.jpg&rf=LaDigue_1024x768.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg&rf=LaDigue_UHD.jpg "天生三桥，重庆武隆岩溶国家地质公园，中国")
+
+
+---
+### 2024 8月 4：我是你的朋友
+#### 黑斑羚和红嘴牛椋鸟，南非（© Matrishva Vyas/Getty Images）
+![我是你的朋友](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_800x480.jpg&rf=LaDigue_800x480.jpg "我是你的朋友")
+每年八月的第一个星期日，美国都会庆祝友谊日。这一活动始于1930年，当时霍尔马克贺卡公司创始人乔伊斯·霍尔提议将这一天作为人们通过寄送贺卡来答谢朋友的日子。1935年，美国国会宣布这一天为全国性节日。
+
+1958年7月20日，雷蒙·阿尔特米奥·布拉乔博士在巴拉圭亚松森以北约200英里（320公里）处的河畔小镇与朋友共进晚餐时，首次提出了设立“国际友谊日”的想法。
+
+[下载480](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_800x480.jpg&rf=LaDigue_800x480.jpg "黑斑羚和红嘴牛椋鸟，南非")
+[下载720](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_1024x768.jpg&rf=LaDigue_1024x768.jpg "黑斑羚和红嘴牛椋鸟，南非")
+[下载1080](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑斑羚和红嘴牛椋鸟，南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg&rf=LaDigue_UHD.jpg "黑斑羚和红嘴牛椋鸟，南非")
