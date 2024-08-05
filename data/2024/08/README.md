@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_1024x768.jpg&rf=LaDigue_1024x768.jpg "薰衣草田，赫特福德郡 ，英格兰，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "薰衣草田，赫特福德郡 ，英格兰，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg&rf=LaDigue_UHD.jpg "薰衣草田，赫特福德郡 ，英格兰，英国")
+
+
+---
+### 2024 8月 6：迎合所有人口味的景点
+#### 莫洛基尼，毛伊岛，夏威夷，美国（© Douglas Peebles/eStock Photo）
+![迎合所有人口味的景点](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_800x480.jpg&rf=LaDigue_800x480.jpg "迎合所有人口味的景点")
+今天我们来到了莫洛基尼火山口。它是太平洋中的一个迷人“月牙”，位于夏威夷的毛伊岛和卡霍奥拉维岛之间的阿拉拉凯基海峡中。小岛是约23万年前火山喷发后留下的遗迹形成的。关于小岛的形成，还有另一个说法。在夏威夷的神话中，火女神佩蕾爱上了一个名叫莫欧的男人，问题是莫欧爱着另一个女人。佩蕾的复仇往往很暴力：她把情敌切成了两半，对方的身体变成了莫洛基尼，脑袋变成了普奥莱，即毛伊岛上的火山渣锥。
+
+在夏威夷的传说中，莫洛基尼是一个美丽的女人，她和火女神佩蕾爱上了同一个男人。嫉妒的佩蕾将情敌切成两半，并将其变成了石头。据说，莫洛基尼的头就是马凯纳海滩边的火山渣锥：普奥莱。
+
+[下载480](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_800x480.jpg&rf=LaDigue_800x480.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1024x768.jpg&rf=LaDigue_1024x768.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_UHD.jpg&rf=LaDigue_UHD.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
