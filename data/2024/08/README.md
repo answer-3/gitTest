@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1024x768.jpg&rf=LaDigue_1024x768.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_UHD.jpg&rf=LaDigue_UHD.jpg "莫洛基尼，毛伊岛，夏威夷，美国")
+
+
+---
+### 2024 8月 7：不止是航海需要它
+#### 圣约瑟夫北码头内灯和外灯，密歇根州，美国（© Kenneth Keifer/Getty Images）
+![不止是航海需要它](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_800x480.jpg&rf=LaDigue_800x480.jpg "不止是航海需要它")
+昏暗的黄昏中，灯塔点亮了密歇根湖与圣约瑟夫河的交汇处。19世纪，密歇根湖上修建了两座码头，它们分别位于圣约瑟夫河河口的两侧，以帮助保护上游航行的船只。到了20世纪初，每个码头的尽头都修建了一座灯塔。如图所示，它们便是圣约瑟夫北码头内灯和外灯。2005年，这些码头尽头的灯塔被添加到美国国家历史遗迹名录中。
+
+花鸟灯塔位于浙江省舟山市嵊泗县，它是中国沿海数百座灯塔中最大、功能最齐全、设备最先进、历史最悠久的灯塔之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_800x480.jpg&rf=LaDigue_800x480.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_UHD.jpg&rf=LaDigue_UHD.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
