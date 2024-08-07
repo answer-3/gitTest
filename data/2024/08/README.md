@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_UHD.jpg&rf=LaDigue_UHD.jpg "圣约瑟夫北码头内灯和外灯，密歇根州，美国")
+
+
+---
+### 2024 8月 8：小猫头鹰瞪了你一眼
+#### 横斑腹小鸮，曼谷，泰国（© Tfilm/Getty Images）
+![小猫头鹰瞪了你一眼](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_800x480.jpg&rf=LaDigue_800x480.jpg "小猫头鹰瞪了你一眼")
+如果比赛对视，你觉得你能赢过这种鸟儿吗？横斑腹小鸮有着灰褐色的脸和锐利的黄色眼睛，主要在夜间活动。白天，横斑腹小鸮会休息，当其它小鸟发现它们时，会围攻它们。一旦受到骚扰，横斑腹小鸮往往会瞪着入侵者，晃动脑袋，并发出响亮的尖叫声，这种声音有时也被描述为笑声或咯咯声。
+
+在希腊神话中，雅典娜被誉为智慧、战争和艺术女神。传说中，这位女神和鸟类有着某种特殊的联系。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_800x480.jpg&rf=LaDigue_800x480.jpg "横斑腹小鸮，曼谷，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1024x768.jpg&rf=LaDigue_1024x768.jpg "横斑腹小鸮，曼谷，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "横斑腹小鸮，曼谷，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_UHD.jpg&rf=LaDigue_UHD.jpg "横斑腹小鸮，曼谷，泰国")
