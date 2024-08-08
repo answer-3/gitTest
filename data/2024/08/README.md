@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1024x768.jpg&rf=LaDigue_1024x768.jpg "横斑腹小鸮，曼谷，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "横斑腹小鸮，曼谷，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_UHD.jpg&rf=LaDigue_UHD.jpg "横斑腹小鸮，曼谷，泰国")
+
+
+---
+### 2024 8月 9：弘扬土著文化
+#### 库斯科附近的萨克塞华曼印加遗址，秘鲁（© SL_Photography/Getty Images）
+![弘扬土著文化](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_800x480.jpg&rf=LaDigue_800x480.jpg "弘扬土著文化")
+今天，我们为世界各地土著居民的遗产和文化而庆祝。从萨摩亚和格陵兰到新西兰和尼泊尔，全世界90个国家中约有5000种土著文化。他们面临的主要挑战之一是语言的消失：据估计，在全世界4000种土著语言中，约有2600种面临灭绝的危险。
+
+萨克塞华曼是一座由巨大的石头雕刻而成的建筑，其精密度令人惊叹。印加人建造它时所使用的古老技术至今仍是一个不解之谜。
+
+[下载480](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_800x480.jpg&rf=LaDigue_800x480.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
+[下载720](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1024x768.jpg&rf=LaDigue_1024x768.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
+[下载1080](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
+[下载UHD](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&rf=LaDigue_UHD.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
