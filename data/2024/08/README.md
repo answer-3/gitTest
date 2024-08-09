@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1024x768.jpg&rf=LaDigue_1024x768.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
 [下载1080](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
 [下载UHD](https://cn.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg&rf=LaDigue_UHD.jpg "库斯科附近的萨克塞华曼印加遗址，秘鲁")
+
+
+---
+### 2024 8月 10：星空下的约书亚树
+#### 约书亚树国家公园，加利福尼亚州，美国（© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion）
+![星空下的约书亚树](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_800x480.jpg&rf=LaDigue_800x480.jpg "星空下的约书亚树")
+加利福尼亚州约书亚树国家公园的历史早在1936年8月10日成为国家纪念碑之前就开始了。它位于莫哈维沙漠和科罗拉多沙漠的交汇处，数千年来一直是各种文化的家园。该地最早的居民是来自平托文化的人，他们在公元前8000年到4000年生活在这里。几个世纪后，卡惠拉人、塞拉诺人和切梅惠维人也开始在这片土地上生活。与公园同名的约书亚树生长在占地1242平方英里的土地上。尽管它们的名字是“树”，但它们并不是真正的树，而是一种多肉植物。它们原产于美国西南部和墨西哥北部，可以长到40英尺高。
+
+在新月前后的晴朗夜晚，约书亚树国家公园的天空黑暗程度按波特尔暗空分类法可被评为2至4级。
+
+[下载480](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_800x480.jpg&rf=LaDigue_800x480.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1024x768.jpg&rf=LaDigue_1024x768.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg "约书亚树国家公园，加利福尼亚州，美国")
