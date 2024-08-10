@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1024x768.jpg&rf=LaDigue_1024x768.jpg "约书亚树国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约书亚树国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg&rf=LaDigue_UHD.jpg "约书亚树国家公园，加利福尼亚州，美国")
+
+
+---
+### 2024 8月 11：人迹罕至的路
+#### 通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省（© EB Adventure Photography/Shutterstock）
+![人迹罕至的路](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_800x480.jpg&rf=LaDigue_800x480.jpg "人迹罕至的路")
+一起探索加拿大温哥华岛的美景吧。今天的图片中的那被古松和雪松环绕的木板路，可以通向岛上最大的淡水湖——肯尼迪湖。这个湖占地16000英亩。它位于克里阔特河和肯尼迪河的交汇处，是特拉-奥奎-阿赫特第一民族祖传土地的一部分。
+
+定居型虎鲸分为两大类，一类生活在南岛水域，另一类生活在北岛水域。人们从远处观察这些虎鲸，并给它们编号，许多虎鲸还有名字。
+
+[下载480](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_800x480.jpg&rf=LaDigue_800x480.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
+[下载720](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1024x768.jpg&rf=LaDigue_1024x768.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
+[下载1080](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
+[下载UHD](https://cn.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_UHD.jpg&rf=LaDigue_UHD.jpg "通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省")
