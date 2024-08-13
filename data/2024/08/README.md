@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_1024x768.jpg&rf=LaDigue_1024x768.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_UHD.jpg&rf=LaDigue_UHD.jpg "特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚")
+
+
+---
+### 2024 8月 14：今天感觉很精神
+#### 澳洲魔蜥，瓦塔卡国家公园，澳大利亚（© Yva Momatiuk and John Eastcott/Minden Pictures）
+![今天感觉很精神](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_800x480.jpg&rf=LaDigue_800x480.jpg "今天感觉很精神")
+从神话到现代媒体，蜥蜴经常被描绘成可怕的爬行动物。事实证明，它们并不像传说中那么危险。今天是世界蜥蜴日，是了解这些冷血动物的最佳时机。蜥蜴有7000多个品种，它们能够适应从沙漠到热带雨林的各种环境。比如壁虎，这些小小的爬行动物有专门的趾垫，可以攀爬墙壁，甚至在天花板上行走。还有变色龙，因其会变色的皮肤而闻名。虽然很多人认为变色龙的目的是为了融入环境，但其实变色龙还通过改变颜色来交流和调节体温。
+
+一些蜥蜴物种，如鞭尾蜥，可以通过孤雌生殖的方式，在没有雄性的情况下繁殖，它们的后代全是雌性。
+
+[下载480](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_800x480.jpg&rf=LaDigue_800x480.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_1024x768.jpg&rf=LaDigue_1024x768.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_UHD.jpg&rf=LaDigue_UHD.jpg "澳洲魔蜥，瓦塔卡国家公园，澳大利亚")
