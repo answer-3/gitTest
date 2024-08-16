@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1024x768.jpg&rf=LaDigue_1024x768.jpg "长岛温泉乐园的过山车，三重县，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "长岛温泉乐园的过山车，三重县，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg&rf=LaDigue_UHD.jpg "长岛温泉乐园的过山车，三重县，日本")
+
+
+---
+### 2024 8月 17：照亮前行之路
+#### 阿尔凡齐纳灯塔，阿尔加维，葡萄牙（© Andreas Kunz/Getty Images）
+![照亮前行之路](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_800x480.jpg&rf=LaDigue_800x480.jpg "照亮前行之路")
+今天照片中的灯塔位于葡萄牙南部海岸阿尔加维的卡沃埃罗。阿尔凡齐纳灯塔建于1919年，照耀着大海，帮助船只在该地区周围危险的水域航行。这座灯塔是著名的旅游胜地，同时也是该地区与海洋紧密联系的象征。如果你有幸住在灯塔附近，那么本周末就是拜访灯塔的最佳时机。
+
+多项研究认为，阿尔加维是世界上最适合养老的地方之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
