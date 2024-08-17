@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔凡齐纳灯塔，阿尔加维，葡萄牙")
+
+
+---
+### 2024 8月 18：一个无与伦比的码头
+#### 日落时的亨廷顿海滩码头，加利福尼亚州，美国（© Stan Moniz Photography/TANDEM Stills + Motion）
+![一个无与伦比的码头](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_800x480.jpg&rf=LaDigue_800x480.jpg "一个无与伦比的码头")
+在今天的照片中，我们看到太阳开始消失在加利福尼亚亨廷顿海滩的码头下方。亨廷顿海滩码头始建于1902年，曾因暴风雨而受损，九年后才得以重建。第二次世界大战期间，码头上安装了一个潜艇瞭望哨，为战争出力。如今，这里已成为一个热门的旅游景点，游客们可以在这里钓鱼，观看冲浪者在太平洋上乘风破浪。
+
+最初的码头是由木头建造的，延伸到太平洋1000英尺（300）米的地方，但在1910年的一场风暴中受损，码头大部分落入了海洋。
+
+[下载480](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_800x480.jpg&rf=LaDigue_800x480.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
