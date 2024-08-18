@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的亨廷顿海滩码头，加利福尼亚州，美国")
+
+
+---
+### 2024 8月 19：铿锵有力的打击乐
+#### Bufadero de la Garita，大加那利岛，西班牙（© Marco Bottigelli/Getty Images）
+![铿锵有力的打击乐](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_800x480.jpg&rf=LaDigue_800x480.jpg "铿锵有力的打击乐")
+西班牙有一个令人惊叹的景点，名为Bufadero de la Garita，您听说过吗？它位于西班牙的大加那利岛，离非洲西北部的大西洋海岸不远。这是一个不容错过的自然奇观，位于该岛风景如画的东海岸，是个迷人的“海上喷水孔”，海水以强劲的力量涌入岩石中又喷涌出来，创造出令人印象深刻的奇观，就像我们今天在图片中看到的那样。
+
+在大加那利岛的东边，有一个名为Bufadero de la Garita的地质构造，海水经常会从岩石中喷涌而出。岩石上有两个大洞，汹涌的波涛不断涌入洞中，将其填满而后又被排空。
+
+[下载480](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_800x480.jpg&rf=LaDigue_800x480.jpg "Bufadero de la Garita，大加那利岛，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_1024x768.jpg&rf=LaDigue_1024x768.jpg "Bufadero de la Garita，大加那利岛，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Bufadero de la Garita，大加那利岛，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_UHD.jpg&rf=LaDigue_UHD.jpg "Bufadero de la Garita，大加那利岛，西班牙")
