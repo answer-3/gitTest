@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_1024x768.jpg&rf=LaDigue_1024x768.jpg "Bufadero de la Garita，大加那利岛，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Bufadero de la Garita，大加那利岛，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_UHD.jpg&rf=LaDigue_UHD.jpg "Bufadero de la Garita，大加那利岛，西班牙")
+
+
+---
+### 2024 8月 20：鹿和羚羊嬉戏的地方
+#### 大提顿国家公园日出,怀俄明州,美国（© Kurt Budliger/TANDEM Stills + Motion）
+![鹿和羚羊嬉戏的地方](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_800x480.jpg&rf=LaDigue_800x480.jpg "鹿和羚羊嬉戏的地方")
+正如今天图片所展示的那样，怀俄明州和大提顿国家公园拥有令人惊叹的美景，这就是为什么它可以吸引人们不断地回到这里。早些年间，法国猎人将这里取名为“三个乳头”，1929年，小约翰·戴维森·洛克菲勒等生态环保人士创建了大提顿国家公园。公园里有灰熊、狼、野牛、驼鹿和白头海雕等动物，是一个几乎未受破坏的动植物生态系统。
+
+https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
+
+[下载480](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_800x480.jpg&rf=LaDigue_800x480.jpg "大提顿国家公园日出,怀俄明州,美国")
+[下载720](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1024x768.jpg&rf=LaDigue_1024x768.jpg "大提顿国家公园日出,怀俄明州,美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大提顿国家公园日出,怀俄明州,美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg&rf=LaDigue_UHD.jpg "大提顿国家公园日出,怀俄明州,美国")
