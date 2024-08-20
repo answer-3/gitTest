@@ -278,3 +278,17 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1024x768.jpg&rf=LaDigue_1024x768.jpg "大提顿国家公园日出,怀俄明州,美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大提顿国家公园日出,怀俄明州,美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg&rf=LaDigue_UHD.jpg "大提顿国家公园日出,怀俄明州,美国")
+
+
+---
+### 2024 8月 21：等待前往加拉帕戈斯群岛
+#### 纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔（© Tui De Roy/Minden Pictures）
+![等待前往加拉帕戈斯群岛](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_800x480.jpg&rf=LaDigue_800x480.jpg "等待前往加拉帕戈斯群岛")
+东太平洋的加拉帕戈斯群岛是野生动物的天堂，它们的栖息地范围从干旱地区到热带雨林不等。由于这些岛屿的地理位置相对孤立，岛上许多生物都是独一无二的，纳斯卡鲣鸟便是其中之一。今天的照片展示的就是在沃尔夫岛上生活的纳斯卡鲣鸟。这些引人注目的鸟儿走路时举止笨拙搞笑，它们的英文名“Nazca booby”也十分有趣，不过“booby”一词其实源自西班牙语“bobo”，意思是小丑。
+
+纳斯卡鲣鸟在悬崖附近的裸露地面筑巢，那里几乎没有植被，雄性纳斯卡鲣鸟会挑选并保卫自己的领土，而后进入求偶期，吸引雌性。
+
+[下载480](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_800x480.jpg&rf=LaDigue_800x480.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1024x768.jpg&rf=LaDigue_1024x768.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_UHD.jpg&rf=LaDigue_UHD.jpg "纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔")
