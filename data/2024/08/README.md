@@ -306,3 +306,17 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1024x768.jpg&rf=LaDigue_1024x768.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_UHD.jpg&rf=LaDigue_UHD.jpg "海洋城日出时的鸟瞰图，马里兰州，美国")
+
+
+---
+### 2024 8月 23：通往过去的大门
+#### 帕侬蓝寺，武里南府，泰国（© Banjongseal324/Getty Images）
+![通往过去的大门](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_800x480.jpg&rf=LaDigue_800x480.jpg "通往过去的大门")
+今天，让我们走进泰国武里南府的帕侬蓝历史公园。在这里，高棉建筑和高棉人的历史栩栩如生地展现在人们面前。该遗址建于10至13世纪，是一座供奉湿婆神的印度教寺庙。寺庙位于一座死火山的边缘，从这里可以俯瞰周围的稻田和远处高耸入云的柬埔寨扁担山脉。
+
+从1971年到1988年，泰国美术局花了17年将该建筑群恢复原状。1988年5月21日，玛哈·扎克里·诗琳通公主宣布帕侬蓝历史公园正式开放。2005年，该寺庙的资料被提交给联合国教科文组织，申请列入世界遗产名录。
+
+[下载480](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_800x480.jpg&rf=LaDigue_800x480.jpg "帕侬蓝寺，武里南府，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕侬蓝寺，武里南府，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕侬蓝寺，武里南府，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_UHD.jpg&rf=LaDigue_UHD.jpg "帕侬蓝寺，武里南府，泰国")
