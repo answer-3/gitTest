@@ -334,3 +334,17 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg&rf=LaDigue_UHD.jpg "卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国")
+
+
+---
+### 2024 8月 25：守护这片乐园
+#### 急流湖的日出，冰川国家公园，蒙大拿州，美国（© Jason Savage/Tandem Stills + Motion）
+![守护这片乐园](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_800x480.jpg&rf=LaDigue_800x480.jpg "守护这片乐园")
+在美国国家公园管理局创始人日，与我们一起为美国的荒野而庆祝。今天，我们向具有创建国家公园管理局的远见和卓识的创始人致敬。伍德罗·威尔逊总统成立该组织的目的是保护野生动物、维护自然景观、保存历史文物并提供教育项目。在这一天，您可以游览美国429个国家公园中的其中一个，并参与到护林员主导的项目、志愿者活动和庆祝活动中，以便于了解更多与之相关的历史。
+
+急流湖以西的山脉高出湖面3000英尺（910米）。正在迅速消失的格林内尔冰川是为湖泊和溪流提供水源的几处冰川和雪原之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_800x480.jpg&rf=LaDigue_800x480.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1024x768.jpg&rf=LaDigue_1024x768.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&rf=LaDigue_UHD.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
