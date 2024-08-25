@@ -348,3 +348,17 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1024x768.jpg&rf=LaDigue_1024x768.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg&rf=LaDigue_UHD.jpg "急流湖的日出，冰川国家公园，蒙大拿州，美国")
+
+
+---
+### 2024 8月 26：田园诗般的岛屿之旅
+#### 巴尔米拉环礁国家野生动物保护区，中太平洋（© Ian Shive/Tandem Stills + Motion）
+![田园诗般的岛屿之旅](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_800x480.jpg&rf=LaDigue_800x480.jpg "田园诗般的岛屿之旅")
+欢迎来到太平洋中部的生态旅行者天堂。巴尔米拉环礁国家野生动物保护区位于夏威夷和美属萨摩亚之间，成立于2001年，旨在保护和管理巴尔米拉环礁的鱼类、野生动物、植物及其栖息地。
+
+太平洋偏远岛屿海洋国家纪念碑由巴尔米拉环礁、贝克岛、豪兰岛、贾维斯岛、约翰斯顿环礁和金曼礁组成，由乔治·w·布什总统于2009年1月6日宣布成立。
+
+[下载480](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_800x480.jpg&rf=LaDigue_800x480.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
+[下载720](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
+[下载1080](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
+[下载UHD](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
