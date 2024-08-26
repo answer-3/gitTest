@@ -362,3 +362,17 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
 [下载1080](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
 [下载UHD](https://cn.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔米拉环礁国家野生动物保护区，中太平洋")
+
+
+---
+### 2024 8月 27：沼泽里的生活真美好！
+#### 黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁（© Maxime Aliaga/Minden Pictures）
+![沼泽里的生活真美好！](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_800x480.jpg&rf=LaDigue_800x480.jpg "沼泽里的生活真美好！")
+今天的图片展示了秘鲁坦博帕塔国家保护区里的黑凯门鳄，这是一种南美洲的隐秘的河中巨兽。这些凯门鳄是短吻鳄家族中最大的物种，体长可达20英尺，体重可达1000磅。它们与众不同的地方在于其深绿色的皮肤，这有助于它们融入浑浊的水底。这些食肉动物在淡水环境中繁衍生息，比如流动缓慢的河流、湖泊和被季节性洪水淹没的稀树草原。它们在这些水域中捕食鸟类、鱼类、龟类，偶尔还会捕食大型哺乳动物。黑凯门鳄在维持生态系统平衡方面发挥着重要作用。凯门鳄数量减少意味着会有更多的食人鱼攻击牛群，水豚也会泛滥成灾，对农作物造成损害。
+
+成年黑凯门鳄没有天敌，其他体型相似的鳄鱼物种也是如此，因为它们体型庞大、体重沉重、咬合力强、皮肤厚实且力量强大。不过，在极少数情况下，它们可能会被美洲虎捕食。
+
+[下载480](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_800x480.jpg&rf=LaDigue_800x480.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
+[下载720](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_1024x768.jpg&rf=LaDigue_1024x768.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
+[下载1080](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
+[下载UHD](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&rf=LaDigue_UHD.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
