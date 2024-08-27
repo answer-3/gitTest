@@ -376,3 +376,17 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_1024x768.jpg&rf=LaDigue_1024x768.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
 [下载1080](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
 [下载UHD](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&rf=LaDigue_UHD.jpg "黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁")
+
+
+---
+### 2024 8月 28：比赛开始！
+#### 蒙马特和圣心大教堂，巴黎，法国（© Tuul & Bruno Morandi/Getty Images）
+![比赛开始！](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_800x480.jpg&rf=LaDigue_800x480.jpg "比赛开始！")
+今天，夏季残奥会在巴黎开幕。来自世界各地的4000多名运动员将齐聚法国首都，参加22个运动项目、549个不同赛事的角逐。作为首次举办夏季残奥会的城市，巴黎为开幕式准备了特别的节目。来自184个国家的代表团将沿着著名的香榭丽舍大街游行至协和广场，而不是进入体育场。首届正式残奥会于1960年在罗马举行。23个国家参加了比赛，角逐包括轮椅篮球和残疾人田径在内的8个项目。
+
+圣心大教堂位于蒙马特高地，是巴黎第二大旅游景点，仅次于埃菲尔铁塔。
+
+[下载480](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_800x480.jpg&rf=LaDigue_800x480.jpg "蒙马特和圣心大教堂，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒙马特和圣心大教堂，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙马特和圣心大教堂，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg&rf=LaDigue_UHD.jpg "蒙马特和圣心大教堂，巴黎，法国")
