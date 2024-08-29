@@ -404,3 +404,17 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_1024x768.jpg&rf=LaDigue_1024x768.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_UHD.jpg&rf=LaDigue_UHD.jpg "富利特堡-德拉罗卡，加泰罗尼亚，西班牙")
+
+
+---
+### 2024 8月 30：对大块头温柔点
+#### 鸟头湾的鲸鲨，西巴布亚，印度尼西亚（© Andy Lerner/Tandem Stills + Motion）
+![对大块头温柔点](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_800x480.jpg&rf=LaDigue_800x480.jpg "对大块头温柔点")
+每年的8月30日，海洋爱好者都会聚集在一起，提高人们对鲸鲨的关注，并倡导保护鲸鲨。这些温和的庞然大物已经存在了2.4亿多年，但第一个鲸鲨标本是19世纪20年代在南非海岸发现的。作为世界上最大的鱼类，鲸鲨可以长到40英尺，其中一条达到了创纪录的61.7英尺。鲸鲨生活在世界各地的热带海洋中，这种滤食性鱼类张开大嘴在水中滑行，捕食浮游生物和小鱼，它们星罗棋布的皮肤上每一个图案都像人类的指纹一样独一无二。可悲的是，由于过度捕捞、栖息地丧失和气候变化，国际自然保护联盟将鲸鲨列为濒危物种。逆境中也有希望，比如印度尼西亚的森达瓦西湾，这里是鲸鲨的绿洲。在这个海湾，渔民们慷慨地向鲸鲨投喂饵料鱼，以求好运，体现了人类与海洋生物之间独特的联系。
+
+鲸鲨和绿海龟一起出现在2015-2017年最新版的马尔代夫1000拉菲亚纸币上。
+
+[下载480](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_800x480.jpg&rf=LaDigue_800x480.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1024x768.jpg&rf=LaDigue_1024x768.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_UHD.jpg&rf=LaDigue_UHD.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
