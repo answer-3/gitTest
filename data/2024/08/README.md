@@ -418,3 +418,17 @@ https://www.bing.com/images/search?q=大提顿国家公园&form=hpbap1
 [下载720](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1024x768.jpg&rf=LaDigue_1024x768.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_UHD.jpg&rf=LaDigue_UHD.jpg "鸟头湾的鲸鲨，西巴布亚，印度尼西亚")
+
+
+---
+### 2024 8月 31：沙丘日和沙漠烟霞
+#### 撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚（© Airpano/Amazing Aerial Agency）
+![沙丘日和沙漠烟霞](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_800x480.jpg&rf=LaDigue_800x480.jpg "沙丘日和沙漠烟霞")
+从地中海沿岸到广袤的撒哈拉沙漠，北非阿尔及利亚的地貌千姿百态。今天，我们将探索阿杰尔塔西里高原周围的地区。这一联合国教科文组织世界遗产以其岩层和洞穴艺术而闻名。这里有1.5万多处古代雕刻，有些可以追溯到1.2万年前，描绘了日常生活、狩猎和神秘生物的场景。领略完这片沙漠风光后，就该进城了。
+
+在贾奈特，4.1%的人口受过高等教育，另有19.8%的人口完成了中等教育。
+
+[下载480](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_800x480.jpg&rf=LaDigue_800x480.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
+[下载720](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1024x768.jpg&rf=LaDigue_1024x768.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_UHD.jpg&rf=LaDigue_UHD.jpg "撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚")
