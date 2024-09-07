@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_1024x768.jpg&rf=LaDigue_1024x768.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_UHD.jpg&rf=LaDigue_UHD.jpg "朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国")
+
+
+---
+### 2024 9月 8：一座千年历史的修道院
+#### 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国（© Cyril Gosselin/Getty Images）
+![一座千年历史的修道院](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_800x480.jpg&rf=LaDigue_800x480.jpg "一座千年历史的修道院")
+想要来一次永恒之旅？圣马丁杜卡尼古修道院向你敞开大门！坐落在东比利牛斯省卡尼古山丘的西麓，这座11世纪的罗马式修道院是一座隐藏的宝藏，正等待着你去探索。修道院坐落在海拔1055米处，位于里多尔塔溪峡谷的边缘，且靠近卡斯特尔村，有着令人叹为观止的景色。从村庄攀登到修道院是一段美好的徒步路程，高差约为250米。
+
+20世纪，加泰罗尼亚人对修道院遗址进行了重建和修复。
+
+[下载480](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_800x480.jpg&rf=LaDigue_800x480.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
+[下载720](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1024x768.jpg&rf=LaDigue_1024x768.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_UHD.jpg&rf=LaDigue_UHD.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
