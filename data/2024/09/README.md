@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1024x768.jpg&rf=LaDigue_1024x768.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_UHD.jpg&rf=LaDigue_UHD.jpg "加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国")
+
+
+---
+### 2024 9月 9：“大水”中的彩虹波
+#### 阿根廷和巴西边境的伊瓜苏瀑布（© AirPano LLC/Amazing Aerial Agency）
+![“大水”中的彩虹波](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_800x480.jpg&rf=LaDigue_800x480.jpg "“大水”中的彩虹波")
+想亲眼目睹让尼亚加拉瀑布都望尘莫及的壮观瀑布吗？让我们走进世界上最大的瀑布群——伊瓜苏瀑布。“伊瓜苏”这个名字来源于瓜拉尼语或图皮语，意思是“大水”。这些瀑布群由伊瓜苏河形成，位于阿根廷米西奥内斯省和巴西巴拉那州的交界处。它们拥有独特的阶梯状结构，是由三层玄武岩形成的两级阶梯式瀑布，非常引人注目。
+
+伊瓜苏瀑布的排列方式像一个反转的字母 “J”。阿根廷和巴西的边界穿过伊瓜苏瀑布最险要的“魔鬼咽喉”。瀑布右岸是巴西领土，占伊瓜苏河流域95%以上的面积，但这些瀑布的水流量仅占约20%，左侧的水流量是阿根廷的，占瀑布的近80%。
+
+[下载480](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_800x480.jpg&rf=LaDigue_800x480.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
+[下载720](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
+[下载1080](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
+[下载UHD](https://cn.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg&rf=LaDigue_UHD.jpg "阿根廷和巴西边境的伊瓜苏瀑布")
