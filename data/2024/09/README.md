@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg&rf=LaDigue_UHD.jpg "瓦斯科·达·伽马大桥，里斯本，葡萄牙")
+
+
+---
+### 2024 9月 11：石头编织的童话
+#### 埃尔茨城堡，德国（© Allard Schager/Alamy）
+![石头编织的童话](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_800x480.jpg&rf=LaDigue_800x480.jpg "石头编织的童话")
+埃尔茨城堡位于艾菲尔地区的一个风景如画的山谷中，是德国最重要和保存最完好的城堡之一。自12世纪以来，埃尔茨城堡一直由埃尔茨家族拥有。这座城堡融合了不同的建筑风格，其中哥特式的骑士客厅和巴洛克式的盔甲工匠房尤为引人注目。特别值得一提的是藏宝室，里面收藏着德国最珍贵的中世纪艺术品。在这里，您可以看到价值连城的盔甲、艺术化设计的武器以及各种金银制品。
+
+城堡中的吕贝纳赫和罗登多夫家族厢房向公众开放，而肯佩尼希家族则继续使用城堡中的三分之一。公众参观是季节性的：从四月到十一月。展品包括收藏金银器和瓷器的宝库，以及收藏武器和盔甲的军械库。
+
+[下载480](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_800x480.jpg&rf=LaDigue_800x480.jpg "埃尔茨城堡，德国")
+[下载720](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃尔茨城堡，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔茨城堡，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔茨城堡，德国")
