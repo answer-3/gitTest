@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃尔茨城堡，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔茨城堡，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔茨城堡，德国")
+
+
+---
+### 2024 9月 12：度过美好的一天
+#### 留尼汪岛附近的海豚群，印度洋，法国海外省（© Joost van Uffelen/Shutterstock）
+![度过美好的一天](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_800x480.jpg&rf=LaDigue_800x480.jpg "度过美好的一天")
+带上你的脚蹼去潜水吧！今天是世界海豚日。这一天，全世界的人们都在庆祝海豚日，旨在提高人们对海豚的认识，促进对这些水生哺乳动物的保护。海豚非常聪明，在世界各地的海洋、河流和河口都能发现它们的身影。尽管海豚能够在各种环境和水温下生存，但它们仍受到人类活动的威胁，比如狩猎、污染和捕鱼。国际海洋保护组织海洋守护者协会于2022年设立了“世界海豚日”。
+
+最著名的杂交案例是鲸豚，一种伪虎鲸和宽吻海豚的杂交后代，鲸豚是可繁殖的混血儿。目前有两只鲸豚生活在夏威夷的海洋生物公园，第一只鲸豚是1985年由一只雄性伪虎鲸和一只雌性宽吻海豚所生。此外，人类也曾在野外观察到过鲸豚。
+
+[下载480](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_800x480.jpg&rf=LaDigue_800x480.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
+[下载720](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_1024x768.jpg&rf=LaDigue_1024x768.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
+[下载1080](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
+[下载UHD](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_UHD.jpg&rf=LaDigue_UHD.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
