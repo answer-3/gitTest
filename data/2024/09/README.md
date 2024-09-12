@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_1024x768.jpg&rf=LaDigue_1024x768.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
 [下载1080](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
 [下载UHD](https://cn.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_UHD.jpg&rf=LaDigue_UHD.jpg "留尼汪岛附近的海豚群，印度洋，法国海外省")
+
+
+---
+### 2024 9月 13：自然与人类的天堂
+#### 雷耶斯角国家海岸灯塔，加利福尼亚州，美国（© RMB Images/Photography by Robert Bowman/Getty Images）
+![自然与人类的天堂](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_800x480.jpg&rf=LaDigue_800x480.jpg "自然与人类的天堂")
+欢迎来到雷耶斯角国家海岸，这里是天空与大地交汇的地方。这个令人惊叹的71,028英亩的海滨天堂位于马林县的雷耶斯角半岛上，是加利福尼亚海岸线上的一颗璀璨明珠，拥有令人惊叹的美景和种类繁多的野生动物。雷耶斯角遍布风景优美的小径，蜿蜒穿过茂密的森林和崎岖的悬崖，为游客提供了许多乐趣。
+
+雷耶斯角灯塔每年一月中旬和三月中旬都会吸引观鲸者前来寻找向南迁徙和向北迁徙的灰鲸。
+
+[下载480](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_800x480.jpg&rf=LaDigue_800x480.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_1024x768.jpg&rf=LaDigue_1024x768.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg&rf=LaDigue_UHD.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
