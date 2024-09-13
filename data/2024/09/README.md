@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_1024x768.jpg&rf=LaDigue_1024x768.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg&rf=LaDigue_UHD.jpg "雷耶斯角国家海岸灯塔，加利福尼亚州，美国")
+
+
+---
+### 2024 9月 14：古老又神秘
+#### 阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利（© Piriya Photography/Getty Images）
+![古老又神秘](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_800x480.jpg&rf=LaDigue_800x480.jpg "古老又神秘")
+欢迎来到拉帕努伊岛，该岛也被称为智利的复活节岛，是世界上最偏远、最迷人的天堂之一。这座令人惊叹的岛屿以其标志性的摩艾石像而闻名，是一座拥有壮丽景观和丰富文化遗产的宝库。专家们对波利尼西亚人到来的时间众说纷纭，但许多研究人员认为应该是在8世纪左右。作为世界遗产的复活节岛占地超过17,000英亩，包括附近的四个小岛。在岛上，你可以欣赏到今天的图片所展示的迷人日出，探索矗立着宏伟雕像的火山口和郁郁葱葱的草地。
+
+20世纪90年代，在考古学家克劳迪奥·克里斯蒂诺和帕特里夏·巴尔加斯领导的多学科团队的努力下，阿胡汤加里基得到了实质性的修复。
+
+[下载480](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_800x480.jpg&rf=LaDigue_800x480.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
+[下载720](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
+[下载1080](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
+[下载UHD](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg&rf=LaDigue_UHD.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
