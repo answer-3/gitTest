@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
 [下载1080](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
 [下载UHD](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg&rf=LaDigue_UHD.jpg "阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利")
+
+
+---
+### 2024 9月 15：香料红和水晶蓝
+#### 阿科马尼奥海滩，卡拉布里亚，意大利（© Alessio de Cicco/Getty Images）
+![香料红和水晶蓝](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_800x480.jpg&rf=LaDigue_800x480.jpg "香料红和水晶蓝")
+提到卡拉布里亚，就不得不说说这里迷人的香料——辣椒。在卡拉布里亚地区，辣椒是一种人见人爱的香料，你可以在很多典型的食物中发现它们，例如斯皮林加的香肠（辣味猪肉香肠），阿曼泰亚的鱼酱（用沙丁鱼酱和辣椒制成的酱料），还有一些食品也会用到它，例如带有厄洛斯香料味道的利口酒和盐。在这里，你可以尝试从最甜到最辣的各种类型的美食，参加厨师烹饪、关于辣椒的医学会议、展览、诗歌、塔兰泰拉舞等活动。此外，这里还有一个关于辣椒的最佳论文奖。
+
+与欧洲的其他海滨旅游胜地相比，这里的海岸线在崎岖的悬崖和海滩之间交替，很少被商业开发破坏。除此之外，卡拉布里亚周围的海水清澈，旅游住宿水平也很高。
+
+[下载480](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_800x480.jpg&rf=LaDigue_800x480.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_UHD.jpg&rf=LaDigue_UHD.jpg "阿科马尼奥海滩，卡拉布里亚，意大利")
