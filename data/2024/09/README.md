@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的小袋鼠，阿德莱德河，北领地，澳大利亚")
+
+
+---
+### 2024 9月 17：明月千里寄相思
+#### 月圆之夜的豫园，上海，中国（© zyxeos30/Gettyimages）
+![明月千里寄相思](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_800x480.jpg&rf=LaDigue_800x480.jpg "明月千里寄相思")
+中秋节是流行于中国的众多民族中的传统文化节日。从古至今，人们都有中秋之夜饮宴、赏月、吃月饼、看花灯、赏桂花、饮桂花酒等民俗。中秋节最大的特征是人们将内心美好的愿望寄托于明月。此外，中秋节时正当农业丰收的季节，月饼和瓜果既是古代的祭神媒介，也是如今人们庆祝丰收美好心情的具体象征。
+
+豫园内的湖心亭茶楼被誉为“海上第一茶楼”，是上海历史最为悠久、最具盛名的茶楼，也是上海现存古建筑景观之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_800x480.jpg&rf=LaDigue_800x480.jpg "月圆之夜的豫园，上海，中国")
+[下载720](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_1024x768.jpg&rf=LaDigue_1024x768.jpg "月圆之夜的豫园，上海，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "月圆之夜的豫园，上海，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_UHD.jpg&rf=LaDigue_UHD.jpg "月圆之夜的豫园，上海，中国")
