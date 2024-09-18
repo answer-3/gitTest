@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_1024x768.jpg&rf=LaDigue_1024x768.jpg "郡上八幡城，岐阜县，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郡上八幡城，岐阜县，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_UHD.jpg&rf=LaDigue_UHD.jpg "郡上八幡城，岐阜县，日本")
+
+
+---
+### 2024 9月 19：埃尔博河上空的银河
+#### 埃尔博河上空的银河，阿尔伯塔省，加拿大（© Alan Dyer/Getty Images）
+![埃尔博河上空的银河](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_800x480.jpg&rf=LaDigue_800x480.jpg "埃尔博河上空的银河")
+在阿尔伯塔省风景如画的南部，埃尔博河发源自加拿大落基山脉中的埃尔博湖。这条120公里长的河流蜿蜒地穿过山谷，然后在海拔1040米的卡尔加里与弓河汇合。沿河而行可以看到埃尔博瀑布，这是一个由一系列的叠水瀑布组成的自然奇观。冬季，这里会变成一个冰雪仙境，夏季则是奔腾的水流，非常适合漂流、皮划艇、钓鱼、远足和其他休闲活动。
+
+加拿大近一半的牛肉都产自阿尔伯塔省。
+
+[下载480](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_800x480.jpg&rf=LaDigue_800x480.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
