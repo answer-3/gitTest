@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_UHD.jpg&rf=LaDigue_UHD.jpg "埃尔博河上空的银河，阿尔伯塔省，加拿大")
+
+
+---
+### 2024 9月 20：海盗的最终归宿
+#### 奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国（© Chansak Joe/Getty Images）
+![海盗的最终归宿](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_800x480.jpg&rf=LaDigue_800x480.jpg "海盗的最终归宿")
+欢迎来到北卡罗来纳州外滩的奥克拉科克岛。这是一个历史与自然交织的地方。这座只有乘坐渡轮或小型飞机才能到达的僻静小岛，拥有16英里长的人迹罕至的海滩和丰富的故事。从今天的图片中可以看到，奥克拉科克灯塔是一个引人注目的地标，它于2023年迎来了200周年纪念日，并成为了北卡罗来纳州最古老的、持续运行的灯塔。这座灯塔的灯光亮度与8000支蜡烛的亮度相当，在离岸14英里处都能看到。
+
+1977年，这座灯塔以“奥克拉科克灯塔”之名被列入《美国国家历史遗迹名录》。
+
+[下载480](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_800x480.jpg&rf=LaDigue_800x480.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_UHD.jpg&rf=LaDigue_UHD.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
