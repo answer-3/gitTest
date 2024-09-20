@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_UHD.jpg&rf=LaDigue_UHD.jpg "奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国")
+
+
+---
+### 2024 9月 21：为慕尼黑啤酒节干杯！
+#### Oktoberfest in Munich at sunset（© AllesSuper21/iStock/Getty Images）
+![为慕尼黑啤酒节干杯！](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_800x480.jpg&rf=LaDigue_800x480.jpg "为慕尼黑啤酒节干杯！")
+慕尼黑啤酒节是世界上最大的节日之一，吸引了600多万游客。除了身着传统巴伐利亚服装的服务员端上一大杯泡沫丰富的啤酒之外，每个人都能在这里找到自己喜欢的东西。在这里，您可以享受欢快的音乐、惊险刺激的游乐设施以及令人垂涎欲滴的椒盐卷饼和香肠等当地美食。啤酒节在全球其他地方也有庆祝活动，包括美国的辛辛那提和丹佛等几个城市，每个城市都为节日增添了自己的地方特色。因此，无论您是喜欢啤酒还是喜欢热闹的派对，慕尼黑啤酒节都会让你体验到巴伐利亚的风情。
+
+目前，啤酒节上有14个大帐篷和20个小帐篷。这些帐篷是木制的非永久性建筑，专为啤酒节建造，仅在啤酒节期间使用。
+
+[下载480](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_800x480.jpg&rf=LaDigue_800x480.jpg "Oktoberfest in Munich at sunset")
+[下载720](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1024x768.jpg&rf=LaDigue_1024x768.jpg "Oktoberfest in Munich at sunset")
+[下载1080](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Oktoberfest in Munich at sunset")
+[下载UHD](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg&rf=LaDigue_UHD.jpg "Oktoberfest in Munich at sunset")
