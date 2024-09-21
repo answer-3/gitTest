@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1024x768.jpg&rf=LaDigue_1024x768.jpg "Oktoberfest in Munich at sunset")
 [下载1080](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Oktoberfest in Munich at sunset")
 [下载UHD](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg&rf=LaDigue_UHD.jpg "Oktoberfest in Munich at sunset")
+
+
+---
+### 2024 9月 22：陷入沉思
+#### 巴特米尔湖，湖区国家公园，英格兰，英国（© Alan Novelli/Alamy Stock Photo）
+![陷入沉思](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_800x480.jpg&rf=LaDigue_800x480.jpg "陷入沉思")
+秋天正式登场了。在北半球，九月分点标志着从繁茂的夏季向温润的秋季过渡，而在南半球，它则预示着春天的开始。“Equinox”一词源于拉丁语，意为 “相等的夜晚”。在这一时刻，地轴与太阳垂直，这意味着太阳从正东升起，从正西落下，这是难得的全球平衡的时刻。这种平衡的出现是因为地轴既没有向太阳倾斜，也没有远离太阳。
+
+秋分是常用来确定回归年长度的一个时间点。
+
+[下载480](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_800x480.jpg&rf=LaDigue_800x480.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg&rf=LaDigue_UHD.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
