@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg&rf=LaDigue_UHD.jpg "巴特米尔湖，湖区国家公园，英格兰，英国")
+
+
+---
+### 2024 9月 23：令人惊叹的海獭
+#### 海獭，威廉王子湾,阿拉斯加州,美国（© Gerald Corsi/Getty Images）
+![令人惊叹的海獭](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_800x480.jpg&rf=LaDigue_800x480.jpg "令人惊叹的海獭")
+本周是“海獭宣传周”，这项活动旨在引起人们对这些毛茸茸的水生哺乳动物的关注。今天图片中的海獭是在阿拉斯加威廉王子湾拍摄的。
+
+海獭是鼬鼠家族中最大的成员，却是北美最小的海洋哺乳动物。
+
+[下载480](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_800x480.jpg&rf=LaDigue_800x480.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
+[下载720](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_1024x768.jpg&rf=LaDigue_1024x768.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
+[下载1080](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，威廉王子湾,阿拉斯加州,美国")
