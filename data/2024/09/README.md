@@ -282,16 +282,16 @@
 
 ---
 ### 2024 9月 21：为慕尼黑啤酒节干杯！
-#### Oktoberfest in Munich at sunset（© AllesSuper21/iStock/Getty Images）
-![为慕尼黑啤酒节干杯！](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_800x480.jpg&rf=LaDigue_800x480.jpg "为慕尼黑啤酒节干杯！")
+#### 日落时分，从高处俯瞰慕尼黑啤酒节（© AllesSuper21/iStock/Getty Images）
+![为慕尼黑啤酒节干杯！](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_800x480.jpg&rf=LaDigue_800x480.jpg "为慕尼黑啤酒节干杯！")
 慕尼黑啤酒节是世界上最大的节日之一，吸引了600多万游客。除了身着传统巴伐利亚服装的服务员端上一大杯泡沫丰富的啤酒之外，每个人都能在这里找到自己喜欢的东西。在这里，您可以享受欢快的音乐、惊险刺激的游乐设施以及令人垂涎欲滴的椒盐卷饼和香肠等当地美食。啤酒节在全球其他地方也有庆祝活动，包括美国的辛辛那提和丹佛等几个城市，每个城市都为节日增添了自己的地方特色。因此，无论您是喜欢啤酒还是喜欢热闹的派对，慕尼黑啤酒节都会让你体验到巴伐利亚的风情。
 
 目前，啤酒节上有14个大帐篷和20个小帐篷。这些帐篷是木制的非永久性建筑，专为啤酒节建造，仅在啤酒节期间使用。
 
-[下载480](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_800x480.jpg&rf=LaDigue_800x480.jpg "Oktoberfest in Munich at sunset")
-[下载720](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1024x768.jpg&rf=LaDigue_1024x768.jpg "Oktoberfest in Munich at sunset")
-[下载1080](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Oktoberfest in Munich at sunset")
-[下载UHD](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg&rf=LaDigue_UHD.jpg "Oktoberfest in Munich at sunset")
+[下载480](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
+[下载720](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
+[下载1080](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
+[下载UHD](https://cn.bing.com/th?id=OHR.MunichBeerfest_ZH-CN2688087718_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分，从高处俯瞰慕尼黑啤酒节")
 
 
 ---
@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_UHD.jpg&rf=LaDigue_UHD.jpg "斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛")
+
+
+---
+### 2024 9月 25：古代巨人的王国
+#### 巨型红杉，红杉国家公园，加利福尼亚州，美国（© Galyna Andrushko/Shutterstock）
+![古代巨人的王国](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_800x480.jpg&rf=LaDigue_800x480.jpg "古代巨人的王国")
+1890年的今天，红杉国家公园在内华达山脉南部成立，旨在保护美国的自然奇观之一。红杉国家公园以占地面积超过629平方英里的巨型红杉树命名，是黑熊、骡鹿等野生动物以及包括莺、莺雀、鹟在内的200多种鸟类的家园。这里的巨型红杉树已经扎根2200多年，是地球上最古老的生物之一。公园里著名的谢尔曼将军树高达275英尺。它以美国内战将军威廉·特库姆塞·谢尔曼的名字命名，不仅高，而且宽度超过36英尺。游客们蜂拥而至，捕捉这些古老巨树的瞬间，它们红褐色的纤维状树皮和宽阔的树枝唤起了一种鲜活的历史感。
+
+这个公园有三个不同的气候带。
+
+[下载480](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_800x480.jpg&rf=LaDigue_800x480.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1024x768.jpg&rf=LaDigue_1024x768.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_UHD.jpg&rf=LaDigue_UHD.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
