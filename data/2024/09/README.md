@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1024x768.jpg&rf=LaDigue_1024x768.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_UHD.jpg&rf=LaDigue_UHD.jpg "巨型红杉，红杉国家公园，加利福尼亚州，美国")
+
+
+---
+### 2024 9月 26：呼叫所有巨嘴鸟的粉丝
+#### 蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加（© Oscar Dominguez/Tandem Stills + Motion）
+![呼叫所有巨嘴鸟的粉丝](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_800x480.jpg&rf=LaDigue_800x480.jpg "呼叫所有巨嘴鸟的粉丝")
+洛斯戈查尔斯国家公园坐落在哥斯达黎加的高原地区，这里有万花筒般繁茂的栖息地，其中包括蓝斑巨嘴鸟的家园。蓝斑巨嘴鸟身长11-15英寸，不是候鸟，可以用灵巧的脚趾在树枝上穿梭，用独特的喙熟练地觅食水果、昆虫和小蜥蜴。
+
+蓝斑巨嘴鸟的叫声主要是一种响亮、悠远、干涩的咕哝声和呱呱声，往往持续数分钟之久。飞行时，它的翅膀会发出呼啸声。
+
+[下载480](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_800x480.jpg&rf=LaDigue_800x480.jpg "蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_1024x768.jpg&rf=LaDigue_1024x768.jpg "蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_UHD.jpg&rf=LaDigue_UHD.jpg "蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加")
