@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时的海滩，海湾岛国家海岸，佛罗里达，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的海滩，海湾岛国家海岸，佛罗里达，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的海滩，海湾岛国家海岸，佛罗里达，美国")
+
+
+---
+### 2024 9月 29：连接康涅狄格州
+#### 横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国（© pabradyphoto/Getty Images）
+![连接康涅狄格州](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_800x480.jpg&rf=LaDigue_800x480.jpg "连接康涅狄格州")
+廊桥的顶棚和壁板，可以保护里面的木质结构，使其免受风雨的侵蚀，从而大大提高它的耐用性，图中的西康沃尔廊桥就是一个很好的例子。美国的许多廊桥建于19世纪，但很少有廊桥能幸存至今，那些幸存下来的往往是因为其历史和视觉价值，才得以保留。
+
+这座廊桥曾在电影《娃娃谷》开头的场景中出现过，该片是1967年上映的美国剧情片，改编自1966年杰奎琳·苏珊出版的同名小说。
+
+[下载480](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_800x480.jpg&rf=LaDigue_800x480.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_1024x768.jpg&rf=LaDigue_1024x768.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_UHD.jpg&rf=LaDigue_UHD.jpg "横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国")
