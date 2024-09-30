@@ -1,0 +1,14 @@
+## 必应今日图片
+
+---
+### 2024 10月 1：绝美的秋日风景
+#### 禾木村的风景，新疆，中国（© snvv18870020330/Shutterstock）
+![绝美的秋日风景](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_800x480.jpg&rf=LaDigue_800x480.jpg "绝美的秋日风景")
+禾木村是中国仅存的三个图瓦人村落之一，因其优美宁静的自然风光，它曾被誉为 “摄影天堂”和“神的私家领地”。这里最为有名的当数油画般的秋景：独具特色的图瓦木屋被梦幻的薄雾和大片金黄的桦树点缀。秋天来临时，树木换上金黄色的外衣，远远望去，垂直的白色树干和美丽的树叶组成一副如诗如画的美景，让人仿佛进入了真正的仙境。漫步在森林中，金黄的树叶、自然的声音以及清新的空气都在净化你的眼睛和心灵。
+
+禾木村是中国仅存的三个图瓦人村落之一。因其优美宁静的自然风光，禾木村曾被誉为 “摄影天堂 ”和 “神的私家领地”。
+
+[下载480](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_800x480.jpg&rf=LaDigue_800x480.jpg "禾木村的风景，新疆，中国")
+[下载720](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1024x768.jpg&rf=LaDigue_1024x768.jpg "禾木村的风景，新疆，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "禾木村的风景，新疆，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg&rf=LaDigue_UHD.jpg "禾木村的风景，新疆，中国")
