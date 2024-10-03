@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_UHD.jpg&rf=LaDigue_UHD.jpg "阿格拉的泰姬陵，安拉阿巴德，印度")
+
+
+---
+### 2024 10月 4：一轮蓝月亮
+#### 木星的冰卫星木卫二（© NASA/JPL-Caltech/SETI Institute）
+![一轮蓝月亮](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_800x480.jpg&rf=LaDigue_800x480.jpg "一轮蓝月亮")
+今天，我们要去探索宇宙。世界空间周的设立，是为了庆祝空间科学技术为改善人类生活水平所作出的贡献。除了帮助我们了解我们所生活的宇宙，太空探索在帮助科学家开发新药物、创造新能源、改进农业技术方面也发挥了重要作用。今年的世界空间周的主题是空间与气候变化，为了庆祝空间技术在了解和监测地球气候变化方面发挥的重要作用，将有83个国家会举办相关的庆祝活动。
+
+木星的卫星木卫二是太阳系第六大卫星。
+
+[下载480](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_800x480.jpg&rf=LaDigue_800x480.jpg "木星的冰卫星木卫二")
+[下载720](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1024x768.jpg&rf=LaDigue_1024x768.jpg "木星的冰卫星木卫二")
+[下载1080](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "木星的冰卫星木卫二")
+[下载UHD](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg&rf=LaDigue_UHD.jpg "木星的冰卫星木卫二")
