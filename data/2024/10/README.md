@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1024x768.jpg&rf=LaDigue_1024x768.jpg "木星的冰卫星木卫二")
 [下载1080](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "木星的冰卫星木卫二")
 [下载UHD](https://cn.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg&rf=LaDigue_UHD.jpg "木星的冰卫星木卫二")
+
+
+---
+### 2024 10月 5：跟着老师走！
+#### 东察沃国家公园的非洲象，肯尼亚（© Neil Bowman/Minden Pictures）
+![跟着老师走！](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_800x480.jpg&rf=LaDigue_800x480.jpg "跟着老师走！")
+今天，我们为真正有影响力的人，也就是我们的老师而庆祝。让我们一起祝愿全球所有的教育工作者世界教师日快乐。每年的10月5日，我们都会认识到教师在塑造社会方面的重要作用。自1994年以来，这一天一直是纪念教师在培养青少年心智方面做出宝贵贡献的日子。它提醒我们要欣赏、评估和改进教师这个职业，同时要认识到教育工作者在指导下一代时所面临的挑战。
+
+2024年的庆祝活动将聚焦于“重视教师的声音：建立新的教育社会契约”。
+
+[下载480](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_800x480.jpg&rf=LaDigue_800x480.jpg "东察沃国家公园的非洲象，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_1024x768.jpg&rf=LaDigue_1024x768.jpg "东察沃国家公园的非洲象，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东察沃国家公园的非洲象，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg&rf=LaDigue_UHD.jpg "东察沃国家公园的非洲象，肯尼亚")
