@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_1024x768.jpg&rf=LaDigue_1024x768.jpg "东察沃国家公园的非洲象，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东察沃国家公园的非洲象，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg&rf=LaDigue_UHD.jpg "东察沃国家公园的非洲象，肯尼亚")
+
+
+---
+### 2024 10月 6：一抹金色
+#### 郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国（© Stephen Matera/TANDEM Stills + Motion）
+![一抹金色](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_800x480.jpg&rf=LaDigue_800x480.jpg "一抹金色")
+在犹他州郊狼峡谷天然拱门的衬托下，生机盎然的金色白杨树与埃斯卡兰特峡谷地区色彩斑斓的岩层相映成趣。郊狼峡谷是著名的背包旅行目的地，这里有高耸的垂直峡谷壁、狭窄的缝隙峡谷、穹顶、拱门和天然桥梁。峡谷的上游位于大阶梯埃斯卡兰特国家纪念区内，而今天的图片展示的是峡谷下游的格兰峡谷休闲区。这个休闲区成立于1972年。由美国国家公园管理局管理，是一个兼顾休闲和保护的保护区。与主要侧重于自然保护的国家公园不同，格兰峡谷休闲区会提供各种设施，包括四个公共露营地、两个小型机场和几家游艇租赁服务公司，因此成为了游客的热门目的地。
+
+再往下游走，峡谷内有一座郊狼天然桥，这是在一块大砂岩鳍上雕刻出来的一个小洞。再往下游是悬崖拱门，它是峡谷北壁上的一个壶柄式拱门。
+
+[下载480](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_800x480.jpg&rf=LaDigue_800x480.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1024x768.jpg&rf=LaDigue_1024x768.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
