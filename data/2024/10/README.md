@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1024x768.jpg&rf=LaDigue_1024x768.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国")
+
+
+---
+### 2024 10月 7：梦想成真的地方
+#### 法属波利尼西亚波拉波拉岛的鸟瞰图（© GLF Media/Shutterstock）
+![梦想成真的地方](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_800x480.jpg&rf=LaDigue_800x480.jpg "梦想成真的地方")
+想象一下，碧蓝的海水与洁白的沙滩交相辉映，苍翠的群山拥抱着蔚蓝的天空。欢迎来到法属波利尼西亚的明珠波拉波拉岛。从塔希提法阿国际机场乘坐50分钟的飞机即可到达，这里是一片天堂，大自然是这里的主宰者。
+
+在古代，这座岛屿被称作“Pora pora mai te pora”，在当地大溪地语中意为“由众神创造”。通常简称为“Pora Pora”，意思是“第一个出生的”。
+
+[下载480](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_800x480.jpg&rf=LaDigue_800x480.jpg "法属波利尼西亚波拉波拉岛的鸟瞰图")
+[下载720](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_1024x768.jpg&rf=LaDigue_1024x768.jpg "法属波利尼西亚波拉波拉岛的鸟瞰图")
+[下载1080](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法属波利尼西亚波拉波拉岛的鸟瞰图")
+[下载UHD](https://cn.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_UHD.jpg&rf=LaDigue_UHD.jpg "法属波利尼西亚波拉波拉岛的鸟瞰图")
