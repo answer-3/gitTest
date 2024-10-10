@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_1024x768.jpg&rf=LaDigue_1024x768.jpg "索拉诺，托斯卡纳，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索拉诺，托斯卡纳，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_UHD.jpg&rf=LaDigue_UHD.jpg "索拉诺，托斯卡纳，意大利")
+
+
+---
+### 2024 10月 11：云海奇观
+#### 黄山云海，安徽省，中国（© yangyang1991/Getty Images）
+![云海奇观](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_800x480.jpg&rf=LaDigue_800x480.jpg "云海奇观")
+今天是重阳节，登高赏秋、感恩敬老是重阳节的两大主题，重阳节在历史发展演变中融合了多种民俗，承载着丰富的文化内涵。
+
+黄山一年365天只有51天可以看到云海。
+
+[下载480](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_800x480.jpg&rf=LaDigue_800x480.jpg "黄山云海，安徽省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄山云海，安徽省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄山云海，安徽省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg&rf=LaDigue_UHD.jpg "黄山云海，安徽省，中国")
