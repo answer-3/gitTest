@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1024x768.jpg&rf=LaDigue_1024x768.jpg "马拉河的角马大迁徙，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马拉河的角马大迁徙，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_UHD.jpg&rf=LaDigue_UHD.jpg "马拉河的角马大迁徙，肯尼亚")
+
+
+---
+### 2024 10月 16：发掘过去
+#### 侏罗纪海岸的箭石和菊石化石，多塞特郡，英国（© Nature Picture Library/Alamy Stock Photo）
+![发掘过去](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_800x480.jpg&rf=LaDigue_800x480.jpg "发掘过去")
+如果您是恐龙、三叶虫或者贝壳化石的粉丝，那么美国国家化石日就是您动手探索化石的绝佳理由。人们在10月的第二个完整周的星期三庆祝美国国家化石日，这一天旨在推广化石的科学以及教育价值。那么，化石有什么了不起的呢？从高耸的霸王龙到微小的菊石，这些古代遗迹帮助科学家拼凑出地球历史的谜团。然而，掌握着这个古老图书馆的钥匙的不仅仅是美国——整个地球都散布着这样的隐秘编年史。
+
+化石可以保存整个生物体、部分生物体或生物体的痕迹（例如脚印）。
+
+[下载480](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_800x480.jpg&rf=LaDigue_800x480.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1024x768.jpg&rf=LaDigue_1024x768.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_UHD.jpg&rf=LaDigue_UHD.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
