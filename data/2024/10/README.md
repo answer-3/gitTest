@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1024x768.jpg&rf=LaDigue_1024x768.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_UHD.jpg&rf=LaDigue_UHD.jpg "侏罗纪海岸的箭石和菊石化石，多塞特郡，英国")
+
+
+---
+### 2024 10月 17：随风摆动，进入秋天
+#### 地肤草，茨城县，日本（© DigiPub/Getty Images）
+![随风摆动，进入秋天](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_800x480.jpg&rf=LaDigue_800x480.jpg "随风摆动，进入秋天")
+如果您曾经见过照片中那像火一样的一望无际的红色田野，那您肯定见过地肤草。在春季和夏季，这种一年生草本植物开始呈现出嫩绿色，就像一个蓬松的绿球。随着季节的转换，它的颜色也在变化，会变成红色、橙色甚至粉红色。
+
+地肤草是一种常见于路边、沟岸、铁路轨道等地的杂草植物。
+
+[下载480](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_800x480.jpg&rf=LaDigue_800x480.jpg "地肤草，茨城县，日本")
+[下载720](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1024x768.jpg&rf=LaDigue_1024x768.jpg "地肤草，茨城县，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地肤草，茨城县，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_UHD.jpg&rf=LaDigue_UHD.jpg "地肤草，茨城县，日本")
