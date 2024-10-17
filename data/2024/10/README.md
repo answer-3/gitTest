@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1024x768.jpg&rf=LaDigue_1024x768.jpg "地肤草，茨城县，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地肤草，茨城县，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_UHD.jpg&rf=LaDigue_UHD.jpg "地肤草，茨城县，日本")
+
+
+---
+### 2024 10月 18：邂逅秋日的林荫道
+#### 曼哈顿中央公园的秋天，纽约，美国（© mapman/Shutterstock）
+![邂逅秋日的林荫道](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_800x480.jpg&rf=LaDigue_800x480.jpg "邂逅秋日的林荫道")
+每年秋天，纽约中央公园18000棵树木中的许多树，都会染上黄色、红色和橙色的色调。秋天是中央公园出镜率最高的季节之一，它为《当哈利遇见莎莉》和《头发》等电影提供了标志性的拍摄背景。树木不仅通过温度来感知冬天的到来，还通过日出和日落时光线照射到树叶上的角度来感知。由于纽约高楼林立，光线、阴影和温度的独特相互作用往往导致公园里的秋叶比城市里的其他地方来得晚。
+
+中央公园林荫大道是拥有世界上最大的美国榆树丛的地方之一。高耸的榆树遮天蔽日，是中央公园最具标志性和辨识度的景观之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_800x480.jpg&rf=LaDigue_800x480.jpg "曼哈顿中央公园的秋天，纽约，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1024x768.jpg&rf=LaDigue_1024x768.jpg "曼哈顿中央公园的秋天，纽约，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼哈顿中央公园的秋天，纽约，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_UHD.jpg&rf=LaDigue_UHD.jpg "曼哈顿中央公园的秋天，纽约，美国")
