@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1024x768.jpg&rf=LaDigue_1024x768.jpg "曼哈顿中央公园的秋天，纽约，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼哈顿中央公园的秋天，纽约，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_UHD.jpg&rf=LaDigue_UHD.jpg "曼哈顿中央公园的秋天，纽约，美国")
+
+
+---
+### 2024 10月 19：立足现在，发掘过去
+#### 哈索尔神庙，邓德拉神庙群，基纳，埃及（© Nick Brundle Photography/Getty Images）
+![立足现在，发掘过去](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_800x480.jpg&rf=LaDigue_800x480.jpg "立足现在，发掘过去")
+今天，在国际考古日，深入挖掘你内心的印第安纳·琼斯或劳拉·克劳馥吧！该节日始于2011年，于每年10月的第三个星期六举办庆祝活动，旨在庆祝考古学对当今社会做出的贡献。其全球性的活动包括举办展览和动手挖掘遗迹，有些活动还会持续一个月。此外，许多美国国家公园、州立公园、历史地标和当地博物馆也会举办相关活动。
+
+哈索尔神庙最引人注目的特色之一是它的天文天花板，这是古埃及天文学和艺术融合在一起的杰作。
+
+[下载480](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_800x480.jpg&rf=LaDigue_800x480.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
+[下载720](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1024x768.jpg&rf=LaDigue_1024x768.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
+[下载1080](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
+[下载UHD](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_UHD.jpg&rf=LaDigue_UHD.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
