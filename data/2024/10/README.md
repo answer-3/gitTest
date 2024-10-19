@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1024x768.jpg&rf=LaDigue_1024x768.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
 [下载1080](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
 [下载UHD](https://cn.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_UHD.jpg&rf=LaDigue_UHD.jpg "哈索尔神庙，邓德拉神庙群，基纳，埃及")
+
+
+---
+### 2024 10月 20：坚持住
+#### 哥斯达黎加的三趾树懒（© Harry Collins/Getty Images）
+![坚持住](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_800x480.jpg&rf=LaDigue_800x480.jpg "坚持住")
+10月20日是国际树懒日，世界上最慢的哺乳动物将成为人们关注的焦点。今天，让我们更多地了解树懒的生活，包括它们面临的威胁，如栖息地的缩小，以及如何为保护树懒出一份力。现存树懒有六种，分为两类：三趾树懒和二趾树懒。
+
+三趾树懒拥有多达九块颈椎骨，这在哺乳动物中并不多见。除了二趾树懒和海牛只有六块颈椎骨外，其他所有哺乳动物都有七块颈椎骨。
+
+[下载480](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_800x480.jpg&rf=LaDigue_800x480.jpg "哥斯达黎加的三趾树懒")
+[下载720](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_1024x768.jpg&rf=LaDigue_1024x768.jpg "哥斯达黎加的三趾树懒")
+[下载1080](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥斯达黎加的三趾树懒")
+[下载UHD](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_UHD.jpg&rf=LaDigue_UHD.jpg "哥斯达黎加的三趾树懒")
