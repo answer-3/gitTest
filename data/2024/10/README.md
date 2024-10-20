@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_1024x768.jpg&rf=LaDigue_1024x768.jpg "哥斯达黎加的三趾树懒")
 [下载1080](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥斯达黎加的三趾树懒")
 [下载UHD](https://cn.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_UHD.jpg&rf=LaDigue_UHD.jpg "哥斯达黎加的三趾树懒")
+
+
+---
+### 2024 10月 21：在秋天里傲然挺立
+#### 乔治·史密斯州立公园的柏树，佐治亚州，美国（© Chris Moore/TANDEM Stills + Motion）
+![在秋天里傲然挺立](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_800x480.jpg&rf=LaDigue_800x480.jpg "在秋天里傲然挺立")
+你见过坚韧、喜欢沼泽环境且总是很时髦的柏树吗？这些树可以长到100多英尺高，幼时通常呈金字塔状。在今天的图片中，我们来到了乔治·史密斯州立公园，该公园位于乔治亚州伊曼纽尔县，占地1634英亩。从今天的图片中可以看到，该公园的中心是一个占地412英亩的磨坊池塘，这里是钓鱼和划独木舟的好去处。池塘里生长着池柏和秃柏树，这两种树是美国的原生树种。公园内有长达7英里的蜿蜒小径，带领游客穿过沙地，经过鸟类保护区和龟类栖息地。这里的硬木树是啄木鸟和其他鸟类的天堂，而松软的土壤则为陆龟提供了理想的穴居地。无论在哪个季节，这座公园都能为所有人提供一个宁静的休闲场所。
+
+这座中等规模的州立公园地处偏远，吸引了众多观鸟者和自然爱好者。常驻的珍稀鸟类包括大蓝鹭和白朱鹭。
+
+[下载480](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_800x480.jpg&rf=LaDigue_800x480.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_1024x768.jpg&rf=LaDigue_1024x768.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg&rf=LaDigue_UHD.jpg "乔治·史密斯州立公园的柏树，佐治亚州，美国")
