@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1024x768.jpg&rf=LaDigue_1024x768.jpg "祖卡里宫，罗马，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "祖卡里宫，罗马，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg&rf=LaDigue_UHD.jpg "祖卡里宫，罗马，意大利")
+
+
+---
+### 2024 10月 23：无处可去的阶梯
+#### 雪莉夫人森林和古堡遗迹，新罕布什尔州，美国（© yggdrasill/Shutterstock）
+![无处可去的阶梯](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_800x480.jpg&rf=LaDigue_800x480.jpg "无处可去的阶梯")
+位于新罕布什尔州切斯特菲尔德的雪莉夫人森林是一个充满历史和自然美景的迷人景点。这里曾是安托瓦内特·雪莉夫人在20世纪30年代建造的奢华住宅所在地。雪莉夫人是一位20年代的华丽服装设计师，以举办奢华派对而闻名，她高调地来到镇上后，经常乘坐司机驾驶的帕卡德轿车，身披皮草，成为了当地人的谈资。随着财富的减少，她的“城堡”年久失修，遭到了破坏。1959年，雪莉夫人返回时发现自己的房产已成废墟，从此再也没有回来过。1963年的一场大火烧毁了这座房子，只留下了石头地基、标志性的阶梯和一个通向孤零零烟囱的大壁炉。
+
+雪莉夫人森林的小径与更大的旺斯塔斯蒂凯-莫纳德诺克小径相连，这条小径从康涅狄格河向东延伸到莫纳德诺克山。
+
+[下载480](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_800x480.jpg&rf=LaDigue_800x480.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_UHD.jpg&rf=LaDigue_UHD.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
