@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_UHD.jpg&rf=LaDigue_UHD.jpg "雪莉夫人森林和古堡遗迹，新罕布什尔州，美国")
+
+
+---
+### 2024 10月 24：“淘金热”后的鬼城
+#### 博迪州立历史公园，莫诺县，加利福尼亚州，美国（© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo）
+![“淘金热”后的鬼城](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_800x480.jpg&rf=LaDigue_800x480.jpg "“淘金热”后的鬼城")
+在加利福尼亚州博迪鬼魅般的寂静中，时间仿佛都静止了。这个曾经繁荣一时的淘金小镇始建于1860年。博迪以W.S.博迪的名字命名，他是一位发现了黄金的探矿者，但在目睹小镇崛起之前不幸死于一场暴风雪。当地发现大量金矿后，居民增加到近1万人，酒吧、舞厅和酿酒厂鳞次栉比。但随着金矿枯竭，小镇的财富也随之消失。矿场关闭，人口减少，到1915年，这个地方被遗弃了。现在，博迪的街道已经空无一人，木质建筑也已破败不堪。
+
+今天，博迪被保存在一种“凝固的破败”状态中。该镇只有一小部分幸存下来，约有110座建筑屹立不倒，其中就包括了一座已停止运营的金矿。
+
+[下载480](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_800x480.jpg&rf=LaDigue_800x480.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_1024x768.jpg&rf=LaDigue_1024x768.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_UHD.jpg&rf=LaDigue_UHD.jpg "博迪州立历史公园，莫诺县，加利福尼亚州，美国")
