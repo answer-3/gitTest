@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_1024x768.jpg&rf=LaDigue_1024x768.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊与幼崽，丘吉尔，曼尼托巴，加拿大")
+
+
+---
+### 2024 10月 28：雕刻时间到了
+#### 南瓜田，维多利亚，不列颠哥伦比亚省，加拿大（© Shaun Cunningham/Alamy Stock Photo）
+![雕刻时间到了](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_800x480.jpg&rf=LaDigue_800x480.jpg "雕刻时间到了")
+随着秋天的琥珀色覆盖大地，万圣节的寒意也在靠近，雕刻南瓜灯这一历史悠久的传统开始活跃起来。这种手工艺最初来自爱尔兰和苏格兰，移民者将它带到了美国，人们最开始用萝卜和土豆做灯，但是后面发现南瓜容量更大，也更容易雕刻，便将萝卜和土豆替换成了南瓜。人们将南瓜掏空，把蜡烛放进去点亮，将南瓜灯变成了闪烁的抵御邪灵的小灯。
+
+在大多数民间传说中，雕刻南瓜是为了在万圣节前夕（即万圣节）吓跑邪灵，因为据说那时死者会在人间游荡。
+
+[下载480](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_800x480.jpg&rf=LaDigue_800x480.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1024x768.jpg&rf=LaDigue_1024x768.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
