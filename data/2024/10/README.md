@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1024x768.jpg&rf=LaDigue_1024x768.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg&rf=LaDigue_UHD.jpg "南瓜田，维多利亚，不列颠哥伦比亚省，加拿大")
+
+
+---
+### 2024 10月 29：猫头鹰的叫声在萦绕
+#### 大雕鸮（© Mark Newman/Getty Images）
+![猫头鹰的叫声在萦绕](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_800x480.jpg&rf=LaDigue_800x480.jpg "猫头鹰的叫声在萦绕")
+万圣节即将来临，让我们来认识一下这个节日的标志之一：大雕鸮。凭借着敏锐的视力、怪异的叫声和寂静无声的飞行，这种猫头鹰历来令人又敬又畏。在民间传说和神话中，猫头鹰被视为智慧的象征和死亡的预兆。在萨温节（这是凯尔特人万圣节的前身），猫头鹰被认为是灵魂正在游荡的亲属。
+
+大雕鸮是阿尔伯塔省的省鸟。
+
+[下载480](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_800x480.jpg&rf=LaDigue_800x480.jpg "大雕鸮")
+[下载720](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1024x768.jpg&rf=LaDigue_1024x768.jpg "大雕鸮")
+[下载1080](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大雕鸮")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg "大雕鸮")
