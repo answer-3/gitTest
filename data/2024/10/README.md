@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1024x768.jpg&rf=LaDigue_1024x768.jpg "大雕鸮")
 [下载1080](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大雕鸮")
 [下载UHD](https://cn.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg&rf=LaDigue_UHD.jpg "大雕鸮")
+
+
+---
+### 2024 10月 30：令人毛骨悚然的历史
+#### 从苏格兰教堂墓地眺望爱丁堡城堡，英国（© Chris Dorney/Alamy Stock Photo）
+![令人毛骨悚然的历史](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_800x480.jpg&rf=LaDigue_800x480.jpg "令人毛骨悚然的历史")
+如果您在寻找一个既有历史感又有大量鬼魂传说的万圣节目的地，爱丁堡城堡就是不二之选。它位于一座死火山的高处，自11世纪以来，这些屹立的城墙见证了战争、皇室诞生、王公贵族的处决以及诸多的戏剧性事件。但真正让它与众不同的是它有着苏格兰闹鬼最凶的地方之一的名声。城堡有着1000多年的历史，难怪有人报告说见过鬼魂。
+
+自2009年起，这座城堡作为爱丁堡世界遗产保护区的一部分，出现在克莱兹代尔银行发行的10英镑纸币上。
+
+[下载480](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_800x480.jpg&rf=LaDigue_800x480.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1024x768.jpg&rf=LaDigue_1024x768.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg&rf=LaDigue_UHD.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
