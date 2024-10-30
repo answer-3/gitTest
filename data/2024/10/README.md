@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1024x768.jpg&rf=LaDigue_1024x768.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg&rf=LaDigue_UHD.jpg "从苏格兰教堂墓地眺望爱丁堡城堡，英国")
+
+
+---
+### 2024 10月 31：万圣节时冷冰冰的凝视
+#### 巴黎圣母院的奇美拉，法国（© scaliger/Getty Images）
+![万圣节时冷冰冰的凝视](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_800x480.jpg&rf=LaDigue_800x480.jpg "万圣节时冷冰冰的凝视")
+你有被恐怖的事物吓着的时候吗？如果有这样的经历，那说明你有着适度的娱乐感和恐惧感。一年中，没有什么日子比万圣节更适合沉迷于各种恐怖事物中了。我们今天所知的万圣节其实是由多个古老的文化和宗教传统演变而来，其中包括凯尔特人的萨温节，罗马人的“费拉里雅”，以及中世纪基督教的活动。今天，乔装打扮后的人们穿梭于大街小巷，就像祖先们披着兽皮来占卜未来或颂扬圣人和英烈一样。
+
+从维克多·谢阁兰开始，一些研究中国艺术的西方学者便使用“奇美拉”一词泛指有翼的狮子类或混合物种的四足动物，如辟邪、天禄，甚至麒麟。
+
+[下载480](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_800x480.jpg&rf=LaDigue_800x480.jpg "巴黎圣母院的奇美拉，法国")
+[下载720](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴黎圣母院的奇美拉，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴黎圣母院的奇美拉，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg&rf=LaDigue_UHD.jpg "巴黎圣母院的奇美拉，法国")
