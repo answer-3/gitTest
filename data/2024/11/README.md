@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园石狮海滩，华盛顿州，美国")
+
+
+---
+### 2024 11月 7：初冬之美
+#### 金色的松树，坝上草原，中国（© MelindaChan/Getty Images）
+![初冬之美](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_800x480.jpg&rf=LaDigue_800x480.jpg "初冬之美")
+今天是二十四节气之一的立冬，也是冬季的开始。今天图片中地方是位于中国坝上草原地区的松林美景。坝上草原位于内蒙古高原的东南端，大兴安岭的南麓，是内蒙古高原的重要组成部分。
+
+塞罕坝，蒙语原意为“美丽的高岭”。
+
+[下载480](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_800x480.jpg&rf=LaDigue_800x480.jpg "金色的松树，坝上草原，中国")
+[下载720](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_1024x768.jpg&rf=LaDigue_1024x768.jpg "金色的松树，坝上草原，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金色的松树，坝上草原，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_UHD.jpg&rf=LaDigue_UHD.jpg "金色的松树，坝上草原，中国")
