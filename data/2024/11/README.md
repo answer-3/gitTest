@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1024x768.jpg&rf=LaDigue_1024x768.jpg "银河，阿伊特本哈杜杜，摩洛哥")
 [下载1080](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "银河，阿伊特本哈杜杜，摩洛哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_UHD.jpg&rf=LaDigue_UHD.jpg "银河，阿伊特本哈杜杜，摩洛哥")
+
+
+---
+### 2024 11月 10：飞行中的火烈鸟
+#### 加勒比火烈鸟，尤卡坦半岛，墨西哥（© Claudio Contreras/NPL/Minden Pictures）
+![飞行中的火烈鸟](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_800x480.jpg&rf=LaDigue_800x480.jpg "飞行中的火烈鸟")
+你见过一群火烈鸟飞上天空吗？如果你见过，它们很有可能就是加勒比火烈鸟，也叫美洲火烈鸟，就像今天图片中在墨西哥尤卡坦半岛看到的那样。火烈鸟成群出没时被称为“火烈鸟群”，但它们也可以被称为“站群”或“群落”。加勒比火烈鸟是美洲最大的火烈鸟物种，也是唯一原产于北美的物种。这些充满活力的鸟类通常栖息在咸淡水和海水地区，如沼泽、河口和海岸线一带。由于其通体粉红色，它们经常被误认作粉红琵鹭。不过，长长的脖子和弯曲的喙将它们与大蓝鹭和木鹳等涉水鸟类区分开来。
+
+火烈鸟是一种古老的鸟类。它们的化石记录可以追溯到中新世，也就是大约1000万年前。
+
+[下载480](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_800x480.jpg&rf=LaDigue_800x480.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1024x768.jpg&rf=LaDigue_1024x768.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg&rf=LaDigue_UHD.jpg "加勒比火烈鸟，尤卡坦半岛，墨西哥")
