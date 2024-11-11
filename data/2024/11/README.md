@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1024x768.jpg&rf=LaDigue_1024x768.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_UHD.jpg&rf=LaDigue_UHD.jpg "班夫国家公园的日落，阿尔伯塔省，加拿大")
+
+
+---
+### 2024 11月 12：拱门之下
+#### 透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国（© Jeff Foott/Minden Pictures）
+![拱门之下](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_800x480.jpg&rf=LaDigue_800x480.jpg "拱门之下")
+头顶一片蓝，脚踩一片红，在这里，目之所及处尽是红色。欢迎来到犹他州拱门国家公园！这片超凡景观的故事开始于6500万年前，当时这里是一片干涸的海床。随着时间的推移，地质力量扭曲和挤压着这片土地，将砂岩扭曲成隆起和凸起状态。再后来，风和水雕刻出了拱门，尖峰，鳍状岩和平衡石，也就是现在矗立在这片区域的这些岩石。公园里有2000多座天然石拱，是地球上此类地质结构最集中的地方。在今天的照片中，我们可以看到其中两座石拱：透过海湾拱门看到双拱门，双拱门中较大的那座拱门跨度为144英尺，高112英尺，是公园内最高、第二长的拱门。
+
+拱门国家公园规定禁止攀爬园区内的平衡石或者是任何有名、无名的开口大于3英尺（0.9米）的拱门岩石。在公园的其他地方攀岩是允许的，但仍须遵守相关规定。此外，公园内还禁止走绳运动和低空跳伞。
+
+[下载480](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_800x480.jpg&rf=LaDigue_800x480.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_1024x768.jpg&rf=LaDigue_1024x768.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg&rf=LaDigue_UHD.jpg "透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国")
