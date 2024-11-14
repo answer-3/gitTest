@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_1024x768.jpg&rf=LaDigue_1024x768.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_UHD.jpg&rf=LaDigue_UHD.jpg "马纳罗拉，五渔村国家公园，利古里亚，意大利")
+
+
+---
+### 2024 11月 15：愿望随灯起飞
+#### 义蓬灯节 ，清迈，泰国（© tampatra/Getty Images）
+![愿望随灯起飞](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_800x480.jpg&rf=LaDigue_800x480.jpg "愿望随灯起飞")
+在今天的夜幕降临时，泰国第二大城市清迈将在数以千计的流光溢彩的灯笼中迎来义蓬灯节。这个庆祝活动在兰纳农历（该历法可追溯到中世纪泰国北部的兰纳王国）第二个月的满月时举行，象征着消除负面情绪和迎接新的开始。节日的高潮是在夜空中放飞名为“ khom loi”或“khom loy”的天灯，也就是能在空中漂浮的纸灯笼。届时，天际弥漫着温暖的金色光海，形成一道美丽的风景线。当地人和游客聚集在寺庙和宫殿周围，向天空许愿，希望来年好运连连。
+
+在知名旅行网站“猫途鹰”评选出的“全球25大最佳旅行目的地”榜单中，清迈是泰国入选的两个旅游目的地之一，位列第24位。此外，清迈也是新偶像组合CGM48成立的地方。
+
+[下载480](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_800x480.jpg&rf=LaDigue_800x480.jpg "义蓬灯节 ，清迈，泰国")
+[下载720](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1024x768.jpg&rf=LaDigue_1024x768.jpg "义蓬灯节 ，清迈，泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "义蓬灯节 ，清迈，泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_UHD.jpg&rf=LaDigue_UHD.jpg "义蓬灯节 ，清迈，泰国")
