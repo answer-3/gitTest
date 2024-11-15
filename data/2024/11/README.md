@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1024x768.jpg&rf=LaDigue_1024x768.jpg "义蓬灯节 ，清迈，泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "义蓬灯节 ，清迈，泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_UHD.jpg&rf=LaDigue_UHD.jpg "义蓬灯节 ，清迈，泰国")
+
+
+---
+### 2024 11月 16：泥土、大海和天空
+#### 瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰（© Ron ter Burg/Minden Pictures）
+![泥土、大海和天空](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_800x480.jpg&rf=LaDigue_800x480.jpg "泥土、大海和天空")
+如果你曾经想过在水上漫步，或者在接近水面的地方行走，瓦登海就是你的理想之地。沿着荷兰、德国和丹麦的海岸绵延300多英里，这个联合国教科文组织认定的世界遗产拥有独特的滩涂和湿地景观。事实上，它是世界上最大的完整潮间带（即涨潮时在水下，退潮时露出水面的沙地和泥滩）。该地区既是突唇白鲑、褐鳟和白喙斑纹海豚等水生物种的游乐场，也是涉禽和苍鹭等鸟类的栖息地。
+
+1903年厄斯金·柴德斯的小说《沙岸之谜》和1915年埃尔丝·乌拉伊的小说《儿童疗养院中的小宝贝》都以瓦登海的德国部分为背景。
+
+[下载480](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_800x480.jpg&rf=LaDigue_800x480.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_UHD.jpg&rf=LaDigue_UHD.jpg "瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰")
