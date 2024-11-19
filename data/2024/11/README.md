@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1024x768.jpg&rf=LaDigue_1024x768.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg&rf=LaDigue_UHD.jpg "塔斯曼拱门，塔斯马尼亚州，澳大利亚")
+
+
+---
+### 2024 11月 20：加龙河上的历史通道
+#### 皮埃尔桥，波尔多，法国（© SergiyN/Getty Images）
+![加龙河上的历史通道](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_800x480.jpg&rf=LaDigue_800x480.jpg "加龙河上的历史通道")
+皮埃尔桥横跨波尔多加龙河，自1822年落成以来一直是这座城市的象征。这座历史悠久的大桥由拿破仑一世下令建造，由工程师德尚普和比洛德尔设计，是第一座连接两岸的桥梁。桥长486米，有17个雄伟的拱门和16个桥墩，是那个时代智慧的见证。它最初在落成时被命名为“路易十八桥”，但很快就被波尔多人改名为“皮埃尔桥”，意思其实就是“石桥”。
+
+这座桥共有17个拱门，而17正是拿破仑·波拿巴这个名字的字母个数。在桥的两侧，每个桥墩上都有一个白色的徽章，上面刻着代表法国路易十八名字的“双L”图案。
+
+[下载480](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_800x480.jpg&rf=LaDigue_800x480.jpg "皮埃尔桥，波尔多，法国")
+[下载720](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1024x768.jpg&rf=LaDigue_1024x768.jpg "皮埃尔桥，波尔多，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皮埃尔桥，波尔多，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_UHD.jpg&rf=LaDigue_UHD.jpg "皮埃尔桥，波尔多，法国")
