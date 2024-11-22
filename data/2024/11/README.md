@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_UHD.jpg&rf=LaDigue_UHD.jpg "萨夫拉城堡，瓜达拉哈拉省，西班牙")
+
+
+---
+### 2024 11月 23：大自然的密码
+#### 多叶芦荟，袋鼠岛，澳大利亚（© Michael Melford/Alamy）
+![大自然的密码](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的密码")
+在斐波纳契日这一天，数学家和科学家们共同纪念他们的同行：列奥纳多·斐波那契。这位中世纪数学家因推广阿拉伯数字系统而闻名于世，该系统使用零、小数点和10个数字，而不是笨重的罗马数字系统。不过，最著名的还是他的数字序列：0,1,1,2,3,5,8……这个数列从第3项开始，每一项都等于前两项之和。忽略掉零，前四个数字对应今天的日期11/23。
+
+多叶芦荟在夏初开花，花朵颜色从红色到橙红色不等，偶尔也有黄色，开在粗壮、多分枝的花序顶端。
+
+[下载480](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_800x480.jpg&rf=LaDigue_800x480.jpg "多叶芦荟，袋鼠岛，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1024x768.jpg&rf=LaDigue_1024x768.jpg "多叶芦荟，袋鼠岛，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多叶芦荟，袋鼠岛，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg&rf=LaDigue_UHD.jpg "多叶芦荟，袋鼠岛，澳大利亚")
