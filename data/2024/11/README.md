@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_1024x768.jpg&rf=LaDigue_1024x768.jpg "州立公园，索诺玛海岸，美国加利福尼亚州")
 [下载1080](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "州立公园，索诺玛海岸，美国加利福尼亚州")
 [下载UHD](https://cn.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_UHD.jpg&rf=LaDigue_UHD.jpg "州立公园，索诺玛海岸，美国加利福尼亚州")
+
+
+---
+### 2024 11月 25：野生动物的生活
+#### 马赛长颈鹿，安波塞利国家公园，肯尼亚（© Art Wolfe/DanitaDelimont.com）
+![野生动物的生活](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_800x480.jpg&rf=LaDigue_800x480.jpg "野生动物的生活")
+从今天的图片中可以看到，马赛长颈鹿漫步在肯尼亚安波塞利国家公园的广阔土地上。长颈鹿身高约5.49米或更高，是世界上最高的陆地哺乳动物。除了超过约0.45米长的卷舌之外，它们还利用惊人的身高来吃离地面近6米左右的树叶。它们的速度也比你想象的要快，能够在短距离内冲刺，时速可达37英里。长颈鹿在东非地区很常见，它们可以在草原、林地和保护区吃草。
+
+马赛长颈鹿目前是坦桑尼亚的国兽。
+
+[下载480](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_800x480.jpg&rf=LaDigue_800x480.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_1024x768.jpg&rf=LaDigue_1024x768.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_UHD.jpg&rf=LaDigue_UHD.jpg "马赛长颈鹿，安波塞利国家公园，肯尼亚")
