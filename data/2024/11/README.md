@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1024x768.jpg&rf=LaDigue_1024x768.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg&rf=LaDigue_UHD.jpg "橄榄树林，伊特里亚山谷，普利亚，意大利")
+
+
+---
+### 2024 11月 27：巨人的安息之地
+#### 秋天的巨人之墓，布永市，比利时（© David Briard/Getty）
+![巨人的安息之地](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_800x480.jpg&rf=LaDigue_800x480.jpg "巨人的安息之地")
+位于比利时布永市的巨人墓为前来观光的游客提供了一幅优美的全景图。这座山丘就像一位巨人躺在130英里长的瑟穆瓦河的拐弯处，其名字来源于当地的一个传说：据说一位高卢巨人特雷维索为了不被罗马士兵抓获，选择从加特岩的悬崖上跳下去。如今，这里是一个深受徒步旅行者和公路旅行者喜爱的观景点，站在这里，可以看到景色随着季节的变化呈现出显著的变化。秋天，这里的风景呈现出暖色调，就像今天图片中展示的那样，是自然爱好者和摄影师的理想之地。
+
+这个氛围超棒的地方拥有一切你想要的城堡特色：潮湿滴水的通道走廊、散发着霉味的半明半暗的牢房、猎鹰表演、粗糙的楼梯间，还有许多阴森的角落间隙待人发掘。此外，这里还有一些不同寻常的惊喜，比如正在发酵的奶酪和迷你书法博物馆。
+
+[下载480](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_800x480.jpg&rf=LaDigue_800x480.jpg "秋天的巨人之墓，布永市，比利时")
+[下载720](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋天的巨人之墓，布永市，比利时")
+[下载1080](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋天的巨人之墓，布永市，比利时")
+[下载UHD](https://cn.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg&rf=LaDigue_UHD.jpg "秋天的巨人之墓，布永市，比利时")
