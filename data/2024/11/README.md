@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大")
+
+
+---
+### 2024 11月 29：时间与潮汐之岛
+#### 圣米歇尔山，诺曼底，法国（© Captain Skyhigh/Getty Images）
+![时间与潮汐之岛](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_800x480.jpg&rf=LaDigue_800x480.jpg "时间与潮汐之岛")
+欢迎来到法国北部诺曼底的圣米歇尔山，这里是潮汐奇观和中世纪生活的缩影。这个“西方奇迹 ”的故事可以追溯到8世纪初，据说当时大天使米迦勒在异象中出现在阿夫朗什的主教面前。神谕非常明确：在这块岩石上建造一座圣殿。这位主教认真听取了天使的建议，并为目前主宰这座岛屿的修道院奠定了基础。几个世纪以来，这座联合国教科文组织认定的世界遗产的规模和声誉不断扩大，吸引着众多修道士、朝圣者以及入侵者。
+
+在极少数情况下，会出现异常高的“超级潮汐”。2015年3月21日，圣米歇尔山就经历了一次罕见的超级潮汐，潮水达到了18年一遇的最高水位，导致新建的桥完全被淹没，吸引了大量游客前来拍照留念。
+
+[下载480](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_800x480.jpg&rf=LaDigue_800x480.jpg "圣米歇尔山，诺曼底，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣米歇尔山，诺曼底，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣米歇尔山，诺曼底，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_UHD.jpg&rf=LaDigue_UHD.jpg "圣米歇尔山，诺曼底，法国")
