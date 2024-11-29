@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣米歇尔山，诺曼底，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣米歇尔山，诺曼底，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_UHD.jpg&rf=LaDigue_UHD.jpg "圣米歇尔山，诺曼底，法国")
+
+
+---
+### 2024 11月 30：探秘苏格兰的遗产
+#### 基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰（© Tom Mackie/plainpicture）
+![探秘苏格兰的遗产](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_800x480.jpg&rf=LaDigue_800x480.jpg "探秘苏格兰的遗产")
+穿上格子裙，吹响风笛吧——今天是圣安德鲁节！苏格兰的国庆节是当地的公共假日，不过并不是每个人都会在这一天放假。圣安德鲁不仅是一名渔夫，还是希腊、巴巴多斯、罗马尼亚和乌克兰等其他几个国家的守护神。他既是耶稣的使徒之一，也是基督教的关键人物。尽管圣安德鲁从未踏足苏格兰，但他的影响在苏格兰的圣安德鲁十字旗中得以永存，据说这面旗象征着他殉难时所用的十字架。
+
+这座城堡目前因保护工程而关闭。城堡周围的安全围栏上的标志上写着，关闭的原因是砖石掉落造成的安全风险。
+
+[下载480](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_800x480.jpg&rf=LaDigue_800x480.jpg "基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_1024x768.jpg&rf=LaDigue_1024x768.jpg "基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_UHD.jpg&rf=LaDigue_UHD.jpg "基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰")
