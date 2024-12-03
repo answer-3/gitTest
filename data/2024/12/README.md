@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_1024x768.jpg&rf=LaDigue_1024x768.jpg "Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg&rf=LaDigue_UHD.jpg "Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度")
+
+
+---
+### 2024 12月 4：濒临灭绝
+#### 雄性白犀，纳库鲁湖，肯尼亚（© Ingo Arndt/Minden Pictures）
+![濒临灭绝](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_800x480.jpg&rf=LaDigue_800x480.jpg "濒临灭绝")
+今天是野生动物保护日——一个提醒我们庆祝并保护地球上惊人的生物多样性的重要日子。许多物种正面临灭绝，包括非洲森林象、克罗斯河大猩猩、中南大羚、长江江豚等。自2012年设立以来，这个特别的日子一直关注着非法野生动植物贸易和动物面临的其他威胁，同时还提醒人们需要采取更强有力的长期解决方案。
+
+白犀牛通常生活在由多达14头犀牛组成的群落中，这些群体主要由母牛组成。亚成年公犀牛通常会与成年母牛聚集在一起，大多数成年公犀牛则更倾向于独居。
+
+[下载480](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_800x480.jpg&rf=LaDigue_800x480.jpg "雄性白犀，纳库鲁湖，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_1024x768.jpg&rf=LaDigue_1024x768.jpg "雄性白犀，纳库鲁湖，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性白犀，纳库鲁湖，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg&rf=LaDigue_UHD.jpg "雄性白犀，纳库鲁湖，肯尼亚")
