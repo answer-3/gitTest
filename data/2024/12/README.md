@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_1024x768.jpg&rf=LaDigue_1024x768.jpg "雄性白犀，纳库鲁湖，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性白犀，纳库鲁湖，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg&rf=LaDigue_UHD.jpg "雄性白犀，纳库鲁湖，肯尼亚")
+
+
+---
+### 2024 12月 5：石灰华塔的崛起
+#### 莫诺湖的石灰华地层，加利福尼亚州，美国（© Susanna Patras/TANDEM Stills + Motion）
+![石灰华塔的崛起](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_800x480.jpg&rf=LaDigue_800x480.jpg "石灰华塔的崛起")
+在时间的缓慢流逝下，凝灰岩——一种多孔石灰岩，成为大自然中最壮观的地貌之一。虽然这些塔在许多地方都能找到，但今天的图片展示的是加利福尼亚州莫诺县的莫诺湖。当富含钙质的淡水从几条小溪流入湖中，与湖中的碱性水混合后，就形成了这些结构。几个世纪以来，这种相互作用导致碳酸钙堆积，在湖面上形成了石灰华塔。为了保护这些塔，加利福尼亚州议会于1981年建立了莫诺湖图法国家自然保护区。
+
+莫诺湖位于莫诺盆地的一部分，这是一个内流盆地，没有通往海洋的出口。因此，径流中的溶解盐分会留在湖中，使湖水的pH值和盐分浓度升高。
+
+[下载480](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_800x480.jpg&rf=LaDigue_800x480.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_1024x768.jpg&rf=LaDigue_1024x768.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_UHD.jpg&rf=LaDigue_UHD.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
