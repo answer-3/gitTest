@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_1024x768.jpg&rf=LaDigue_1024x768.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_UHD.jpg&rf=LaDigue_UHD.jpg "莫诺湖的石灰华地层，加利福尼亚州，美国")
+
+
+---
+### 2024 12月 6：一路通往童话之路
+#### 鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国（© zhengshun tang/Getty Images）
+![一路通往童话之路](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_800x480.jpg&rf=LaDigue_800x480.jpg "一路通往童话之路")
+大雪节气已至，气温显著下降、中国大部分地区已经进入了寒冷的冬季。今天带您欣赏的是中国辽宁省大连市的泊霞湾公园。冬季，尤其是大雪节气之后，北方有“千里冰封，万里雪飘”的自然景观，此时的中国北方的部分海面已经慢慢开始冰封，于泊霞湾公园附近的灯塔欣赏冰封的海面是一个既梦幻又浪漫的好地方。
+
+彩虹路全长超过3000米，是大连市最长的彩虹观光路之一，路中间的双黄线，被红黄蓝的三色线取代。
+
+[下载480](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1024x768.jpg&rf=LaDigue_1024x768.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国")
