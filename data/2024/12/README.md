@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴黎圣母院，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴黎圣母院，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg&rf=LaDigue_UHD.jpg "巴黎圣母院，巴黎，法国")
+
+
+---
+### 2024 12月 9：态度和高度
+#### 两只原驼,托雷斯德尔帕恩国家公园 , 智利（© Floris van Breugel/NPL/Minden Pictures）
+![态度和高度](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_800x480.jpg&rf=LaDigue_800x480.jpg "态度和高度")
+原驼是南美洲的本土动物，主要分布在美洲大陆中西部一带，大多栖息在秘鲁与玻利维亚交界的安第斯山脉。原驼生性机警敏捷，喜欢成群外出觅食，性格相对温顺。
+
+原驼（又称瓜纳科斯）能够在高海拔地区生活，它们的心脏相对于体型来说很大，单位体积血液内所含血红蛋白的量大约是人类血液的四倍。
+
+[下载480](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_800x480.jpg&rf=LaDigue_800x480.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
+[下载720](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_1024x768.jpg&rf=LaDigue_1024x768.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
+[下载1080](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
+[下载UHD](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg&rf=LaDigue_UHD.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
