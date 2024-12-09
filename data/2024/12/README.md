@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_1024x768.jpg&rf=LaDigue_1024x768.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
 [下载1080](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
 [下载UHD](https://cn.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg&rf=LaDigue_UHD.jpg "两只原驼,托雷斯德尔帕恩国家公园 , 智利")
+
+
+---
+### 2024 12月 10：世界的尽头？不完全是
+#### 被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰（© Josef FitzGerald-Patrick/Getty Images）
+![世界的尽头？不完全是](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_800x480.jpg&rf=LaDigue_800x480.jpg "世界的尽头？不完全是")
+欢迎来到英格兰康沃尔的兰兹角，这里有狂风呼啸的悬崖、崎岖不平的美景和蔚为壮观的海景！从古希腊时代起，它就被称为“Belerion”（闪闪发光的土地）或是“太阳之地”，或出现在亚瑟王传奇中提到的失落之地“里昂内斯”中，兰兹角一直是一个令人神往的地方。它是英国大陆最西南的地点，最出名的是被设为慈善跑步比赛的起点或终点，路线从最西南端的兰兹角到英国北海的约翰奥格罗茨，贯穿了整个大不列颠岛。
+
+兰兹角是康沃尔的传奇之地，自古希腊时代起就一直激励着人们，当时它被称为“Belerion”，意为“闪闪发光的土地”。
+
+[下载480](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_800x480.jpg&rf=LaDigue_800x480.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1024x768.jpg&rf=LaDigue_1024x768.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_UHD.jpg&rf=LaDigue_UHD.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
