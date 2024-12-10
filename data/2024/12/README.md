@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1024x768.jpg&rf=LaDigue_1024x768.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_UHD.jpg&rf=LaDigue_UHD.jpg "被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰")
+
+
+---
+### 2024 12月 11：山峰的“胜利三重奏”
+#### 拉瓦雷多三峰山,意大利（© Daniel Maran/Getty Images）
+![山峰的“胜利三重奏”](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_800x480.jpg&rf=LaDigue_800x480.jpg "山峰的“胜利三重奏”")
+今天，让我们一起庆祝国际山岳日，向这个星球上高耸的“巨人们”致敬！作为“巨人”中的一员，拉瓦雷多三峰山（在今天的照片中的右侧），是意大利东北部塞斯托多洛米蒂山脉的一部分，也是阿尔卑斯山脉最著名的山群之一。这三座山峰——大峰，西峰和小峰，是联合国教科文组织认定的世界遗产地，吸引了许多探险者以及自然爱好者。第一次世界大战期间，意大利和奥匈帝国的战线穿过了这些山峰，留下了许多冲突的遗迹，如防御工事、战壕、隧道和纪念章。
+
+举世闻名的拉瓦雷多三峰山被认为是多洛米蒂山最令人瞩目的岩石景观。
+
+[下载480](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_800x480.jpg&rf=LaDigue_800x480.jpg "拉瓦雷多三峰山,意大利")
+[下载720](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1024x768.jpg&rf=LaDigue_1024x768.jpg "拉瓦雷多三峰山,意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉瓦雷多三峰山,意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg&rf=LaDigue_UHD.jpg "拉瓦雷多三峰山,意大利")
