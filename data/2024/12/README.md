@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1024x768.jpg&rf=LaDigue_1024x768.jpg "拉瓦雷多三峰山,意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉瓦雷多三峰山,意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg&rf=LaDigue_UHD.jpg "拉瓦雷多三峰山,意大利")
+
+
+---
+### 2024 12月 12：为节日做好准备
+#### 一品红或圣诞花（© David Hosking/NPL/Minden Pictures）
+![为节日做好准备](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_800x480.jpg&rf=LaDigue_800x480.jpg "为节日做好准备")
+这是红色的一品红，这种植物是美国节日季节的代名词之一。它有着令人注目的星形叶子，火焰般的红色在冬季照亮了住宅和公共场所，成为欢庆圣诞节的象征。今天，国家一品红日是为了纪念美国第一任驻墨西哥大使乔尔·罗伯茨·波因塞特的贡献，他在19世纪20年代将这些鲜艳的植物引进美国。在探索格雷罗州的塔斯科地区时，波因塞特发现了一品红，被它们的美丽吸引住，于是将一品红的剪枝寄回了他在南卡罗来纳州查尔斯顿的家。
+
+在美国，大约7000万株一品红将在节日季节的六周内被出售。
+
+[下载480](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_800x480.jpg&rf=LaDigue_800x480.jpg "一品红或圣诞花")
+[下载720](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_1024x768.jpg&rf=LaDigue_1024x768.jpg "一品红或圣诞花")
+[下载1080](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一品红或圣诞花")
+[下载UHD](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_UHD.jpg&rf=LaDigue_UHD.jpg "一品红或圣诞花")
