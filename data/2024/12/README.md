@@ -157,12 +157,26 @@
 ---
 ### 2024 12月 12：为节日做好准备
 #### 一品红或圣诞花（© David Hosking/NPL/Minden Pictures）
-![为节日做好准备](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_800x480.jpg&rf=LaDigue_800x480.jpg "为节日做好准备")
+![为节日做好准备](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_800x480.jpg&rf=LaDigue_800x480.jpg "为节日做好准备")
 这是红色的一品红，这种植物是美国节日季节的代名词之一。它有着令人注目的星形叶子，火焰般的红色在冬季照亮了住宅和公共场所，成为欢庆圣诞节的象征。今天，国家一品红日是为了纪念美国第一任驻墨西哥大使乔尔·罗伯茨·波因塞特的贡献，他在19世纪20年代将这些鲜艳的植物引进美国。在探索格雷罗州的塔斯科地区时，波因塞特发现了一品红，被它们的美丽吸引住，于是将一品红的剪枝寄回了他在南卡罗来纳州查尔斯顿的家。
 
 在美国，大约7000万株一品红将在节日季节的六周内被出售。
 
-[下载480](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_800x480.jpg&rf=LaDigue_800x480.jpg "一品红或圣诞花")
-[下载720](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_1024x768.jpg&rf=LaDigue_1024x768.jpg "一品红或圣诞花")
-[下载1080](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一品红或圣诞花")
-[下载UHD](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN9570708784_UHD.jpg&rf=LaDigue_UHD.jpg "一品红或圣诞花")
+[下载480](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_800x480.jpg&rf=LaDigue_800x480.jpg "一品红或圣诞花")
+[下载720](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_1024x768.jpg&rf=LaDigue_1024x768.jpg "一品红或圣诞花")
+[下载1080](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一品红或圣诞花")
+[下载UHD](https://cn.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_UHD.jpg&rf=LaDigue_UHD.jpg "一品红或圣诞花")
+
+
+---
+### 2024 12月 13：圣斯蒂芬大教堂的降临节
+#### 圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利（© Calin Stan/Shutterstock）
+![圣斯蒂芬大教堂的降临节](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_800x480.jpg&rf=LaDigue_800x480.jpg "圣斯蒂芬大教堂的降临节")
+在圣诞节来临之际，圣斯蒂芬大教堂成为了布达佩斯标志性的圣诞集市的中心。在洋溢着节日气氛的集市上，匈牙利手工艺品、节日装饰和当地美食应有尽有，充分体现了传统圣诞节的精髓。作为在圣诞节前几周举行的活动，降临节盛宴也是匈牙利节日传统的一部分，届时会邀请游客们品尝烟囱蛋糕、白菜卷和炖牛肉汤等菜肴，而空气中也会弥漫着热红酒和烤栗子的香味。对许多人来说，大教堂外墙投射的3D灯光秀是一大亮点，现代感十足的灯光秀让这座历史悠久的建筑栩栩如生。
+
+这座大教堂内有一架令人印象深刻的管风琴，它有6500多根音管，是欧洲最大的管风琴之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
+[下载720](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
+[下载1080](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
