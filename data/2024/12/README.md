@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
 [下载1080](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利")
+
+
+---
+### 2024 12月 14："谁"这么说？
+#### 猛鸮，加拿大（© pchoui/Getty Images）
+!["谁"这么说？](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_800x480.jpg&rf=LaDigue_800x480.jpg ""谁"这么说？")
+125年来，北美各地的鸟类爱好者通过圣诞节鸟类统计活动将圣诞节变成了一个充满节日气氛的“羽毛盛会”。这项一年一度的活动由鸟类学家弗兰克·查普曼创立，该活动用望远镜取代猎枪，将传统的节日狩猎聚会变成了一种环保的活动。从那时起，它就成了世界上持续时间最长的公民科学项目之一。每年12月14日至1月5日，不同年龄、不同观鸟水平的志愿者都会聚集在一起，在指定的“圆圈”区域进行调查。每个圆圈的直径为15英里，参与者会统计他们在圆圈内看到或听到的每一只鸟。这个统计结果是鸟类多样性的巨大缩影，每年会从2,500多个地点收集数据。这是一项追踪鸟类种群变化的严肃工作，为致力于保护脆弱物种的科学家提供了宝贵的数据。
+
+与大多数猫头鹰不同，北方鹰鸮没有不对称的耳孔。
+
+[下载480](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_800x480.jpg&rf=LaDigue_800x480.jpg "猛鸮，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1024x768.jpg&rf=LaDigue_1024x768.jpg "猛鸮，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猛鸮，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_UHD.jpg&rf=LaDigue_UHD.jpg "猛鸮，加拿大")
