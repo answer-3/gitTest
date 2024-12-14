@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1024x768.jpg&rf=LaDigue_1024x768.jpg "猛鸮，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "猛鸮，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_UHD.jpg&rf=LaDigue_UHD.jpg "猛鸮，加拿大")
+
+
+---
+### 2024 12月 15：泪水之湖
+#### 米苏里纳湖，多洛米蒂山脉，意大利（© Marco Bottigelli/Getty Images）
+![泪水之湖](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_800x480.jpg&rf=LaDigue_800x480.jpg "泪水之湖")
+你可能听说过“泪池”，但你听说过“泪湖”吗？传说中，位于意大利多洛米蒂山区的米苏里纳湖（如图所示）是由巨人索拉皮斯悲伤的眼泪汇聚而成。该湖海拔超过5700英尺，是卡多雷地区最大的天然湖泊，其周长超过1.5英里。米苏里纳湖的周边地区以其有益的气候而闻名，此处清澈的湖水和周边的酒店为多达500名游客提供了一个完美的度假胜地，尤其适合呼吸道疾病患者。1956年冬奥会期间，还在米苏里纳湖的天然冰面上举办了速度滑冰比赛，歌手克劳迪奥·巴格里奥尼甚至将其写入了一首流行歌曲。凭借令人惊叹的景色、神秘的起源和四季皆宜的活动，这个湖可能是多洛米蒂山脉最迷人的景点。
+
+米苏里纳湖是卡多雷地区最大的天然湖泊，被认为是意大利最美丽的高海拔湖泊之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_800x480.jpg&rf=LaDigue_800x480.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_1024x768.jpg&rf=LaDigue_1024x768.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_UHD.jpg&rf=LaDigue_UHD.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
