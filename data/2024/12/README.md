@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_1024x768.jpg&rf=LaDigue_1024x768.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_UHD.jpg&rf=LaDigue_UHD.jpg "米苏里纳湖，多洛米蒂山脉，意大利")
+
+
+---
+### 2024 12月 16：闪烁的街道和冰峰
+#### 萨尔茨堡，奥地利（© bluejayphoto/Getty Images）
+![闪烁的街道和冰峰](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_800x480.jpg&rf=LaDigue_800x480.jpg "闪烁的街道和冰峰")
+今天，我们来到奥地利城市萨尔茨堡，一个永不过时的地方。这里的圣诞季有一种神奇的氛围，让人流连忘返。闪闪发光的装饰让这座城市焕发生机，空气中弥漫着炒栗子、热红酒和新鲜出炉的饼干的香气。在此期间，这里会举办萨尔茨堡圣诞集市，这是世界闻名的传统圣诞市场。在今天的照片中，可以看到霍亨萨尔茨堡城堡，那里是颇受欢迎的城堡圣诞市场，洋溢着节日的欢乐。
+
+历史悠久的萨尔茨堡圣诞集市将于2024年迎来50周年纪念日。
+
+[下载480](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_800x480.jpg&rf=LaDigue_800x480.jpg "萨尔茨堡，奥地利")
+[下载720](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨尔茨堡，奥地利")
+[下载1080](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨尔茨堡，奥地利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_UHD.jpg&rf=LaDigue_UHD.jpg "萨尔茨堡，奥地利")
