@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_1024x768.jpg&rf=LaDigue_1024x768.jpg "传统红色渔民小屋，雷讷峡湾岸边，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统红色渔民小屋，雷讷峡湾岸边，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_UHD.jpg&rf=LaDigue_UHD.jpg "传统红色渔民小屋，雷讷峡湾岸边，挪威")
+
+
+---
+### 2024 12月 18：壮观的象群队伍
+#### 印度吉姆科比特国家公园的大象，印度（© ABHILASH VISWA PICASSO/Shutterstock）
+![壮观的象群队伍](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_800x480.jpg&rf=LaDigue_800x480.jpg "壮观的象群队伍")
+戴好你的帽子和望远镜，因为在吉姆科比特国家公园，河流不是普通的水道，而是大象的高速公路！印度最古老的国家公园建于1936年，以博物学家和自然保护主义者吉姆·科比特的名字命名。吉姆·科比特国家公园位于喜马拉雅山山麓，毗邻著名的奈尼塔尔山庄，以拥有大量老虎而闻名。在夏季，公园成为野生动物们的活动中心，经常可以看到印度象成群结队地游荡，数量多达数百头。作为特莱弧形景观计划的一部分，该公园是13个被纳入保护和修复目标的保护区之一。该计划的总体目标宏大且重要：保护三个最具代表性的陆地物种，即老虎、亚洲象和大独角犀牛。
+
+吉姆科比特国家公园是印度的一个国家公园，位于北阿坎德邦的奈尼塔尔地区。
+
+[下载480](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_800x480.jpg&rf=LaDigue_800x480.jpg "印度吉姆科比特国家公园的大象，印度")
+[下载720](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_1024x768.jpg&rf=LaDigue_1024x768.jpg "印度吉姆科比特国家公园的大象，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度吉姆科比特国家公园的大象，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_UHD.jpg&rf=LaDigue_UHD.jpg "印度吉姆科比特国家公园的大象，印度")
