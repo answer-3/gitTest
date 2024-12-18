@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_1024x768.jpg&rf=LaDigue_1024x768.jpg "印度吉姆科比特国家公园的大象，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度吉姆科比特国家公园的大象，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_UHD.jpg&rf=LaDigue_UHD.jpg "印度吉姆科比特国家公园的大象，印度")
+
+
+---
+### 2024 12月 19：闪烁的小镇
+#### 锡比乌圣诞市场，罗马尼亚（© Calin Stan/Alamy Stock Photo）
+![闪烁的小镇](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_800x480.jpg&rf=LaDigue_800x480.jpg "闪烁的小镇")
+随着冬季寒潮来临，锡比乌市变成了一个令人眼花缭乱的假日仙境，这里有罗马尼亚最受欢迎的圣诞市场之一。锡比乌圣诞市场从11月底到1月初在中央广场举行。在今天的图片中，一串串闪闪发光的灯悬挂在广场上，形成了一个雨棚，使鹅卵石街道沐浴在温暖的节日光芒中。那里还有一棵灯火辉煌的圣诞树，周围是迷人的木屋，售卖各种各样的东西，不仅有手工制作的装饰品，还有当地制作的点心，比如罗马尼亚传统甜面包，芳香的热葡萄酒，还有撒上盐的热脆饼。
+
+这座小镇被称为“千眼之城”（斜坡上的阁楼窗户形似人的眼睛），是国内外游客的著名旅游目的地。
+
+[下载480](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_800x480.jpg&rf=LaDigue_800x480.jpg "锡比乌圣诞市场，罗马尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_1024x768.jpg&rf=LaDigue_1024x768.jpg "锡比乌圣诞市场，罗马尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡比乌圣诞市场，罗马尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_UHD.jpg&rf=LaDigue_UHD.jpg "锡比乌圣诞市场，罗马尼亚")
