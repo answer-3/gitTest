@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_1024x768.jpg&rf=LaDigue_1024x768.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
 [下载1080](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
 [下载UHD](https://cn.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_UHD.jpg&rf=LaDigue_UHD.jpg "满拉水库的雪景，日喀则，中国西藏自治区")
+
+
+---
+### 2024 12月 22：冲浪、沙滩和圣诞老人
+#### 水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国（© SamAntonioPhotography/Getty Images）
+![冲浪、沙滩和圣诞老人](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_800x480.jpg&rf=LaDigue_800x480.jpg "冲浪、沙滩和圣诞老人")
+圣诞老人有足够的跑道可以降落，但要想光临你家的烟囱，那就只能祝你好运了。今天，我们在加利福尼亚州圣地亚哥的太平洋海滩为圣诞节做准备。虽然这里可能不会下雪，但在阳光明媚的南加州，圣诞节前仍然充满了节日气氛。在圣地亚哥的圣诞小径上，有许多美丽的圣诞树，其中一棵20英尺高的圣诞树位于装饰一新的水晶码头尽头。
+
+圣地亚哥（San Diego）的名字可以追溯到16世纪。1602年，西班牙探险家塞瓦斯蒂安·比斯凯诺将海湾和周边地区命名为 “San Diego de Alcalá”，以纪念迭戈·德·阿尔卡拉，后逐渐简化为San Diego。
+
+[下载480](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_800x480.jpg&rf=LaDigue_800x480.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1024x768.jpg&rf=LaDigue_1024x768.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_UHD.jpg&rf=LaDigue_UHD.jpg "水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国")
