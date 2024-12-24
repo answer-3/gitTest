@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_1024x768.jpg&rf=LaDigue_1024x768.jpg "德国圣诞市场")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德国圣诞市场")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_UHD.jpg&rf=LaDigue_UHD.jpg "德国圣诞市场")
+
+
+---
+### 2024 12月 25：传说中的风景
+#### 科瓦东加湖，阿斯图里亚斯，西班牙（© Carlos Fernandez/Getty Images）
+![传说中的风景](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_800x480.jpg&rf=LaDigue_800x480.jpg "传说中的风景")
+迷人的科瓦东加湖位于阿斯图里亚斯雄伟的欧罗巴山的中心地带，这是一个标志性的旅游胜地，在冬季尤为迷人。这些湖泊被皑皑白雪覆盖，四周环绕着雄伟的山脉，这幅自然奇观吸引着来自世界各地的游客。
+
+从科瓦东加通往湖区的这段上坡路是专业公路自行车赛中很受欢迎的爬坡路。在过去的25年里，环西班牙自行车赛曾多次经过这条路。
+
+[下载480](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_800x480.jpg&rf=LaDigue_800x480.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_1024x768.jpg&rf=LaDigue_1024x768.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_UHD.jpg&rf=LaDigue_UHD.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
