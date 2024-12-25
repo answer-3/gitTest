@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_1024x768.jpg&rf=LaDigue_1024x768.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_UHD.jpg&rf=LaDigue_UHD.jpg "科瓦东加湖，阿斯图里亚斯，西班牙")
+
+
+---
+### 2024 12月 26：节日还在继续
+#### 莫斯霍尔港的圣诞灯饰，康沃尔，英格兰（© ianwool/Getty Images）
+![节日还在继续](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_800x480.jpg&rf=LaDigue_800x480.jpg "节日还在继续")
+当圣诞颂歌的余音仍在空中回荡时，节礼日又到了。英国、加拿大及多个英联邦国家都会庆祝这个节日。过去，富人们会在圣诞节后的这一天给仆人赠送装满礼物的礼盒，这一传统后来演变为向不幸者进行慈善捐赠的日子。如今，尽管赠予的精神仍在，但这一天已转变为购物促销和观看足球比赛的节日。
+
+2004年12月26日发生的印度洋地震及海啸被称为“节礼日海啸”。
+
+[下载480](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_800x480.jpg&rf=LaDigue_800x480.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_1024x768.jpg&rf=LaDigue_1024x768.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_UHD.jpg&rf=LaDigue_UHD.jpg "莫斯霍尔港的圣诞灯饰，康沃尔，英格兰")
