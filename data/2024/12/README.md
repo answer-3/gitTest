@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1024x768.jpg&rf=LaDigue_1024x768.jpg "布莱德湖，斯洛文尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱德湖，斯洛文尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg&rf=LaDigue_UHD.jpg "布莱德湖，斯洛文尼亚")
+
+
+---
+### 2024 12月 28：保护海洋生物——绿海龟
+#### 一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚（© Damsea/Shutterstock）
+![保护海洋生物——绿海龟](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_800x480.jpg&rf=LaDigue_800x480.jpg "保护海洋生物——绿海龟")
+今日图片中展示了一只濒危的绿海龟正在太平洋西南部的新喀里多尼亚海域游泳。绿海龟在140多个国家的海岸线上均有分布，并全年在80多个国家筑巢。在中国，绿海龟大致分布于北起山东、南至北部湾海域。它们在中国江苏、浙江、福建、台湾、广东等沿海地带均有分布，尤其以南海最多。
+
+绿海龟被列为中国《国家重点保护野生动物名录》一级保护动物。截至2024年3月3日，中国的珍稀濒危物种数量稳中有升，人工繁育绿海龟幼龟数量已超过1万只。
+
+[下载480](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_800x480.jpg&rf=LaDigue_800x480.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&rf=LaDigue_UHD.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
