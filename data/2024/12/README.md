@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg&rf=LaDigue_UHD.jpg "一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚")
+
+
+---
+### 2024 12月 29：圣山之上
+#### 婆罗浮屠大佛寺，爪哇岛，印度尼西亚（© Robertharding/Shutterstock）
+![圣山之上](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_800x480.jpg&rf=LaDigue_800x480.jpg "圣山之上")
+想象一下，一个由200多万块石头拼成的巨大拼图，这就是今日图片中的婆罗浮屠。这座寺庙建于公元9世纪，由当时统治爪哇岛的夏连特拉王朝的统治者建造，是世界上最大的佛教寺庙，巍然屹立在印度尼西亚的爪哇岛。这座古老的圣殿因其采用了先进的石块连接系统，在数百年的自然灾害中屹立不倒，包括火山喷发和地震。历史上，婆罗浮屠是一个重要的朝圣地。在被遗弃数百年后，它在19世纪被英国副总督莱佛士重新发现。
+
+婆罗浮屠曾隐藏在火山灰和丛林植被之下，数百年无人知晓。它被遗弃的原因至今仍是一个谜。
+
+[下载480](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_800x480.jpg&rf=LaDigue_800x480.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_1024x768.jpg&rf=LaDigue_1024x768.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg&rf=LaDigue_UHD.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
