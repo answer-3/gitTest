@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_1024x768.jpg&rf=LaDigue_1024x768.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg&rf=LaDigue_UHD.jpg "婆罗浮屠大佛寺，爪哇岛，印度尼西亚")
+
+
+---
+### 2024 12月 30：四季皆美的公园
+#### 多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚（© Whitworth Images/Getty Images）
+![四季皆美的公园](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_800x480.jpg&rf=LaDigue_800x480.jpg "四季皆美的公园")
+位于澳大利亚东南海岸附近的塔斯马尼亚岛的中心，坐落着菲尔德山国家公园。该公园占地超过60平方英里，是该州最古老的国家公园之一。沿着蜿蜒的公路驶入公园，你将看到多样的自然景观，从温带雨林中世界上最高的桉树到高山沼泽地。这些千变万化的景色让公园有了“四季公园”的美誉。公园必去的景点之一是罗素瀑布，瀑布呈三级，落差达190英尺。
+
+这座公园是重要的植被保护区，保护了众多物种，其中包括了塔斯马尼亚至少13种珍稀或濒危物种。
+
+[下载480](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_800x480.jpg&rf=LaDigue_800x480.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_1024x768.jpg&rf=LaDigue_1024x768.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg&rf=LaDigue_UHD.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
