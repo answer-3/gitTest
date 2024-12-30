@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_1024x768.jpg&rf=LaDigue_1024x768.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg&rf=LaDigue_UHD.jpg "多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚")
+
+
+---
+### 2024 12月 31：新年快乐！
+#### 国会山上空的烟花，渥太华，加拿大（© naibank/Getty Images）
+![新年快乐！](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_800x480.jpg&rf=LaDigue_800x480.jpg "新年快乐！")
+今天是2024年的最后一天。新旧之年交替的夜晚被称为跨年夜，世界各地通常会举办烟火表演，一些地区则通过宗教和文化仪式迎接新年。许多国家还会用象征繁荣、长寿和好运的食物来迎接新年。在中国，人们会与亲朋好友聚在一起进行各种“除夕夜”活动，如旅行、听除夕音乐会或享用丰盛的除夕晚餐。
+
+西方元旦：公元前46年，古罗马凯撒把这一天定为西历新年的开始，为了祝福双面神“Janus”，这位罗马神话中的门神，“Janus”后来也演化为英文一月“January”这个词。
+
+[下载480](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_800x480.jpg&rf=LaDigue_800x480.jpg "国会山上空的烟花，渥太华，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_1024x768.jpg&rf=LaDigue_1024x768.jpg "国会山上空的烟花，渥太华，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "国会山上空的烟花，渥太华，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_UHD.jpg&rf=LaDigue_UHD.jpg "国会山上空的烟花，渥太华，加拿大")
