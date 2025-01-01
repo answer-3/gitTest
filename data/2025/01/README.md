@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_1024x768.jpg&rf=LaDigue_1024x768.jpg "在北极玩耍的北极熊")
 [下载1080](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在北极玩耍的北极熊")
 [下载UHD](https://cn.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg&rf=LaDigue_UHD.jpg "在北极玩耍的北极熊")
+
+
+---
+### 2025 1月 2：熠熠生辉的村庄
+#### 阿尔德兹村上空的星轨，格劳宾登州，瑞士（© Roberto Moiola/Getty Images）
+![熠熠生辉的村庄](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_800x480.jpg&rf=LaDigue_800x480.jpg "熠熠生辉的村庄")
+阿尔德兹位于瑞士因河河谷之上，海拔4,790英尺，是瑞士东部的一颗隐藏明珠，以其深厚的文化底蕴和对历史保护的卓越成就而闻名。这如画般的村庄正是今日图片的主角，展示了瑞士罗曼什语区的丰富传统和独特语言。村庄中的房屋都用石膏刻画装饰图案和彩色壁画装饰，这是恩加丁地区标志性的艺术风格。村庄的历史可以追溯到公元840年，当时它被称为阿尔代兹。村内的斯坦斯堡城堡最初属于库尔主教。尽管在1499 年的土瓦本战争中被摧毁，但城堡的塔楼多次被修复，如今仍屹立于此，骄傲地诉说着它的过去。阿尔德兹因其卓越的历史保护成就，于1975年被选为瑞士的模范村庄，其历史魅力因此得以完整保存。
+
+阿尔德兹是位于格劳宾登州恩加丁地区的一个小村庄，也是2016年瑞士最美村庄评选中进入决赛的四个村庄之一。这里有斯坦斯堡城堡的遗迹和圣卢修斯教堂的遗址，是瑞士四个受保护的古村之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
