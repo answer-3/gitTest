@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔德兹村上空的星轨，格劳宾登州，瑞士")
+
+
+---
+### 2025 1月 3：尽享欢乐时光
+#### 英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰（© atiger/Shutterstock）
+![尽享欢乐时光](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_800x480.jpg&rf=LaDigue_800x480.jpg "尽享欢乐时光")
+“冒险是否会有尽头？我想不会吧，因为总有人要继续讲述这个故事。” 今天是托尔金日，全球的读者们共同纪念这位创造了中土世界史诗冒险故事的大师：托尔金。托尔金可能是故事的开创者，但他的读者才是故事的传承者，一代又一代的读者沉浸在《霍比特人》、《指环王》等作品中。托尔金的读者们每年都会组织传统的祝酒活动庆祝托尔金的生日，在当地时间的晚上9点站起来并举起酒杯，说一声“敬教授”，然后喝一口即可。
+
+托尔金被大众公认为现代奇幻文学之父，也是史上最具影响力的作家之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_800x480.jpg&rf=LaDigue_800x480.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_1024x768.jpg&rf=LaDigue_1024x768.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&rf=LaDigue_UHD.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
