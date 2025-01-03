@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_1024x768.jpg&rf=LaDigue_1024x768.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&rf=LaDigue_UHD.jpg "英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰")
+
+
+---
+### 2025 1月 4：边境天堂
+#### 归春河上的板约-德天瀑布，中国与越南边境（© Shane P. White/Minden Pictures）
+![边境天堂](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_800x480.jpg&rf=LaDigue_800x480.jpg "边境天堂")
+欢迎来到河流与边界线交汇的绝美之地：板约-德天瀑布。今日图片展示的正是这幅美景。该瀑布位于中国广西壮族自治区大新县与越南高平省重庆县之间的喀斯特地貌山丘区，沿着归春河流下。瀑布高达95英尺，宽980英尺，是越南最宽的瀑布，距离河内169英里。多年来，板约瀑布的顶端因侵蚀而缓慢向上游延伸。一年中的大部分时间里，它们以两个独立的瀑布流淌，但到了夏季，当雨水使河水上涨时，它们会汇合成一个巨大的瀑布。
+
+板约-德天瀑布是位于中越国境线上的世界第四大跨国瀑布。
+
+[下载480](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_800x480.jpg&rf=LaDigue_800x480.jpg "归春河上的板约-德天瀑布，中国与越南边境")
+[下载720](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_1024x768.jpg&rf=LaDigue_1024x768.jpg "归春河上的板约-德天瀑布，中国与越南边境")
+[下载1080](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "归春河上的板约-德天瀑布，中国与越南边境")
+[下载UHD](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_UHD.jpg&rf=LaDigue_UHD.jpg "归春河上的板约-德天瀑布，中国与越南边境")
