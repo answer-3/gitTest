@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_1024x768.jpg&rf=LaDigue_1024x768.jpg "归春河上的板约-德天瀑布，中国与越南边境")
 [下载1080](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "归春河上的板约-德天瀑布，中国与越南边境")
 [下载UHD](https://cn.bing.com/th?id=OHR.VietnamFalls_ZH-CN9659529108_UHD.jpg&rf=LaDigue_UHD.jpg "归春河上的板约-德天瀑布，中国与越南边境")
+
+
+---
+### 2025 1月 5：树梢上的焦点
+#### 希莫加的紫红头鹦鹉，卡纳塔克邦，印度（© Hira Punjabi/Alamy Stock Photo）
+![树梢上的焦点](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_800x480.jpg&rf=LaDigue_800x480.jpg "树梢上的焦点")
+抬头看看天空，感受鸟类的神奇魅力。鸟类形态各异，色彩斑斓，但像今日图片中这种拥有紫色头冠的鹦鹉如此引人注目的却不多见。这种鹦鹉原产于印度次大陆，以飞行的快速敏捷和空中回荡的独特叫声而闻名。据报道，这种鹦鹉已扩散至美国纽约、佛罗里达州，甚至中东的部分地区。
+
+在中国，紫红头鹦鹉主要分布云南、四川西南部和西藏东南部等地区。
+
+[下载480](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_800x480.jpg&rf=LaDigue_800x480.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_1024x768.jpg&rf=LaDigue_1024x768.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_UHD.jpg&rf=LaDigue_UHD.jpg "希莫加的紫红头鹦鹉，卡纳塔克邦，印度")
