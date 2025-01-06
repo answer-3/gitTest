@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1024x768.jpg&rf=LaDigue_1024x768.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_UHD.jpg&rf=LaDigue_UHD.jpg "被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利")
+
+
+---
+### 2025 1月 7：岩石与滚石
+#### 日落时的摩拉基大圆石，南岛，新西兰（© Douglas Pearson/eStock Photo）
+![岩石与滚石](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_800x480.jpg&rf=LaDigue_800x480.jpg "岩石与滚石")
+今天是“古老岩石日”，一个庆祝和学习古老岩石与化石的节日。岩石虽常见，但我们很少花时间思考它们的神奇之处。在火山中锻造或在千年压力下形成的这些固体矿物质，是我们了解地球如何形成的关键。岩石中还可能包含化石，即早已灭绝的生物遗骸，为科学家揭示地球45亿年历史中生命和植物的演化线索。
+
+摩拉基大圆石最引人注目之处是它们异常巨大的体积和球形外观，并展现出明显的双峰尺寸分布特征。大约三分之一的巨石直径范围为0.5至1.0米，而其余三分之二的直径范围为1.5至2.2米。
+
+[下载480](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_800x480.jpg&rf=LaDigue_800x480.jpg "日落时的摩拉基大圆石，南岛，新西兰")
+[下载720](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时的摩拉基大圆石，南岛，新西兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的摩拉基大圆石，南岛，新西兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的摩拉基大圆石，南岛，新西兰")
