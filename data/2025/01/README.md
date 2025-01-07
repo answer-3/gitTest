@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时的摩拉基大圆石，南岛，新西兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时的摩拉基大圆石，南岛，新西兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg&rf=LaDigue_UHD.jpg "日落时的摩拉基大圆石，南岛，新西兰")
+
+
+---
+### 2025 1月 8：银装素裹，巍峨壮丽
+#### 被雪覆盖的长城，中国（© View Stock/Alamy Stock Photo）
+![银装素裹，巍峨壮丽](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_800x480.jpg&rf=LaDigue_800x480.jpg "银装素裹，巍峨壮丽")
+如今，这个古老的奇迹绵延 13,000 多英里，横跨崎岖的山脉、峡谷和数千年前修建的沙漠防御工事。长城上有陡峭的壕沟和瞭望塔，用以抵御入侵者。徒步攀登长城可以近距离感受这一历史地标，体验独特的长城之旅。从保存完好的慕田峪长城，到人迹罕至、最原始、最险峻的箭扣长城，每段长城的体验都不尽相同，有些台阶像梯子一样高。中国长城不仅仅是一堵墙，它还象征着坚韧和力量。今天，我们攀登长城，就是用顽强的毅力向更高的地方攀登！
+
+2009年，通过红外测距仪和全球卫星定位系统的帮助，首次精确测出明长城的总长度为8851.8千米。2015年3月至4月，在宁夏和甘肃交界地段黄河内岸，新发现了9段总长度超过10公里的长城遗址。
+
+[下载480](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_800x480.jpg&rf=LaDigue_800x480.jpg "被雪覆盖的长城，中国")
+[下载720](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1024x768.jpg&rf=LaDigue_1024x768.jpg "被雪覆盖的长城，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被雪覆盖的长城，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg&rf=LaDigue_UHD.jpg "被雪覆盖的长城，中国")
