@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1024x768.jpg&rf=LaDigue_1024x768.jpg "被雪覆盖的长城，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被雪覆盖的长城，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg&rf=LaDigue_UHD.jpg "被雪覆盖的长城，中国")
+
+
+---
+### 2025 1月 9：变换的地平线
+#### 苏丝斯黎沙丘，纳米布沙漠，纳米比亚（© Airpano/Amazing Aerial Agency）
+![变换的地平线](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_800x480.jpg&rf=LaDigue_800x480.jpg "变换的地平线")
+想象在日出时分，连绵起伏的沙丘泛着橙色光芒，延伸至视野尽头，欢迎来到横跨纳米比亚数千英里的纳米布沙漠。据估计它已有5500万年的历史，被认为是世界上最古老的沙漠。这里拥有地球上最著名的沙丘，包括高达1,066英尺的“大爸爸”沙丘；纳米比亚最高的沙丘“沙丘7”，高度达1256英尺；以及深受摄影师喜爱的“沙丘45”，高度约为560英尺。
+
+想象在日出时分，连绵起伏的沙丘泛着橙色光芒，延伸至视野尽头，欢迎来到横跨纳米比亚数千英里的纳米布沙漠。据估计它已有5500万年的历史，被认为是世界上最古老的沙漠。
+
+[下载480](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_800x480.jpg&rf=LaDigue_800x480.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1024x768.jpg&rf=LaDigue_1024x768.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_UHD.jpg&rf=LaDigue_UHD.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
