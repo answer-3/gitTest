@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1024x768.jpg&rf=LaDigue_1024x768.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_UHD.jpg&rf=LaDigue_UHD.jpg "苏丝斯黎沙丘，纳米布沙漠，纳米比亚")
+
+
+---
+### 2025 1月 10：冰层中气泡奇观
+#### 亚伯拉罕湖，阿尔伯塔省，加拿大（© Basic Elements Photography/Getty Images）
+![冰层中气泡奇观](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_800x480.jpg&rf=LaDigue_800x480.jpg "冰层中气泡奇观")
+听说过冻住的泡泡吗？每到冬季，加拿大阿尔伯塔省的亚伯拉罕湖便会上演这一奇观，这些气泡不仅美丽，更是科学的结晶。建于1972年的亚伯拉罕湖是一个占地超过20平方英里的人造湖，沿北萨斯喀彻温河延伸。湖泊的水源来自落基山脉的冰川融水，即使在寒冬，湖水依然清澈透明。冰川融水携带的细小沉积物能够散射阳光，而岩石的天然过滤作用将污染物降至最低。
+
+湖泊的冰层覆盖会随着冬季的不同阶段而有所变化。亚伯拉罕湖通常会在12月底完全冻结。而冰泡景观的最佳观赏时间是1月中旬至2月中旬。
+
+[下载480](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_800x480.jpg&rf=LaDigue_800x480.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_1024x768.jpg&rf=LaDigue_1024x768.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_UHD.jpg&rf=LaDigue_UHD.jpg "亚伯拉罕湖，阿尔伯塔省，加拿大")
