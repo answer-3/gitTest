@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_1024x768.jpg&rf=LaDigue_1024x768.jpg "梅克内斯的Heri es-Swani，摩洛哥")
 [下载1080](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梅克内斯的Heri es-Swani，摩洛哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_UHD.jpg&rf=LaDigue_UHD.jpg "梅克内斯的Heri es-Swani，摩洛哥")
+
+
+---
+### 2025 1月 12：深海中的锐利目光
+#### 大堡礁的宝石大眼鲷鱼，澳大利亚（© Fred Bavendam/Minden Pictures）
+![深海中的锐利目光](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_800x480.jpg&rf=LaDigue_800x480.jpg "深海中的锐利目光")
+认识一下宝石大眼鲷鱼，这种鱼如同它的名字一样引人注目。它拥有硕大的眼睛和一条形状如新月的尾鳍，十分容易辨认。宝石大眼鲷鱼体长约18至20英寸，体型流线型，下颚突出，带有细小的圆锥形牙齿。它的眼睛适应了深水的低光环境，帮助它发现猎物和躲避掠食者。这种鱼主要捕食小型鱼类、甲壳类和无脊椎动物，支撑其活跃穿梭于珊瑚礁的生活方式。
+
+这些鱼类通常独居，有时也会在开阔水域形成小群体或大型鱼群。
+
+[下载480](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_800x480.jpg&rf=LaDigue_800x480.jpg "大堡礁的宝石大眼鲷鱼，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_1024x768.jpg&rf=LaDigue_1024x768.jpg "大堡礁的宝石大眼鲷鱼，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大堡礁的宝石大眼鲷鱼，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_UHD.jpg&rf=LaDigue_UHD.jpg "大堡礁的宝石大眼鲷鱼，澳大利亚")
