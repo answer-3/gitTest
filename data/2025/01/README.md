@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_1024x768.jpg&rf=LaDigue_1024x768.jpg "Village of Zahara de la Sierra, Cádiz province, Spain")
 [下载1080](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Village of Zahara de la Sierra, Cádiz province, Spain")
 [下载UHD](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_UHD.jpg&rf=LaDigue_UHD.jpg "Village of Zahara de la Sierra, Cádiz province, Spain")
+
+
+---
+### 2025 1月 15：魔鬼与自然的气息
+#### Pointe du Diable，圣皮埃尔，留尼汪岛（© MONTICO Lionel/Alamy）
+![魔鬼与自然的气息](https://cn.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_800x480.jpg&rf=LaDigue_800x480.jpg "魔鬼与自然的气息")
+魔鬼角（Pointe du Diable）位于留尼汪岛，这里展现了自然力量与神秘气息的奇妙交汇。魔鬼角由约20万年前内日峰的熔岩流形成，这片玄武岩半岛壮丽地伸入印度洋。
+
+魔鬼角被认为是极其危险的区域，这里的海浪巨大，鲨鱼也频繁出没。尽管有警告，1988年至2006年间仍发生了四起鲨鱼袭击事件。
+
+[下载480](https://cn.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_800x480.jpg&rf=LaDigue_800x480.jpg "Pointe du Diable，圣皮埃尔，留尼汪岛")
+[下载720](https://cn.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_1024x768.jpg&rf=LaDigue_1024x768.jpg "Pointe du Diable，圣皮埃尔，留尼汪岛")
+[下载1080](https://cn.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Pointe du Diable，圣皮埃尔，留尼汪岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_UHD.jpg&rf=LaDigue_UHD.jpg "Pointe du Diable，圣皮埃尔，留尼汪岛")
