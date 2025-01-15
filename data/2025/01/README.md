@@ -170,30 +170,30 @@
 
 ---
 ### 2025 1月 13：“威尔士”祝你新年快乐！
-#### 小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国（© Westend61 on Offset/Shutterstock）
-![“威尔士”祝你新年快乐！](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_800x480.jpg&rf=LaDigue_800x480.jpg "“威尔士”祝你新年快乐！")
+#### 小屋和小塔灯塔，兰德温岛，威尔士，英国（© Westend61 on Offset/Shutterstock）
+![“威尔士”祝你新年快乐！](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_800x480.jpg&rf=LaDigue_800x480.jpg "“威尔士”祝你新年快乐！")
 谁说新年一定要在1月1日？在威尔士，1月13日，人们会“时钟倒转”庆祝盖兰节，也就是“旧新年”。 在这一传统中，“Calennig”（意为“新年礼物”）起着核心作用，将庆典与儒略历时代的风俗相连接。尽管1582年世界大部分地区改用格里高利历，但威尔士的一些地区依然坚持旧传统。在传统上，这一天会有孩子们挨家挨户拜访，唱歌送祝福，以此换取硬币、食物或糖果等礼物。其中一大特色是用丁香装饰的苹果，它们并非用来食用，而是象征好运与繁荣的装饰品。
 
 在新年当天赠送礼物和金钱是一项古老的传统，即使在现代的威尔士，这一习俗仍保留着，不过如今人们更倾向于赠送面包和奶酪。
 
-[下载480](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_800x480.jpg&rf=LaDigue_800x480.jpg "小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国")
-[下载720](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_1024x768.jpg&rf=LaDigue_1024x768.jpg "小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国")
-[下载1080](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国")
-[下载UHD](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_UHD.jpg&rf=LaDigue_UHD.jpg "小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国")
+[下载480](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_800x480.jpg&rf=LaDigue_800x480.jpg "小屋和小塔灯塔，兰德温岛，威尔士，英国")
+[下载720](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_1024x768.jpg&rf=LaDigue_1024x768.jpg "小屋和小塔灯塔，兰德温岛，威尔士，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小屋和小塔灯塔，兰德温岛，威尔士，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoastalWales_ZH-CN2499109149_UHD.jpg&rf=LaDigue_UHD.jpg "小屋和小塔灯塔，兰德温岛，威尔士，英国")
 
 
 ---
 ### 2025 1月 14：宁静之地
-#### Village of Zahara de la Sierra, Cádiz province, Spain（© SEN LI/Getty Images）
-![宁静之地](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_800x480.jpg&rf=LaDigue_800x480.jpg "宁静之地")
+#### 萨阿拉-德拉谢拉村，加的斯省，西班牙（© SEN LI/Getty Images）
+![宁静之地](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN1840219361_800x480.jpg&rf=LaDigue_800x480.jpg "宁静之地")
 萨哈拉·德拉谢拉位于西班牙加的斯的群山之上，是伊比利亚半岛南部历史与自然完美结合的白色小镇。村庄坐落在岩石山顶，从今日图片中可以看到，它俯瞰着碧蓝的萨哈拉-埃尔加斯托尔水库和郁郁葱葱的格拉萨莱马自然公园。该公园自1977年起被列为联合国教科文组织生物圈保护区。村内的摩尔人城堡遗址和15世纪塔楼，见证了其作为中世纪要塞的辉煌历史。漫步在鲜花簇拥的狭窄街道，参观风景如画的圣玛丽亚德拉梅萨教堂，或放松身心，尽享壮丽景色。萨哈拉·德拉谢拉还是探险的门户，徒步、骑行和皮划艇等活动只是小镇丰富体验的一部分。
 
 萨哈拉·德拉谢拉是安达卢西亚著名的“白色城镇”之一，大部分建筑的外墙以白色为主。
 
-[下载480](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_800x480.jpg&rf=LaDigue_800x480.jpg "Village of Zahara de la Sierra, Cádiz province, Spain")
-[下载720](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_1024x768.jpg&rf=LaDigue_1024x768.jpg "Village of Zahara de la Sierra, Cádiz province, Spain")
-[下载1080](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Village of Zahara de la Sierra, Cádiz province, Spain")
-[下载UHD](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_UHD.jpg&rf=LaDigue_UHD.jpg "Village of Zahara de la Sierra, Cádiz province, Spain")
+[下载480](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN1840219361_800x480.jpg&rf=LaDigue_800x480.jpg "萨阿拉-德拉谢拉村，加的斯省，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN1840219361_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨阿拉-德拉谢拉村，加的斯省，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN1840219361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨阿拉-德拉谢拉村，加的斯省，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.CadizSpain_ZH-CN1840219361_UHD.jpg&rf=LaDigue_UHD.jpg "萨阿拉-德拉谢拉村，加的斯省，西班牙")
 
 
 ---
@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_1024x768.jpg&rf=LaDigue_1024x768.jpg "Pointe du Diable，圣皮埃尔，留尼汪岛")
 [下载1080](https://cn.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Pointe du Diable，圣皮埃尔，留尼汪岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_UHD.jpg&rf=LaDigue_UHD.jpg "Pointe du Diable，圣皮埃尔，留尼汪岛")
+
+
+---
+### 2025 1月 16：诞生于火，历久弥坚
+#### 尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国（© yhelfman/Getty Images）
+![诞生于火，历久弥坚](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_800x480.jpg&rf=LaDigue_800x480.jpg "诞生于火，历久弥坚")
+欢迎来到加州中部的尖峰国家公园，布满了锯齿状山峰、石塔、巨石和奇特的洞穴。1908年，当时西奥多·罗斯福总统将该地区指定为国家纪念地。随后在2013年，尖峰正式升级为国家公园。在庆祝其成立周年之际，让我们花点时间欣赏这个地方。2300万年前的一次火山喷发，造就了公园独特的地貌。这段炽热的历史创造了高耸的岩柱、峭壁和塌落巨石形成的堆积洞穴。经过数百万年的板块构造运动，这片土地向北推移，使公园远离了最初的火山发源地。真是一段漫长而奇妙的旅程！
+
+尖峰国家公园因其众多高难度攀岩路线，深受经验丰富的攀岩者欢迎。这里提供多种类型的攀岩路线，包括抱石、单段攀岩和多段攀岩。然而，公园内的火山岩质地较脆，攀爬时可能会断裂。
+
+[下载480](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_800x480.jpg&rf=LaDigue_800x480.jpg "尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_1024x768.jpg&rf=LaDigue_1024x768.jpg "尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_UHD.jpg&rf=LaDigue_UHD.jpg "尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国")
