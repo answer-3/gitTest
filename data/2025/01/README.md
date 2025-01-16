@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_1024x768.jpg&rf=LaDigue_1024x768.jpg "尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_UHD.jpg&rf=LaDigue_UHD.jpg "尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国")
+
+
+---
+### 2025 1月 17：完美的囊袋
+#### 褐鹈鹕，圣地亚哥，加利福尼亚州，美国（© Arthur Morris/BIRDS AS ART/Getty Images）
+![完美的囊袋](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_800x480.jpg&rf=LaDigue_800x480.jpg "完美的囊袋")
+今日图片展示的是褐鹈鹕，这种鸟不仅会飞，还能以极高的精准度滑翔、发现猎物并俯冲捕食。虽然它是全球八种鹈鹕中体型最小的成员，但褐鹈鹕仍属于大型鸟类，身长约4英尺，翼展达6.5英尺。褐鹈鹕是海洋鸟类，分布在美洲的大西洋海岸，从新泽西到亚马逊河口；在太平洋沿岸，从不列颠哥伦比亚到秘鲁的沿海地区，包括加拉帕戈斯群岛，都可以找到它们的身影。
+
+在太平洋沿岸，繁殖季节的成年褐鹈鹕喉部皮肤呈红色；而在大西洋和墨西哥湾沿岸，褐鹈鹕体型略小，喉部皮肤呈绿黑色。
+
+[下载480](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_800x480.jpg&rf=LaDigue_800x480.jpg "褐鹈鹕，圣地亚哥，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_1024x768.jpg&rf=LaDigue_1024x768.jpg "褐鹈鹕，圣地亚哥，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "褐鹈鹕，圣地亚哥，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_UHD.jpg&rf=LaDigue_UHD.jpg "褐鹈鹕，圣地亚哥，加利福尼亚州，美国")
