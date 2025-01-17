@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_1024x768.jpg&rf=LaDigue_1024x768.jpg "褐鹈鹕，圣地亚哥，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "褐鹈鹕，圣地亚哥，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_UHD.jpg&rf=LaDigue_UHD.jpg "褐鹈鹕，圣地亚哥，加利福尼亚州，美国")
+
+
+---
+### 2025 1月 18：1,001座白色沙丘
+#### 白沙国家公园的日落，新墨西哥州，美国（© Image Professionals GmbH/Alamy Stock Photo）
+![1,001座白色沙丘](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_800x480.jpg&rf=LaDigue_800x480.jpg "1,001座白色沙丘")
+今日图片展示了新墨西哥州白沙国家公园最令人叹为观止的自然奇观，一片闪耀梦幻光芒的白色沙丘，这里有地球上规模最大的石膏沙丘。这片广袤的沙漠占地超过145,000英亩，沙丘高度可达60英尺，展现出其他地方难以见到的独特景观。这座公园不仅是自然奇观，更是历史瑰宝，这里发现了距今约23,000年的化石化人类脚印，被认为是北美最古老的人类遗迹之一。
+
+在白沙国家公园的生态系统中，植物发挥着重要作用，不仅稳定沙丘前沿，还为野生动物提供食物与庇护所。
+
+[下载480](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_800x480.jpg&rf=LaDigue_800x480.jpg "白沙国家公园的日落，新墨西哥州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1024x768.jpg&rf=LaDigue_1024x768.jpg "白沙国家公园的日落，新墨西哥州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白沙国家公园的日落，新墨西哥州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg&rf=LaDigue_UHD.jpg "白沙国家公园的日落，新墨西哥州，美国")
