@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1024x768.jpg&rf=LaDigue_1024x768.jpg "白沙国家公园的日落，新墨西哥州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白沙国家公园的日落，新墨西哥州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg&rf=LaDigue_UHD.jpg "白沙国家公园的日落，新墨西哥州，美国")
+
+
+---
+### 2025 1月 19：一座适合神居住的石窟
+#### 海王星石窟，撒丁岛， 意大利（© Carlo Murenu/Getty Images）
+![一座适合神居住的石窟](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_800x480.jpg&rf=LaDigue_800x480.jpg "一座适合神居住的石窟")
+沿着654级台阶俯瞰撒丁岛海面，令人惊叹的景象尽收眼底。海王星石窟是一座距海平面仅约3英尺的钟乳石洞穴。这座洞穴由当地渔民在18世纪首次发现，以罗马海神尼普顿命名。整个洞穴系统全长约4023米，游客可进入的区域仅约304.8米。洞内有迷宫般的小径，灯光照亮蜿蜒穿过钟乳石与石笋的路径，最终通向一个约119米长的咸水湖。
+
+海王星石窟以海神尼普顿命名，形成于约200万年前，18世纪由渔民发现。石窟位于撒丁岛阿尔盖罗镇约24公里外的卡波卡恰-伊索拉皮亚纳海洋保护区，隶属于波尔图孔特公园。
+
+[下载480](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_800x480.jpg&rf=LaDigue_800x480.jpg "海王星石窟，撒丁岛， 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_1024x768.jpg&rf=LaDigue_1024x768.jpg "海王星石窟，撒丁岛， 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海王星石窟，撒丁岛， 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg&rf=LaDigue_UHD.jpg "海王星石窟，撒丁岛， 意大利")
