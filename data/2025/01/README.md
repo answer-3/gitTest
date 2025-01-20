@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1024x768.jpg&rf=LaDigue_1024x768.jpg "欧亚红松鼠与毒蘑菇")
 [下载1080](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠与毒蘑菇")
 [下载UHD](https://cn.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠与毒蘑菇")
+
+
+---
+### 2025 1月 21：迷人的海湾风光
+#### 俯瞰那不勒斯湾和维苏威火山，意大利（© ezypix/Getty Images）
+![迷人的海湾风光](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_800x480.jpg&rf=LaDigue_800x480.jpg "迷人的海湾风光")
+那不勒斯湾（意大利语：Golfo di Napoli）是位于意大利西南海岸（大都市区那不勒斯，坎帕尼亚地区）的一个海湾，宽约15公里，向西通往地中海。那不勒斯湾因风景优美而闻名，是著名的旅游区，沿岸有陡峭的火山峰，包括维苏威火山等活火山以及庞贝古城、赫库兰尼姆古城遗址。海湾入口处有卡普里岛、伊斯基亚岛和普罗奇达岛等风景名胜。据说罗马皇帝卡里古拉在海湾上建造了一座船桥，他身穿亚历山大大帝的盔甲，乘坐战车横跨海湾。
+
+除了伊斯基亚岛、波佐利湾以及加埃塔湾，当地水域还是各种鲸鱼和海豚的栖息地，包括长须鲸和抹香鲸。
+
+[下载480](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_800x480.jpg&rf=LaDigue_800x480.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1024x768.jpg&rf=LaDigue_1024x768.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&rf=LaDigue_UHD.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
