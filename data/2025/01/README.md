@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1024x768.jpg&rf=LaDigue_1024x768.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg&rf=LaDigue_UHD.jpg "俯瞰那不勒斯湾和维苏威火山，意大利")
+
+
+---
+### 2025 1月 22：在失落之城发现美
+#### 代尔修道院，佩特拉，约旦（© Punnawit Suwuttananun/Getty Images）
+![在失落之城发现美](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_800x480.jpg&rf=LaDigue_800x480.jpg "在失落之城发现美")
+佩特拉及其皇冠上的明珠——代尔修道院，雕凿在玫瑰色的悬崖峭壁上，让人仿佛置身于电影《印第安纳琼斯》的探险场景中。这座古城坐落在约旦干旱沙漠地貌的中心，曾在公元前2世纪作为纳巴泰王国的首都而繁荣一时。它还是香料贸易的枢纽，连接着中国、埃及、希腊和印度等遥远地区。
+
+这座城市被遗弃了大约500年，直到1812年才被重新发现，因此被称为 “失落之城”。
+
+[下载480](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_800x480.jpg&rf=LaDigue_800x480.jpg "代尔修道院，佩特拉，约旦")
+[下载720](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_1024x768.jpg&rf=LaDigue_1024x768.jpg "代尔修道院，佩特拉，约旦")
+[下载1080](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "代尔修道院，佩特拉，约旦")
+[下载UHD](https://cn.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_UHD.jpg&rf=LaDigue_UHD.jpg "代尔修道院，佩特拉，约旦")
