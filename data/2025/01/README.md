@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_1024x768.jpg&rf=LaDigue_1024x768.jpg "冰岛的史托克间歇泉")
 [下载1080](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冰岛的史托克间歇泉")
 [下载UHD](https://cn.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_UHD.jpg&rf=LaDigue_UHD.jpg "冰岛的史托克间歇泉")
+
+
+---
+### 2025 1月 25：波尔图的黄金时刻
+#### 波尔图，葡萄牙（© Starcevic/Getty Images）
+![波尔图的黄金时刻](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_800x480.jpg&rf=LaDigue_800x480.jpg "波尔图的黄金时刻")
+今日图片带我们走进一座大胆而质朴，却充满魅力的城市。虽然波尔图以波特酒闻名，但这座葡萄牙城市还有更多值得探索的地方。漫步波尔图街头，你会注意到装饰着锡釉陶瓷砖的建筑。这种彩绘釉面瓷砖在葡萄牙和西班牙十分常见。此外，历史悠久的圣弗朗西斯科教堂和横跨蜿蜒杜罗河的标志性建筑——路易一世大桥，都令人印象深刻。
+
+波特酒是葡萄牙最著名的出口商品之一，因波尔图而得名。该都会区，尤其是维拉诺瓦德盖亚酒窖，负责这种加强型葡萄酒的包装、运输与出口。
+
+[下载480](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_800x480.jpg&rf=LaDigue_800x480.jpg "波尔图，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1024x768.jpg&rf=LaDigue_1024x768.jpg "波尔图，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波尔图，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_UHD.jpg&rf=LaDigue_UHD.jpg "波尔图，葡萄牙")
