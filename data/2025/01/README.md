@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1024x768.jpg&rf=LaDigue_1024x768.jpg "波尔图，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波尔图，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_UHD.jpg&rf=LaDigue_UHD.jpg "波尔图，葡萄牙")
+
+
+---
+### 2025 1月 26：优雅地老去
+#### 比利时的欧洲山毛榉森林（© Philippe Moes/Minden Pictures）
+![优雅地老去](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_800x480.jpg&rf=LaDigue_800x480.jpg "优雅地老去")
+山毛榉树堪称大自然的奇迹。虽然全球有多个品种，但在欧洲，欧洲山毛榉尤为引人注目。正如今日图片展示的比利时森林，欧洲山毛榉以光滑的灰色树皮、短粗的树干和宽展的枝条脱颖而出。这种树生长于温带地区，偏爱排水良好、土壤肥沃的环境，通常需30年才能成熟。欧洲山毛榉树高可达160英尺，不仅是森林的主角，其木材还广泛用于制作家具、地板和厨房工具，以坚固耐用闻名。
+
+山毛榉是雌雄同株植物，同一棵树上会同时开出雄花和雌花。这些小花为单性花，雌花成对生长，而雄花则通过风授粉，以柔荑花的形式出现。
+
+[下载480](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_800x480.jpg&rf=LaDigue_800x480.jpg "比利时的欧洲山毛榉森林")
+[下载720](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_1024x768.jpg&rf=LaDigue_1024x768.jpg "比利时的欧洲山毛榉森林")
+[下载1080](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "比利时的欧洲山毛榉森林")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_UHD.jpg&rf=LaDigue_UHD.jpg "比利时的欧洲山毛榉森林")
