@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_1024x768.jpg&rf=LaDigue_1024x768.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_UHD.jpg&rf=LaDigue_UHD.jpg "琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国")
+
+
+---
+### 2025 1月 28：祝您阖家欢乐，万事如意！
+#### 夜空中的烟花表演，长沙，湖南省，中国（© Sino Images/Getty Images）
+![祝您阖家欢乐，万事如意！](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_800x480.jpg&rf=LaDigue_800x480.jpg "祝您阖家欢乐，万事如意！")
+今天是除夕夜，中国农历"龙年"的最后一天。“年”称为“岁除”，那天晚上叫“除夕”。它与新年首尾相连，是除旧迎新的重要时间交界点。岁除之日，民间尤为重视，家家户户忙忙碌碌或清扫庭舍，除旧布新，张灯结彩，家人相聚，共同来迎接新的一年。
+
+早在先秦时期就有相对比较完整的生肖系统。
+
+[下载480](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_800x480.jpg&rf=LaDigue_800x480.jpg "夜空中的烟花表演，长沙，湖南省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_1024x768.jpg&rf=LaDigue_1024x768.jpg "夜空中的烟花表演，长沙，湖南省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夜空中的烟花表演，长沙，湖南省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_UHD.jpg&rf=LaDigue_UHD.jpg "夜空中的烟花表演，长沙，湖南省，中国")
