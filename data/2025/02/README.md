@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_1024x768.jpg&rf=LaDigue_1024x768.jpg "盛开的樱花树上的红头长尾山雀")
 [下载1080](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的樱花树上的红头长尾山雀")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的樱花树上的红头长尾山雀")
+
+
+---
+### 2025 2月 4：云端漫步
+#### 金桥，巴拿山，岘港，越南（© Hien Phung Thu/Shutterstock）
+![云端漫步](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_800x480.jpg&rf=LaDigue_800x480.jpg "云端漫步")
+两只巨大的石手托起一条闪闪发光的金色步道，仿佛是周围的群山将其献给天空。这就是金桥，位于越南中部岘港附近群山中的步行桥。自2018年开放以来，这座桥凭借独特设计和壮丽景观迅速成为全球瞩目的景点，吸引无数游客前来打卡。
+
+越南中部，尤其是岘港的美食，在国内外都享有盛誉，知名度不断提升。
+
+[下载480](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_800x480.jpg&rf=LaDigue_800x480.jpg "金桥，巴拿山，岘港，越南")
+[下载720](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1024x768.jpg&rf=LaDigue_1024x768.jpg "金桥，巴拿山，岘港，越南")
+[下载1080](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金桥，巴拿山，岘港，越南")
+[下载UHD](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg&rf=LaDigue_UHD.jpg "金桥，巴拿山，岘港，越南")
