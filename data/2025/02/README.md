@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1024x768.jpg&rf=LaDigue_1024x768.jpg "金桥，巴拿山，岘港，越南")
 [下载1080](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "金桥，巴拿山，岘港，越南")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg&rf=LaDigue_UHD.jpg "金桥，巴拿山，岘港，越南")
+
+
+---
+### 2025 2月 5：对国家遗产的思考
+#### 拱门群岛，瓦拉里基海滩，南岛，新西兰（© Francesco Vaninetti/AWL/plainpicture）
+![对国家遗产的思考](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_800x480.jpg&rf=LaDigue_800x480.jpg "对国家遗产的思考")
+1840年，500多位毛利酋长与英国王室代表共同签署了一份条约，新西兰人至今仍在怀唐伊日纪念这一历史时刻。这一天，签署的《怀唐伊条约》确立了两种文化共存的原则。在怀唐伊条约签署地，庆典活动包括毛利传统表演、演讲和精彩的独木舟比赛。从奥克兰和惠灵顿的节日与音乐会，到低调的社区聚会，这一天的核心精神是联系与文化。
+
+自2014年以来，新西兰作家协会在怀唐伊日颁发文学荣誉奖，以纪念这一天的特殊意义。
+
+[下载480](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_800x480.jpg&rf=LaDigue_800x480.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+[下载720](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_1024x768.jpg&rf=LaDigue_1024x768.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_UHD.jpg&rf=LaDigue_UHD.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
