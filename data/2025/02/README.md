@@ -57,14 +57,28 @@
 
 
 ---
-### 2025 2月 5：对国家遗产的思考
+### 2025 2月 5：咩，咩，黑脸羊？
+#### 苏格兰黑脸羊，阿伯丁郡，苏格兰（© Mike Powles/Getty Images）
+![咩，咩，黑脸羊？](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_800x480.jpg&rf=LaDigue_800x480.jpg "咩，咩，黑脸羊？")
+成为“黑羊”并不一定是坏事，比如这只生活在苏格兰阿伯丁郡的苏格兰黑脸羊。凭借引人注目的黑色特征和在严寒恶劣环境中的适应能力，这种羊颠覆了‘黑羊’一词的负面印象。它不仅没有被排斥，反而是苏格兰农村生活的支柱，也是丘陵和沼泽地的生存高手。有趣的是，黑脸羊并非起源于苏格兰，而是来自苏格兰南部边境地区。这种羊的历史令人着迷，大体型的珀斯羊和中等体型的拉纳克羊等变种分布在英国各地。尽管黑脸羊是当地最常见的品种，但如今已传播到包括美国在内的世界各地。它的粗毛非常适合制作地毯和花呢等耐用面料，显然不适合制作普通毛衣！
+
+黑脸羊最显著的外貌特征是黑色的脸、耳朵和四肢，以及蓬松的雪白毛皮。
+
+[下载480](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_800x480.jpg&rf=LaDigue_800x480.jpg "苏格兰黑脸羊，阿伯丁郡，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_1024x768.jpg&rf=LaDigue_1024x768.jpg "苏格兰黑脸羊，阿伯丁郡，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏格兰黑脸羊，阿伯丁郡，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN7122848634_UHD.jpg&rf=LaDigue_UHD.jpg "苏格兰黑脸羊，阿伯丁郡，苏格兰")
+
+
+---
+### 2025 2月 6：对国家遗产的思考
 #### 拱门群岛，瓦拉里基海滩，南岛，新西兰（© Francesco Vaninetti/AWL/plainpicture）
-![对国家遗产的思考](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_800x480.jpg&rf=LaDigue_800x480.jpg "对国家遗产的思考")
+![对国家遗产的思考](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_800x480.jpg&rf=LaDigue_800x480.jpg "对国家遗产的思考")
 1840年，500多位毛利酋长与英国王室代表共同签署了一份条约，新西兰人至今仍在怀唐伊日纪念这一历史时刻。这一天，签署的《怀唐伊条约》确立了两种文化共存的原则。在怀唐伊条约签署地，庆典活动包括毛利传统表演、演讲和精彩的独木舟比赛。从奥克兰和惠灵顿的节日与音乐会，到低调的社区聚会，这一天的核心精神是联系与文化。
 
 自2014年以来，新西兰作家协会在怀唐伊日颁发文学荣誉奖，以纪念这一天的特殊意义。
 
-[下载480](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_800x480.jpg&rf=LaDigue_800x480.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
-[下载720](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_1024x768.jpg&rf=LaDigue_1024x768.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
-[下载1080](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
-[下载UHD](https://cn.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_UHD.jpg&rf=LaDigue_UHD.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+[下载480](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_800x480.jpg&rf=LaDigue_800x480.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+[下载720](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_1024x768.jpg&rf=LaDigue_1024x768.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_UHD.jpg&rf=LaDigue_UHD.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
