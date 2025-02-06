@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_1024x768.jpg&rf=LaDigue_1024x768.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_UHD.jpg&rf=LaDigue_UHD.jpg "拱门群岛，瓦拉里基海滩，南岛，新西兰")
+
+
+---
+### 2025 2月 7：沉浸在蓝调时分
+#### 特隆赫姆的蓝色时刻，挪威（© Jeanny Mueller/Getty Images）
+![沉浸在蓝调时分](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_800x480.jpg&rf=LaDigue_800x480.jpg "沉浸在蓝调时分")
+在挪威，冬季不仅是一个季节，更是一种独特的体验。在挪威北部，黑夜长达20小时，有时甚至整周太阳都隐匿在地平线之下。这听起来或许有些阴郁，但这种特殊的时节也展现出独特的魅力。通常在下午1点至2点之间，柔和的光线从白雪覆盖的地面和深蓝色海面反射而来。这形成了一种令人惊叹的如玻璃般湛蓝的光辉，笼罩着整片大地。这种蓝调时分每天都会来得稍晚一些，温柔地提醒人们太阳正缓缓准备重新升起。
+
+蓝调时分指的是日出前或日落后，太阳位于地平线下-4至-6度之间的时间段，此时天空呈现出一种静谧的蓝色调。
+
+[下载480](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_800x480.jpg&rf=LaDigue_800x480.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_1024x768.jpg&rf=LaDigue_1024x768.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_UHD.jpg&rf=LaDigue_UHD.jpg "特隆赫姆的蓝色时刻，挪威")
