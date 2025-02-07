@@ -87,12 +87,26 @@
 ---
 ### 2025 2月 7：沉浸在蓝调时分
 #### 特隆赫姆的蓝色时刻，挪威（© Jeanny Mueller/Getty Images）
-![沉浸在蓝调时分](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_800x480.jpg&rf=LaDigue_800x480.jpg "沉浸在蓝调时分")
+![沉浸在蓝调时分](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_800x480.jpg&rf=LaDigue_800x480.jpg "沉浸在蓝调时分")
 在挪威，冬季不仅是一个季节，更是一种独特的体验。在挪威北部，黑夜长达20小时，有时甚至整周太阳都隐匿在地平线之下。这听起来或许有些阴郁，但这种特殊的时节也展现出独特的魅力。通常在下午1点至2点之间，柔和的光线从白雪覆盖的地面和深蓝色海面反射而来。这形成了一种令人惊叹的如玻璃般湛蓝的光辉，笼罩着整片大地。这种蓝调时分每天都会来得稍晚一些，温柔地提醒人们太阳正缓缓准备重新升起。
 
 蓝调时分指的是日出前或日落后，太阳位于地平线下-4至-6度之间的时间段，此时天空呈现出一种静谧的蓝色调。
 
-[下载480](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_800x480.jpg&rf=LaDigue_800x480.jpg "特隆赫姆的蓝色时刻，挪威")
-[下载720](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_1024x768.jpg&rf=LaDigue_1024x768.jpg "特隆赫姆的蓝色时刻，挪威")
-[下载1080](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特隆赫姆的蓝色时刻，挪威")
-[下载UHD](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_UHD.jpg&rf=LaDigue_UHD.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载480](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_800x480.jpg&rf=LaDigue_800x480.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_1024x768.jpg&rf=LaDigue_1024x768.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特隆赫姆的蓝色时刻，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueNorway_ZH-CN4865816873_UHD.jpg&rf=LaDigue_UHD.jpg "特隆赫姆的蓝色时刻，挪威")
+
+
+---
+### 2025 2月 8：凝固的时光
+#### 梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚（© photoaliona/Getty Images）
+![凝固的时光](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_800x480.jpg&rf=LaDigue_800x480.jpg "凝固的时光")
+冬季为梅斯蒂亚的中世纪塔楼披上冰雪，宛如一座座坚固的堡垒。梅斯蒂亚坐落于高加索山脉，海拔4921英尺，是格鲁吉亚西北部一座迷人的高原小镇。小镇是斯万人的故乡，他们是格鲁吉亚文化和语言的一个独特分支。尽管规模不大，梅斯蒂亚数百年来一直是格鲁吉亚文化的枢纽，小镇遍布斯万族的防御塔，如今日图片所示。这些防御塔大多建于9至12世纪，这一时期被誉为格鲁吉亚的黄金时代。据推测，这些塔楼的历史可能追溯至更久远的史前时期。塔楼不仅是防御工事，也是家庭住宅的重要组成部分，反映了该地区坚韧不拔、自给自足的历史。因此，梅斯蒂亚不仅是一座小镇，更是一个活的博物馆，其历史从塔楼中升起，回荡在高山之间。
+
+尽管梅斯蒂亚面积不大，但数个世纪以来，这座小镇一直是格鲁吉亚文化的重要中心。小镇内有许多中世纪古迹，如教堂和堡垒，这些遗迹已被联合国教科文组织列入世界遗产名录。
+
+[下载480](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_800x480.jpg&rf=LaDigue_800x480.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
+[下载720](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1024x768.jpg&rf=LaDigue_1024x768.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_UHD.jpg&rf=LaDigue_UHD.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
