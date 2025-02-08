@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1024x768.jpg&rf=LaDigue_1024x768.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnowySvaneti_ZH-CN7626153023_UHD.jpg&rf=LaDigue_UHD.jpg "梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚")
+
+
+---
+### 2025 2月 9：值得深思的高地
+#### 阿尔斯特罗姆角，鲍威尔湖，犹他州，美国（© T.M. Schultze/TANDEM Stills + Motion）
+![值得深思的高地](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_800x480.jpg&rf=LaDigue_800x480.jpg "值得深思的高地")
+如果你向往壮丽的日落和令人惊叹的美景，不妨来到阿尔斯特罗姆角。阿尔斯特罗姆角位于犹他州南部凯恩县的格伦峡谷国家休闲区，海拔达4685英尺。阿尔斯特罗姆角主要由恩特拉达砂岩构成，与附近的罗马纳梅萨主峰及东侧的冈赛特山共享相同的地质起源。
+
+阿尔斯特罗姆角是绝佳的摄影和露营地点。还曾在 1968 年的电影《人猿星球》中短暂亮相。
+
+[下载480](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
