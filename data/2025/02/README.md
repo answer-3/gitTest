@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔斯特罗姆角，鲍威尔湖，犹他州，美国")
+
+
+---
+### 2025 2月 10：在伞下
+#### 雨伞艺术装置，博罗市场，伦敦，英国（© Malcolm P Chapman/Getty Images）
+![在伞下](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_800x480.jpg&rf=LaDigue_800x480.jpg "在伞下")
+今天是国际伞日，这一充满趣味的节日旨在纪念人类历史上最简单却重要的发明之一：雨伞或阳伞。早在4000多年前，伞已出现在古埃及、亚述和中国，最初用于遮挡阳光。直到17世纪，我们今天所熟知的雨伞才在欧洲流行，最初作为专为女性设计的奢侈品。几个世纪以来，雨伞不仅成为日常生活的必需品，也成为流行文化的象征。例如，玛丽·波平斯的标志性飞行雨伞，以及蕾哈娜的热门歌曲《雨伞》。
+
+伞如今已成为全球畅销的消费品。据统计，截至2008年，全球大部分的伞产自中国，主要集中于广东、福建和浙江等省份。
+
+[下载480](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_800x480.jpg&rf=LaDigue_800x480.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
+[下载720](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1024x768.jpg&rf=LaDigue_1024x768.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_UHD.jpg&rf=LaDigue_UHD.jpg "雨伞艺术装置，博罗市场，伦敦，英国")
