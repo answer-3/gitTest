@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1024x768.jpg&rf=LaDigue_1024x768.jpg "云冈石窟，大同，山西省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "云冈石窟，大同，山西省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg&rf=LaDigue_UHD.jpg "云冈石窟，大同，山西省，中国")
+
+
+---
+### 2025 2月 12：喜气洋洋的元宵节
+#### 上海豫园的灯会，元宵节，上海市，中国（© atiger/Shutterstock）
+![喜气洋洋的元宵节](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_800x480.jpg&rf=LaDigue_800x480.jpg "喜气洋洋的元宵节")
+元宵节（Lantern Festival），是新年第一个月圆之夜，又可以称为“闹元宵”，是中国春节年俗活动的“压轴戏”。人们在这一天可以出门赏月、燃灯放焰、喜猜灯谜、共吃元宵、汤圆，合家团聚、同庆佳节，其乐融融。观赏花灯是中国人在这一天一项重大活动。上海豫园的灯会尤其精彩。
+
+今年是“豫园灯会30周年，邀请了许多国家级非遗“灯彩”项目的代表性传承人来参与此次灯会。
+
+[下载480](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_800x480.jpg&rf=LaDigue_800x480.jpg "上海豫园的灯会，元宵节，上海市，中国")
+[下载720](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_1024x768.jpg&rf=LaDigue_1024x768.jpg "上海豫园的灯会，元宵节，上海市，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上海豫园的灯会，元宵节，上海市，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg&rf=LaDigue_UHD.jpg "上海豫园的灯会，元宵节，上海市，中国")
