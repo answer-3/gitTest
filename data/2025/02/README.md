@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_1024x768.jpg&rf=LaDigue_1024x768.jpg "上海豫园的灯会，元宵节，上海市，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "上海豫园的灯会，元宵节，上海市，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg&rf=LaDigue_UHD.jpg "上海豫园的灯会，元宵节，上海市，中国")
+
+
+---
+### 2025 2月 13：大地之盐
+#### 泰瑞尔湖，维多利亚州，澳大利亚（© Monica Bertolazzi/Getty Images）
+![大地之盐](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_800x480.jpg&rf=LaDigue_800x480.jpg "大地之盐")
+澳大利亚南部的泰瑞尔湖，是天空与大地交汇之地，形成了令人炫目的奇景。泰瑞尔湖是维多利亚州最大的盐湖，形成于约12万年前。随着气候变化，湖泊水位逐渐下降，如今大部分时间干涸，仅在冬季覆盖约2英寸的水层。“泰瑞尔”这个名字源自当地沃加亚语中的“天空”，致敬了博罗恩原住民对天文学的浓厚兴趣。泰瑞尔湖面积超过70平方英里，是野生动物的天堂，栖息着马利地区的爬行动物、袋鼠和鸸鹋。
+
+旅游业是澳大利亚维多利亚州的重要产业之一。首府墨尔本是澳大利亚第二大人口城市，截至2017年12月的一年，该州共接待了270万国际过夜游客和930万国内过夜游客。
+
+[下载480](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_800x480.jpg&rf=LaDigue_800x480.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_1024x768.jpg&rf=LaDigue_1024x768.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_UHD.jpg&rf=LaDigue_UHD.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
