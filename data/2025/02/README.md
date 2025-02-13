@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_1024x768.jpg&rf=LaDigue_1024x768.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_UHD.jpg&rf=LaDigue_UHD.jpg "泰瑞尔湖，维多利亚州，澳大利亚")
+
+
+---
+### 2025 2月 14：瞧这对恩爱的情侣
+#### 两只麦哲伦企鹅，福克兰群岛（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
+![瞧这对恩爱的情侣](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_800x480.jpg&rf=LaDigue_800x480.jpg "瞧这对恩爱的情侣")
+今天是情人节，空气中弥漫着浓浓爱意。全球范围内，数百万束鲜花将被赠送，浪漫餐厅也会因情人节约会座无虚席。情人节起源于圣瓦伦丁的故事。据传，这位罗马基督徒曾为那些被禁止结婚的基督徒士兵主持婚礼。如同今天庆祝节日的人类情侣，自然界中也有许多浪漫故事。
+
+麦哲伦企鹅生活在南美洲大西洋沿岸，与加岛环企鹅相比，它们的食物供应更加稳定，不易面临严重的食物短缺。
+
+[下载480](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_800x480.jpg&rf=LaDigue_800x480.jpg "两只麦哲伦企鹅，福克兰群岛")
+[下载720](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_1024x768.jpg&rf=LaDigue_1024x768.jpg "两只麦哲伦企鹅，福克兰群岛")
+[下载1080](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只麦哲伦企鹅，福克兰群岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg&rf=LaDigue_UHD.jpg "两只麦哲伦企鹅，福克兰群岛")
