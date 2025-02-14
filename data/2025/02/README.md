@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_1024x768.jpg&rf=LaDigue_1024x768.jpg "两只麦哲伦企鹅，福克兰群岛")
 [下载1080](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只麦哲伦企鹅，福克兰群岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg&rf=LaDigue_UHD.jpg "两只麦哲伦企鹅，福克兰群岛")
+
+
+---
+### 2025 2月 15：冰雪奇景
+#### 三十槌冰柱，秩父市，日本（© watayu0821/shutterstock）
+![冰雪奇景](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_800x480.jpg&rf=LaDigue_800x480.jpg "冰雪奇景")
+看，这就是日本秩父市的三十槌冰柱奇观！这道令人叹为观止的天然冰墙宽约98英尺，高约33英尺，由泉水沿岩壁流下结冰而成。这一景观每年仅在1月中旬至2月中旬开放，夜幕降临时还会点亮彩灯，仿佛置身于冬日童话世界。
+
+在适宜条件下，类似的冰柱也可能由海冰下沉的盐水形成。
+
+[下载480](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_800x480.jpg&rf=LaDigue_800x480.jpg "三十槌冰柱，秩父市，日本")
+[下载720](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_1024x768.jpg&rf=LaDigue_1024x768.jpg "三十槌冰柱，秩父市，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三十槌冰柱，秩父市，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_UHD.jpg&rf=LaDigue_UHD.jpg "三十槌冰柱，秩父市，日本")
