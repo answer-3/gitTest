@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_1024x768.jpg&rf=LaDigue_1024x768.jpg "三十槌冰柱，秩父市，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三十槌冰柱，秩父市，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_UHD.jpg&rf=LaDigue_UHD.jpg "三十槌冰柱，秩父市，日本")
+
+
+---
+### 2025 2月 16：守护海洋巨兽
+#### 座头鲸妈妈和宝宝，汤加（© Chase Dekker/Minden Pictures）
+![守护海洋巨兽](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_800x480.jpg&rf=LaDigue_800x480.jpg "守护海洋巨兽")
+每年二月的第三个星期日是世界鲸鱼日，旨在宣传鲸鱼之美及其所面临的挑战。今年的世界鲸鱼日是2月16日，让我们一起致敬这些壮丽的生物，比如今日图片中的座头鲸，它们以迷人的歌声和震撼的跃出水面而闻名。世界鲸鱼日创立于1980年，由太平洋鲸鱼基金会创始人格雷格·考夫曼在夏威夷毛伊岛发起，旨在保护濒临灭绝的座头鲸。如今，这一节日呼吁全球采取行动，应对鲸鱼面临的诸多威胁，例如海洋污染、气候变化及栖息地丧失。
+
+你知道座头鲸会使用“气泡网“捕食吗？它们制造螺旋状气泡将鱼群困住，然后一口吞下，尽享美味！
+
+[下载480](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_800x480.jpg&rf=LaDigue_800x480.jpg "座头鲸妈妈和宝宝，汤加")
+[下载720](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_1024x768.jpg&rf=LaDigue_1024x768.jpg "座头鲸妈妈和宝宝，汤加")
+[下载1080](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸妈妈和宝宝，汤加")
+[下载UHD](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸妈妈和宝宝，汤加")
