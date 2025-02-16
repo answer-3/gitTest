@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_1024x768.jpg&rf=LaDigue_1024x768.jpg "座头鲸妈妈和宝宝，汤加")
 [下载1080](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "座头鲸妈妈和宝宝，汤加")
 [下载UHD](https://cn.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_UHD.jpg&rf=LaDigue_UHD.jpg "座头鲸妈妈和宝宝，汤加")
+
+
+---
+### 2025 2月 17：冰雪边界
+#### Coll d'Ares，加泰罗尼亚比利牛斯​​山脉（© CRISTIAN IONUT ZAHARIA/Shutterstock）
+![冰雪边界](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_800x480.jpg&rf=LaDigue_800x480.jpg "冰雪边界")
+阿雷斯山口位于海拔1,512米，是穿越雄伟比利牛斯山脉、连接西班牙和法国的山间通道。山口位于加泰罗尼亚里波列斯地区的莫洛与法国奥克西塔尼亚的普拉茨德莫洛拉普雷斯特之间。冬季，这里白雪皑皑，景色令人叹为观止。
+
+在希腊神话中，比利牛斯山以公主比利牛斯的名字命名。
+
+[下载480](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_800x480.jpg&rf=LaDigue_800x480.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
+[下载720](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_1024x768.jpg&rf=LaDigue_1024x768.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
+[下载1080](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
+[下载UHD](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_UHD.jpg&rf=LaDigue_UHD.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
