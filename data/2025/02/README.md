@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_1024x768.jpg&rf=LaDigue_1024x768.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
 [下载1080](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
 [下载UHD](https://cn.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_UHD.jpg&rf=LaDigue_UHD.jpg "Coll d'Ares，加泰罗尼亚比利牛斯​​山脉")
+
+
+---
+### 2025 2月 18：无尽的蓝色
+#### 大蓝洞，伯利兹（© JamiesOnAMission/Shutterstock）
+![无尽的蓝色](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_800x480.jpg&rf=LaDigue_800x480.jpg "无尽的蓝色")
+大蓝洞位于伯利兹海岸外的灯塔礁中心附近，是大自然最令人叹为观止的杰作之一。这个巨大的海洋天坑直径1043英尺，深407英尺，形成于上一次冰河时期。当时，一座多孔疏松的石灰岩穹顶因重力与地震等作用坍塌，巧合地形成一个圆形竖井。随着冰雪消融、海平面升高，海水倒灌入竖井，最终形成这一引人注目的奇特景观。
+
+大蓝洞是世界上同类自然奇观中规模最大的之一，隶属于联合国教科文组织列为世界遗产的大堡礁保护系统
+
+[下载480](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_800x480.jpg&rf=LaDigue_800x480.jpg "大蓝洞，伯利兹")
+[下载720](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_1024x768.jpg&rf=LaDigue_1024x768.jpg "大蓝洞，伯利兹")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大蓝洞，伯利兹")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_UHD.jpg&rf=LaDigue_UHD.jpg "大蓝洞，伯利兹")
