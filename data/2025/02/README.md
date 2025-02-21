@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_1024x768.jpg&rf=LaDigue_1024x768.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_UHD.jpg&rf=LaDigue_UHD.jpg "希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度")
+
+
+---
+### 2025 2月 22：向辉煌迈进
+#### 圣路易斯拱门, 密苏里州, 美国（© f11photo/Getty Images）
+![向辉煌迈进](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_800x480.jpg&rf=LaDigue_800x480.jpg "向辉煌迈进")
+今天，我们庆祝圣路易斯市密苏里州拱门国家公园成立周年纪念日，该公园于2018 年2月22日正式设立，坐落在风景如画的密西西比河沿岸，旨在纪念托马斯·杰斐逊提出的“大陆国家”构想。公园的核心是圣路易斯拱门，这座令人惊叹的630英尺高的建筑已成为圣路易斯的终极象征。拱门采用不锈钢建造，是世界上最高的拱门，也是密苏里州最高的可进入建筑。芬兰裔美国建筑师埃罗·沙里宁于1947年构思出这一设计，并在1965年10月28日正式落成，实现了他的愿景。这座拱门的未来主义设计长期以来被视为汽车时代的象征，代表着现代都市景观与技术进步带来的未来希望。
+
+拱门基座的中心建筑是旧法院，它曾是密苏里州最高的建筑，其圆顶与美国国会大厦的圆顶相似，这一圆顶是在美国内战期间与国会大厦的圆顶同时建造的。
+
+[下载480](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_800x480.jpg&rf=LaDigue_800x480.jpg "圣路易斯拱门, 密苏里州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣路易斯拱门, 密苏里州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣路易斯拱门, 密苏里州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg&rf=LaDigue_UHD.jpg "圣路易斯拱门, 密苏里州, 美国")
