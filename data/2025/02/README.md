@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣路易斯拱门, 密苏里州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣路易斯拱门, 密苏里州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg&rf=LaDigue_UHD.jpg "圣路易斯拱门, 密苏里州, 美国")
+
+
+---
+### 2025 2月 23：清晨的美好精致
+#### 日出时分的富士山, 河口湖, 日本（© Twenty47studio/Getty Images）
+![清晨的美好精致](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_800x480.jpg&rf=LaDigue_800x480.jpg "清晨的美好精致")
+在东京西南约 60 英里处，矗立着日本的文化象征之一：富士山。这座日本最高峰海拔近12,000英尺，其近乎完美对称的火山锥，每年约有五个月被积雪覆盖，形成壮丽景观。几个世纪以来，富士山一直被视为神圣之山。在神道信仰中，富士山被奉为本宫浅间大社的圣山，并在其视野范围内建有供奉它的神社。
+
+富士山是世界上最大的活火山之一，也是富士火山带的一部分。富士火山带是一条火山链，主要从马里亚纳群岛经伊豆群岛和伊豆半岛到本州北部。
+
+[下载480](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分的富士山, 河口湖, 日本")
+[下载720](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时分的富士山, 河口湖, 日本")
+[下载1080](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分的富士山, 河口湖, 日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分的富士山, 河口湖, 日本")
