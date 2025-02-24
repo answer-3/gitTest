@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_UHD.jpg&rf=LaDigue_UHD.jpg "斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚")
+
+
+---
+### 2025 2月 25：风蚀石们的问候
+#### 砂岩石柱，布莱斯峡谷国家公园，犹他州，美国（© Stephen Matera/TANDEM Stills + Motion）
+![风蚀石们的问候](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_800x480.jpg&rf=LaDigue_800x480.jpg "风蚀石们的问候")
+在美国犹他州，布莱斯峡谷国家公园以其壮观的砂岩迷宫和独特的岩柱景观闻名于世。这里的历史可追溯至少10,000年前，曾是阿纳齐族人、普韦布洛人和派尤特人的家园。公园里的岩柱是由侵蚀作用形成的高耸岩石尖塔，在派尤特部落的创世神话中占据重要地位。根据传说，这些岩柱曾是“传说中的人”， 因狡猾的郊狼施下的诅咒而化为石头。
+
+布莱斯峡谷国家公园的夜空亮度为7.4级，是北美最黑暗的夜空之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_800x480.jpg&rf=LaDigue_800x480.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1024x768.jpg&rf=LaDigue_1024x768.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_UHD.jpg&rf=LaDigue_UHD.jpg "砂岩石柱，布莱斯峡谷国家公园，犹他州，美国")
