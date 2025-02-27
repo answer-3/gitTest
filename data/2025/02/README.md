@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_1024x768.jpg&rf=LaDigue_1024x768.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊幼崽，丘吉尔，马尼托巴省，加拿大")
+
+
+---
+### 2025 2月 28：在虎穴小憩
+#### 虎穴寺，不丹（© Baron Reznik/Getty Images）
+![在虎穴小憩](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_800x480.jpg&rf=LaDigue_800x480.jpg "在虎穴小憩")
+今日图片带我们来到不丹海拔10000英尺的虎穴寺，这座佛教寺院和圣地也被称为帕罗虎穴寺，它建于1692年，围绕塔克桑森给桑杜普洞穴而建。据传，这里是莲花生大师修行和传授金刚乘佛教给弟子的地方，他是将该教派引入不丹的重要人物。帕罗虎穴寺由四座主殿组成，主殿之间通过凿刻在悬崖上的阶梯相连，并有几座摇摇欲坠的吊桥横跨其中。
+
+1998 年4月19日，虎穴寺的主建筑发生火灾，导致珍贵的壁画、文物和雕像被焚毁。据推测，火灾可能是由电路短路或酥油灯火焰接触悬挂的壁毯所引起的。
+
+[下载480](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_800x480.jpg&rf=LaDigue_800x480.jpg "虎穴寺，不丹")
+[下载720](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_1024x768.jpg&rf=LaDigue_1024x768.jpg "虎穴寺，不丹")
+[下载1080](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "虎穴寺，不丹")
+[下载UHD](https://cn.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_UHD.jpg&rf=LaDigue_UHD.jpg "虎穴寺，不丹")
