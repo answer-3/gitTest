@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_1024x768.jpg&rf=LaDigue_1024x768.jpg "桉树，梅加龙谷，蓝山山脉国家公园，新南威尔士州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桉树，梅加龙谷，蓝山山脉国家公园，新南威尔士州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_UHD.jpg&rf=LaDigue_UHD.jpg "桉树，梅加龙谷，蓝山山脉国家公园，新南威尔士州，澳大利亚")
+
+
+---
+### 2025 3月 3：狂热野生
+#### 南黄弯嘴犀鸟，克鲁格国家公园 ，南非（© Richard Du Toit/Minden Pictures）
+![狂热野生](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_800x480.jpg&rf=LaDigue_800x480.jpg "狂热野生")
+还有什么比世界野生动植物日更适合关注大自然的时刻呢？这一天提醒我们保护野生动植物是全球共同的责任。今年的主题是“野生动植物投融资：投资于人类与地球”。相关活动侧重于思想交流、提出解决方案，并探讨创新融资如何阻止生物多样性丧失，为更可持续的未来提供可能性。各地的学校、保护组织和野生动物公园会举办如自然徒步、研讨会、艺术比赛、野生动物摄影比赛以及保护主题讲座等一系列活动，以提高人们的认识。在众多野生物种中，南黄弯嘴犀鸟是一个值得关注的例子。正如今日图片所示，这种鸟遍布整个南部非洲，在南非的克鲁格国家公园尤为常见。它们的标志性特征是鲜艳的黄色弯嘴，经常被看到在地面上跳跃觅食。其食物包括昆虫、种子、水果、浆果、坚果和小型爬行动物，在生态系统中扮演捕食者和种子传播者的双重角色。南黄弯嘴犀鸟是群居动物通常成对或组成小群体一起觅食。它们的叫声多样，包括哨声、咕噜声和咯咯声，响彻非洲大草原。
+
+南黄弯嘴犀鸟在清晨、白天和傍晚都很活跃。到了夜晚，它们会栖息在高高的树上，以免成为猎物。它们可以单独行动，也可以成双成对或组成小群体。通常，它们是独居性的鸟类，除非是繁殖季节、筑巢期或旱季的局部迁徙时期。
+
+[下载480](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_800x480.jpg&rf=LaDigue_800x480.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
+[下载720](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_1024x768.jpg&rf=LaDigue_1024x768.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
+[下载1080](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_UHD.jpg&rf=LaDigue_UHD.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
