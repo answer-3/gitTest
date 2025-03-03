@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_1024x768.jpg&rf=LaDigue_1024x768.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
 [下载1080](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
 [下载UHD](https://cn.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_UHD.jpg&rf=LaDigue_UHD.jpg "南黄弯嘴犀鸟，克鲁格国家公园 ，南非")
+
+
+---
+### 2025 3月 4：马蒂·格拉斯狂欢节
+#### 杰克逊广场，新奥尔良，路易斯安那州，美国（© SeanPavonePhoto/Getty Images）
+![马蒂·格拉斯狂欢节](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_800x480.jpg&rf=LaDigue_800x480.jpg "马蒂·格拉斯狂欢节")
+新奥尔良与狂欢节密不可分，这一传统自1699年起就在这里庆祝。如今，色彩斑斓的游行队伍、戴着面具的狂欢者，以及标志性的社团，已成为这座城市庆典的象征。今日图片中的杰克逊广场位于法国区，见证了这些热闹非凡的传统。该广场始建于19世纪初，至今仍是游客感受狂欢节氛围的核心地点。1872 年，雷克斯狂欢组织确定了狂欢节的官方颜色：紫色代表正义，绿色代表信仰，金色代表权力。无论是品尝国王蛋糕，还是欣赏华丽的花车巡游，马蒂·格拉斯狂欢节都能带来一场难忘的文化盛宴。
+
+马蒂·格拉斯狂欢节已逐渐演变成展示多元民族风情的大舞台和各族人民共同参与、分享快乐的好机会。
+
+[下载480](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_800x480.jpg&rf=LaDigue_800x480.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_1024x768.jpg&rf=LaDigue_1024x768.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_UHD.jpg&rf=LaDigue_UHD.jpg "杰克逊广场，新奥尔良，路易斯安那州，美国")
