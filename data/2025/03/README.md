@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_1024x768.jpg&rf=LaDigue_1024x768.jpg "中国的梅花")
 [下载1080](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国的梅花")
 [下载UHD](https://cn.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_UHD.jpg&rf=LaDigue_UHD.jpg "中国的梅花")
+
+
+---
+### 2025 3月 8：原始纯净的自然天堂
+#### 石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国（© 3quarks/Getty Images）
+![原始纯净的自然天堂](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_800x480.jpg&rf=LaDigue_800x480.jpg "原始纯净的自然天堂")
+作为联合国教科文组织世界遗产的一部分，石勒苏益格-荷尔斯泰因瓦登海国家公园不仅是一片珍贵的生态系统，同时也是德国北海海岸上的真正自然天堂。公园占地面积达 4410 平方公里，是德国最大的国家公园。在这里，游客可以近距离感受潮汐的奇妙变化，探索这片独特的生态景观。这里栖息着大量鸟类、鱼类和海洋哺乳动物，展现出令人惊叹的生物多样性。
+
+石勒苏益格-荷尔斯泰因瓦登海国家公园与下萨克森瓦登海国家公园、汉堡瓦登海国家公园以及不属于自然保护区的易北河口部分，共同构成了德国瓦登海的一部分。
+
+[下载480](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_800x480.jpg&rf=LaDigue_800x480.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
+[下载720](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_1024x768.jpg&rf=LaDigue_1024x768.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_UHD.jpg&rf=LaDigue_UHD.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
