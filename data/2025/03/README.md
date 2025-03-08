@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_1024x768.jpg&rf=LaDigue_1024x768.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_UHD.jpg&rf=LaDigue_UHD.jpg "石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国")
+
+
+---
+### 2025 3月 9：时间的步伐
+#### 圣马可钟楼，威尼斯，意大利（© scaliger/Getty Images）
+![时间的步伐](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_800x480.jpg&rf=LaDigue_800x480.jpg "时间的步伐")
+又到了一年中的这个时刻，时钟拨快一小时，虽然少睡了一小时，但换来了更长的傍晚时光。今年的夏令时从今天凌晨2点正式开始，亚利桑那州和夏威夷州除外，这再次提醒我们，时间从不会等待任何人。夏令时的理念很简单：最大化利用自然光，减少能源消耗。这一概念最早在 18 世纪由本杰明·富兰克林提出，尽管他当时 “节省蜡烛”的建议更像是一种讽刺，而非严肃提议。时间快进到 20 世纪初，许多国家在战争期间采用夏令时以节省燃料。美国于 1966 年颁布了《统一时间法案》，正式将夏时令标准化。如今，全球约70个国家实行夏令时，通常从3月持续到11月，让人们享受长达八个月的漫长夜晚。
+
+2014年6月10日，俄罗斯通过相关法案，决定取消自2011年以来实施的“永久夏令时”，改回冬令时，并不再实行冬夏时制的交替调整。
+
+[下载480](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_800x480.jpg&rf=LaDigue_800x480.jpg "圣马可钟楼，威尼斯，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣马可钟楼，威尼斯，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣马可钟楼，威尼斯，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ItalyClock_ZH-CN0846995743_UHD.jpg&rf=LaDigue_UHD.jpg "圣马可钟楼，威尼斯，意大利")
