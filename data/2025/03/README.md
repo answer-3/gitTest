@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_1024x768.jpg&rf=LaDigue_1024x768.jpg "在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达")
 [下载1080](https://cn.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达")
 [下载UHD](https://cn.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_UHD.jpg&rf=LaDigue_UHD.jpg "在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达")
+
+
+---
+### 2025 3月 11：大海的非凡造化
+#### 努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚（© joakimbkk/Getty Images）
+![大海的非凡造化](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_800x480.jpg&rf=LaDigue_800x480.jpg "大海的非凡造化")
+巴厘岛的海滩已经足够令人惊艳，但努沙佩尼达岛的风景却更别具一格。这座远离主流旅游线路的岛屿隶属于巴厘省，以狂野自然之美闻名，壮观的悬崖、湛蓝的海水和未受污染的海岸线，让游客暂时远离巴厘岛的繁华，沉浸在大自然的宁静之中。“努沙佩尼达”在当地语言中意为“祭司之岛”，历史上这里曾是精神修行之地，至今仍保留着传统寺庙和宗教仪式。
+
+努沙佩尼达岛的居民使用一种独特的巴厘语方言，称为努沙佩尼达巴厘语。这种语言与巴厘岛本岛的巴厘语不同，据说更接近巴厘阿加人的原住民语言，因此岛上居民与本岛居民无法直接交流。
+
+[下载480](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_800x480.jpg&rf=LaDigue_800x480.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_1024x768.jpg&rf=LaDigue_1024x768.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_UHD.jpg&rf=LaDigue_UHD.jpg "努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚")
