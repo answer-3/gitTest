@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_1024x768.jpg&rf=LaDigue_1024x768.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg&rf=LaDigue_UHD.jpg "卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国")
+
+
+---
+### 2025 3月 13：洒满色彩的欢乐
+#### 洒红节庆祝活动，斋浦尔，印度（© powerofforever/Getty Images）
+![洒满色彩的欢乐](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_800x480.jpg&rf=LaDigue_800x480.jpg "洒满色彩的欢乐")
+在洒红节期间漫步印度街头，就像走进一个色彩斑斓的万花筒：湛蓝、翠绿、鲜红、明黄、粉色和橙色的颜料在空中飞舞，营造出一场梦幻般的视觉盛宴。这一节日通常在印度教历法的帕尔古那月满月之日庆祝，大约在2月底或3月。这是一个重要的传统，象征着春天的到来和善战胜恶。除了在印度，洒红节也在尼泊尔、孟加拉国、巴基斯坦等地的印度教社区广泛庆祝，同时，在美国等全球各地的印度侨民社区，人们也热情参与这场色彩盛宴。
+
+近年来，多个非政府组织推动安全使用颜色的宣传活动。一些组织致力于生产和推广更安全的天然色彩，这些颜料提取自蔬菜、花卉等天然来源，以减少对健康和环境的影响。
+
+[下载480](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_800x480.jpg&rf=LaDigue_800x480.jpg "洒红节庆祝活动，斋浦尔，印度")
+[下载720](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_1024x768.jpg&rf=LaDigue_1024x768.jpg "洒红节庆祝活动，斋浦尔，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洒红节庆祝活动，斋浦尔，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_UHD.jpg&rf=LaDigue_UHD.jpg "洒红节庆祝活动，斋浦尔，印度")
