@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_1024x768.jpg&rf=LaDigue_1024x768.jpg "洒红节庆祝活动，斋浦尔，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洒红节庆祝活动，斋浦尔，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_UHD.jpg&rf=LaDigue_UHD.jpg "洒红节庆祝活动，斋浦尔，印度")
+
+
+---
+### 2025 3月 14：天空中的圆周率
+#### 索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙（© David Herraez Calzada/plainpicture）
+![天空中的圆周率](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_800x480.jpg&rf=LaDigue_800x480.jpg "天空中的圆周率")
+计算圆的周长与直径的比值就像 π 一样简单。今天是圆周率日，一个专门庆祝这一数学常数的节日。这个日期之所以被选中，是因为3、1、4正是圆周率π的前三位有效数字。作为一个无理数，圆周率无法被写成分数，其小数部分会无限延伸且不重复。人类对 π 的探索可以追溯到公元前 1900 年左右的古巴比伦和古埃及。
+
+“Sorginetxe”在巴斯克语中意为“女巫的房子”， 这一名称源于当地的民间传说。相传，这座遗迹是女巫在夜晚用纺车上的纺锤，将巨石从恩西亚山脉运来并堆砌而成。
+
+[下载480](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_800x480.jpg&rf=LaDigue_800x480.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_1024x768.jpg&rf=LaDigue_1024x768.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_UHD.jpg&rf=LaDigue_UHD.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
