@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_1024x768.jpg&rf=LaDigue_1024x768.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_UHD.jpg&rf=LaDigue_UHD.jpg "索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙")
+
+
+---
+### 2025 3月 15：“朋友们，罗马人，同胞们…”
+#### 罗马广场上的罗马萨图尔诺农神庙，罗马，意大利（© Nico De Pasquale Photography/Getty Images）
+![“朋友们，罗马人，同胞们…”](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_800x480.jpg&rf=LaDigue_800x480.jpg "“朋友们，罗马人，同胞们…”")
+正如莎士比亚在其戏剧《尤利乌斯·凯撒》中所写：“朋友们，罗马人，同胞们，请听我说。”今天是三月十五日，一个深深烙印在罗马历史与传统中的日子。在罗马历法中，“十五日”指的是每月的中旬，通常标志着满月。这一天曾是庆祝节日和公共集会的日子。然而，在公元前 44 年，三月十五日成为政治动荡与背叛的代名词，并引发了罗马共和国覆灭的关键事件。在那个决定性的日子，罗马独裁者凯撒遭到一群元老院成员的刺杀。其中甚至包括他的亲密盟友布鲁图斯。这些密谋者自认为是在拯救共和国，阻止凯撒权力日益膨胀。凯撒在庞贝剧院附近遇刺，这一历史性时刻的影响却回荡在罗马广场，这里曾是罗马政治与社会生活的中心。
+
+这座神庙最初的落成时间传统上可追溯至公元前497年，但古代文献对于此地的历史存在极大分歧。
+
+[下载480](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_800x480.jpg&rf=LaDigue_800x480.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_UHD.jpg&rf=LaDigue_UHD.jpg "罗马广场上的罗马萨图尔诺农神庙，罗马，意大利")
