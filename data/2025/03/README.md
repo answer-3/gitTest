@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪地里的大熊猫宝宝，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪地里的大熊猫宝宝，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_UHD.jpg&rf=LaDigue_UHD.jpg "雪地里的大熊猫宝宝，中国")
+
+
+---
+### 2025 3月 17：圣帕特里克节的魅力
+#### 塞缪尔·贝克特桥, 都柏林, 爱尔兰（© Colm Keating/Tandem Stills + Motion）
+![圣帕特里克节的魅力](https://cn.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_800x480.jpg&rf=LaDigue_800x480.jpg "圣帕特里克节的魅力")
+每年3月17日，世界各地都会庆祝圣帕特里克节，以纪念爱尔兰的守护者，五世纪的传教士圣帕特里克。作为爱尔兰的国家法定节日，这一天全国范围内都会举办游行、传统音乐、舞蹈等丰富多彩的庆祝。有趣的是，历史上第一场圣帕特里克节游行并非在爱尔兰，而是在美国举行。1601年，爱尔兰牧师里卡多·阿图尔在佛罗里达州的圣奥古斯丁组织了最早的圣帕特里克节庆祝活动，这一传统自此延续至今。
+
+这座桥的设计灵感来源于爱尔兰国徽上的竖琴。
+
+[下载480](https://cn.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_800x480.jpg&rf=LaDigue_800x480.jpg "塞缪尔·贝克特桥, 都柏林, 爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞缪尔·贝克特桥, 都柏林, 爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞缪尔·贝克特桥, 都柏林, 爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_UHD.jpg&rf=LaDigue_UHD.jpg "塞缪尔·贝克特桥, 都柏林, 爱尔兰")
