@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞缪尔·贝克特桥, 都柏林, 爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞缪尔·贝克特桥, 都柏林, 爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_UHD.jpg&rf=LaDigue_UHD.jpg "塞缪尔·贝克特桥, 都柏林, 爱尔兰")
+
+
+---
+### 2025 3月 18：漩涡般的心境
+#### 红色岩层，塞多纳，亚利桑那州，美国（© Jim Ekstrand/Alamy Stock Photo）
+![漩涡般的心境](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_800x480.jpg&rf=LaDigue_800x480.jpg "漩涡般的心境")
+亚利桑那州的塞多纳是一片融合自然奇观、历史遗产与灵性体验的土地。这里坐落着壮丽的红色砂岩地貌，其火红的岩层属于施内布利山地层，由古代海洋沉积物形成，历经数百万年的地质变迁。风化与侵蚀塑造出塞多纳今日的壮观景观，使其在日出和日落时分更显绚丽夺目。这里的威尔逊山、七圣池和大教堂岩等地标，以其奇特的岩层和迷人的景致，吸引着无数游客。
+
+塞多纳自 20 世纪 50 年代开始发展成为旅游胜地、度假住宅区和养老中心。如今，所见的大部分建筑是在 20 世纪 80 年代和 90 年代建造的。截至 2007 年，塞多纳几乎没有大规模未开发的土地。
+
+[下载480](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_800x480.jpg&rf=LaDigue_800x480.jpg "红色岩层，塞多纳，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_1024x768.jpg&rf=LaDigue_1024x768.jpg "红色岩层，塞多纳，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红色岩层，塞多纳，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_UHD.jpg&rf=LaDigue_UHD.jpg "红色岩层，塞多纳，亚利桑那州，美国")
