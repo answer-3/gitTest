@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_1024x768.jpg&rf=LaDigue_1024x768.jpg "美丽盛开的樱花，杭州的春天，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美丽盛开的樱花，杭州的春天，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_UHD.jpg&rf=LaDigue_UHD.jpg "美丽盛开的樱花，杭州的春天，中国")
+
+
+---
+### 2025 3月 21：树木万岁
+#### 低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚（© Nick Garbutt/Alamy）
+![树木万岁](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_800x480.jpg&rf=LaDigue_800x480.jpg "树木万岁")
+3月21日是国际森林日，这一全球性纪念日旨在庆祝森林在支持生物多样性和应对气候变化方面发挥的重要作用。国际森林日由联合国于2013年首次设立，鼓励全球开展植树活动，以提高人们对森林对未来世代重要性的认识。
+
+低地热带雨林是神秘的眼镜花啄鸟唯一被记录到的栖息地。
+
+[下载480](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_800x480.jpg&rf=LaDigue_800x480.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
+[下载720](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_1024x768.jpg&rf=LaDigue_1024x768.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_UHD.jpg&rf=LaDigue_UHD.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
