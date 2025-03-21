@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_1024x768.jpg&rf=LaDigue_1024x768.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_UHD.jpg&rf=LaDigue_UHD.jpg "低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚")
+
+
+---
+### 2025 3月 22：水的奇妙世界！
+#### 尼特哈天然井水面上的睡莲，图卢姆，墨西哥（© Franco Banfi/NPL/Minden）
+![水的奇妙世界！](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_800x480.jpg&rf=LaDigue_800x480.jpg "水的奇妙世界！")
+3 月 22 日是世界水日，这是联合国发起的一项倡议，旨在强调淡水及其保护的重要性。这一天不仅提高了人们对全球水危机的认识，并推动采取行动以确保所有人都能获得清洁水源。淡水不仅是生命之源，还是维持生态平衡、农业发展，甚至文化传承的重要基石。
+
+2025 年世界水日的主题是“冰川保护”。
+
+[下载480](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_800x480.jpg&rf=LaDigue_800x480.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_1024x768.jpg&rf=LaDigue_1024x768.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_UHD.jpg&rf=LaDigue_UHD.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
