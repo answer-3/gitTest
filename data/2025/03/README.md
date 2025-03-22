@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_1024x768.jpg&rf=LaDigue_1024x768.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_UHD.jpg&rf=LaDigue_UHD.jpg "尼特哈天然井水面上的睡莲，图卢姆，墨西哥")
+
+
+---
+### 2025 3月 23：雷鸣不可阻挡
+#### 鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国（© john finney photography/Getty Images）
+![雷鸣不可阻挡](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_800x480.jpg&rf=LaDigue_800x480.jpg "雷鸣不可阻挡")
+今天，我们庆祝世界气象日，这一纪念日旨在纪念1950年世界气象组织的成立。每年的世界气象日都会关注一个重要的全球气象议题。2025 年的主题“携手缩小预警差距”，强调及时的天气预警和早期行动对于减少灾害损失的重要性。
+
+委内瑞拉的马拉开波湖是世界上雷电活动最频繁的地区，这里存在一种独特的大气现象，被称为“卡塔通博闪电”。
+
+[下载480](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_800x480.jpg&rf=LaDigue_800x480.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_1024x768.jpg&rf=LaDigue_1024x768.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_UHD.jpg&rf=LaDigue_UHD.jpg "鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国")
