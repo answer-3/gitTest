@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_1024x768.jpg&rf=LaDigue_1024x768.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_UHD.jpg&rf=LaDigue_UHD.jpg "沙漠象与小象在高高的草丛中觅食，纳米比亚")
+
+
+---
+### 2025 3月 25：色彩斑斓的访客
+#### 向日葵田里的红额金翅雀，德国（© Juniors Bildarchiv GmbH/Alamy）
+![色彩斑斓的访客](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_800x480.jpg&rf=LaDigue_800x480.jpg "色彩斑斓的访客")
+你能认出今日图片中的鸟儿吗？如果你曾见过红额金翅雀，一定会对它们的外形印象深刻，因为它们是花园和森林中的亮眼存在。它们鲜艳的色彩和优雅的体态使其独具辨识度。其中，最引人注目的是其红黑相间的脸部羽毛，在白色头部和黑色颈部的映衬下显得格外鲜明。红额金翅雀喜欢开阔但有结构的栖息地，例如带有小型树篱和树木的田野和草地，且主要以种子为食。今日图片展示了红额金翅雀在向日葵田中觅食的场景。被评为2016年“年度鸟类”的红额金翅雀，属于留鸟或短途迁徙鸟，冬季主要分布在中欧、西欧和南欧，因此在德国的冬季依然可见。下次外出散步时，不妨留意一下这只色彩斑斓的小鸟！
+
+红额金翅雀在中国并不常见，主要分布在新疆和西藏的中海拔针叶林和针阔混交林中。
+
+[下载480](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_800x480.jpg&rf=LaDigue_800x480.jpg "向日葵田里的红额金翅雀，德国")
+[下载720](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_1024x768.jpg&rf=LaDigue_1024x768.jpg "向日葵田里的红额金翅雀，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "向日葵田里的红额金翅雀，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_UHD.jpg&rf=LaDigue_UHD.jpg "向日葵田里的红额金翅雀，德国")
