@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_1024x768.jpg&rf=LaDigue_1024x768.jpg "向日葵田里的红额金翅雀，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "向日葵田里的红额金翅雀，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_UHD.jpg&rf=LaDigue_UHD.jpg "向日葵田里的红额金翅雀，德国")
+
+
+---
+### 2025 3月 26：水面下的生命
+#### 水晶河的海牛，佛罗里达州，美国（© Stephen Frink/Getty Images）
+![水面下的生命](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_800x480.jpg&rf=LaDigue_800x480.jpg "水面下的生命")
+海牛的生活节奏从不匆忙，它们悠然自得地漂浮在温暖的水域中，咀嚼着海草，静静地度过数百万年的岁月。然而，尽管它们天性温顺，却正面临严峻的生存威胁。为此，每年 3 月的最后一个星期三被定为海牛感恩日，旨在提高人们对海牛保护的意识。
+
+海牛能够进行辨别任务，并展现出复杂的联想学习能力，同时它们还拥有良好的长期记忆。
+
+[下载480](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_800x480.jpg&rf=LaDigue_800x480.jpg "水晶河的海牛，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_1024x768.jpg&rf=LaDigue_1024x768.jpg "水晶河的海牛，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "水晶河的海牛，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_UHD.jpg&rf=LaDigue_UHD.jpg "水晶河的海牛，佛罗里达州，美国")
