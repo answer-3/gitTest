@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_1024x768.jpg&rf=LaDigue_1024x768.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg&rf=LaDigue_UHD.jpg "悉尼港鸟瞰图，新南威尔士州，澳大利亚")
+
+
+---
+### 2025 3月 31：普利亚的“白色之城”
+#### 黄昏下的奥斯图尼, 普利亚, 意大利（© Feng Wei Photography/Getty Images）
+![普利亚的“白色之城”](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_800x480.jpg&rf=LaDigue_800x480.jpg "普利亚的“白色之城”")
+这座历史悠久的城市坐落在亚得里亚海的山顶，以其迷宫般的白色建筑、蜿蜒的小巷和阳光普照的广场吸引着游客。欢迎来到意大利普利亚大区的奥斯图尼！普利亚位于意大利“靴子”形版图的“脚后跟”，拥有该国大陆地区最长的海岸线，这里不仅有迷人的海滩、壮丽的悬崖，还有如今日图片中的奥斯图尼这样美丽的城市。
+
+普利亚全年气候宜人，夏季炎热干燥，冬季温和，但空气中的湿度和偶尔的降雨可以带来一丝凉爽。
+
+[下载480](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏下的奥斯图尼, 普利亚, 意大利")
