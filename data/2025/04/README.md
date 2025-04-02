@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_1024x768.jpg&rf=LaDigue_1024x768.jpg "凯恩维尔附近荒地的砂岩地层, 犹他州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "凯恩维尔附近荒地的砂岩地层, 犹他州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_UHD.jpg&rf=LaDigue_UHD.jpg "凯恩维尔附近荒地的砂岩地层, 犹他州, 美国")
+
+
+---
+### 2025 4月 3：天空无极限
+#### 沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国（© Frank Staub/Getty Images）
+![天空无极限](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_800x480.jpg&rf=LaDigue_800x480.jpg "天空无极限")
+您是否曾偶然发现彩虹，并感受到一股幸福感？你是否曾想在雨后捕捉阳光下的七彩奇观？从北欧神话中的众神，到爱尔兰妖精的聚宝盆，彩虹一直被赋予神秘的意义。但除了传说，彩虹背后的科学同样引人入胜，德国物理学家狄奥多里克在1304年给出了第一个合理的解释。他发现，阳光进入雨滴后会发生折射，然后在雨滴内反射，再折射出雨滴。这个过程将光线分解成不同的颜色，形成我们看到的光谱。虽然我们知道 “ROYGBIV”（红、橙、黄、绿、蓝、靛、紫）是彩虹的基本颜色，但彩虹实际上包含了数百万种颜色的渐变混合物。
+
+月虹，是在月光下出现的彩虹，又叫黑夜彩虹、黑虹。由于月虹的出现需各种天气因素的配合，所以是非常罕见的自然现象。
+
+[下载480](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_800x480.jpg&rf=LaDigue_800x480.jpg "沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_1024x768.jpg&rf=LaDigue_1024x768.jpg "沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_UHD.jpg&rf=LaDigue_UHD.jpg "沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国")
