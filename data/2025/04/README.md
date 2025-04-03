@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_1024x768.jpg&rf=LaDigue_1024x768.jpg "沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_UHD.jpg&rf=LaDigue_UHD.jpg "沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国")
+
+
+---
+### 2025 4月 4：春和景明
+#### 苏州古镇风景，江苏省，中国（© gyn9038/Getty Images）
+![春和景明](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_800x480.jpg&rf=LaDigue_800x480.jpg "春和景明")
+清明是中国二十四节气之一，源于古代祖先信仰和春祭。至今，扫墓、踏青仍是清明节的主要活动。清明节，春回大地，万物生机，正是人们出门赏春的好时节。
+
+同里古镇位于苏州，也是江南六大古镇之一。古镇内有许多精致的园林，古色古香，极具江南特色。
+
+[下载480](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_800x480.jpg&rf=LaDigue_800x480.jpg "苏州古镇风景，江苏省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_1024x768.jpg&rf=LaDigue_1024x768.jpg "苏州古镇风景，江苏省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏州古镇风景，江苏省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_UHD.jpg&rf=LaDigue_UHD.jpg "苏州古镇风景，江苏省，中国")
