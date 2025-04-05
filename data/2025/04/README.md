@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙")
+
+
+---
+### 2025 4月 6：伦敦最尖锐的地标
+#### 碎片大厦，伦敦（© Dennis Fischer Photography/Moment/Getty Images）
+![伦敦最尖锐的地标](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_800x480.jpg&rf=LaDigue_800x480.jpg "伦敦最尖锐的地标")
+伦敦天际线中有许多标志性建筑，但没有一座能像碎片大厦一样独具特色。这座玻璃幕墙摩天大楼高达310 米，不仅是英国最高建筑，更成为了现代伦敦的象征。它由意大利建筑师伦佐·皮亚诺设计，他以高科技、轻质且实用的设计风格著称。受教堂尖塔和船桅的启发，他构想出一座线条流畅、逐渐收窄的建筑，能够反射不断变化的天空。大厦于2009 年开始建设，并于2012 年正式落成，成为西欧最高的摩天大楼。
+
+2015年，在英国旅游局举办的“#BritainisYouName#”活动中，“摘星塔”这一名称得到了碎片大厦的青睐，并受到了多家英国媒体的关注。
+
+[下载480](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_800x480.jpg&rf=LaDigue_800x480.jpg "碎片大厦，伦敦")
+[下载720](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_1024x768.jpg&rf=LaDigue_1024x768.jpg "碎片大厦，伦敦")
+[下载1080](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "碎片大厦，伦敦")
+[下载UHD](https://cn.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_UHD.jpg&rf=LaDigue_UHD.jpg "碎片大厦，伦敦")
