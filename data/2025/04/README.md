@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_1024x768.jpg&rf=LaDigue_1024x768.jpg "美洲海狸, Moran, 怀俄明州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲海狸, Moran, 怀俄明州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_UHD.jpg&rf=LaDigue_UHD.jpg "美洲海狸, Moran, 怀俄明州, 美国")
+
+
+---
+### 2025 4月 8：芬芳清新的春天
+#### 春天的水仙花在清晨绽放（© LedyX/Shutterstock）
+![芬芳清新的春天](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_800x480.jpg&rf=LaDigue_800x480.jpg "芬芳清新的春天")
+春天百花盛开，而水仙花是最著名的花卉之一。几百年来，人们不断在诗歌和绘画中描绘水仙花，它们在不同国家的文化中都占有重要地位。中国水仙属于多花水仙的一种，已有上千年的栽培历史。它们是传统的观赏花卉，并被列为中国十大名花之一。中国水仙美丽、清新、纯净、优雅，具有独特的气质，这使得古代文人墨客为其作诗咏颂，留下了许多脍炙人口的诗篇。
+
+水仙花最适宜在充足的阳光下生长，尽管它们在半阴的环境中也能存活。一般来说，它们对土壤要求不高，但良好的排水性至关重要，因为过湿的环境容易导致根部腐烂。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_800x480.jpg&rf=LaDigue_800x480.jpg "春天的水仙花在清晨绽放")
+[下载720](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1024x768.jpg&rf=LaDigue_1024x768.jpg "春天的水仙花在清晨绽放")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的水仙花在清晨绽放")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_UHD.jpg&rf=LaDigue_UHD.jpg "春天的水仙花在清晨绽放")
