@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1024x768.jpg&rf=LaDigue_1024x768.jpg "春天的水仙花在清晨绽放")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的水仙花在清晨绽放")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_UHD.jpg&rf=LaDigue_UHD.jpg "春天的水仙花在清晨绽放")
+
+
+---
+### 2025 4月 9：在繁星闪耀之前
+#### 纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊（© Sizun Eye/Getty Images）
+![在繁星闪耀之前](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_800x480.jpg&rf=LaDigue_800x480.jpg "在繁星闪耀之前")
+当白昼消退或黎明降临，希腊的纳克索斯岛便笼罩在一片深邃的蓝色光辉之中，沉浸在蓝色时刻的神秘魅力里。在这短暂的时间里，当太阳位于地平线下方，余晖映照，使天空呈现出浓郁的蓝色。
+
+纳克索斯岛的大理石开采可追溯至公元前550年以前。纳克索斯大理石曾被用于古奥林匹亚遗址的屋顶瓦片及雅典卫城的建筑。
+
+[下载480](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_800x480.jpg&rf=LaDigue_800x480.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_1024x768.jpg&rf=LaDigue_1024x768.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_UHD.jpg&rf=LaDigue_UHD.jpg "纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊")
