@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_1024x768.jpg&rf=LaDigue_1024x768.jpg "郁金香，荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郁金香，荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_UHD.jpg&rf=LaDigue_UHD.jpg "郁金香，荷兰")
+
+
+---
+### 2025 4月 12：改变世界的108分钟
+#### 从国际空间站穹顶俯瞰南太平洋（© NASA）
+![改变世界的108分钟](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_800x480.jpg&rf=LaDigue_800x480.jpg "改变世界的108分钟")
+在人类历史上不久之前，我们迈出了超越地球的第一步。几千年来，人类仰望星空，想象着星辰大海的奥秘。然后，在1961年4月12日，一个人离开了地球，永远改变了历史。那天早上，苏联飞行员尤里·加加林登上了一艘名为“东方1号”的小型球形宇宙飞船。倒计时开始，发动机点火。随着火箭呼啸着冲向天空，他喊道：“出发了！”就这样，地球迎来了首位太空旅行者。
+
+联合国邮政管理局在2011年发行了纪念邮票，以纪念加加林飞行50周年。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_800x480.jpg&rf=LaDigue_800x480.jpg "从国际空间站穹顶俯瞰南太平洋")
+[下载720](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_1024x768.jpg&rf=LaDigue_1024x768.jpg "从国际空间站穹顶俯瞰南太平洋")
+[下载1080](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从国际空间站穹顶俯瞰南太平洋")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_UHD.jpg&rf=LaDigue_UHD.jpg "从国际空间站穹顶俯瞰南太平洋")
