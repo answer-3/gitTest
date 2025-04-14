@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_UHD.jpg&rf=LaDigue_UHD.jpg "圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙")
+
+
+---
+### 2025 4月 15：梦幻城堡！
+#### 卡拉奥拉城堡，格拉纳达，西班牙（© Ugo Mellone/eStock Photo）
+![梦幻城堡！](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_800x480.jpg&rf=LaDigue_800x480.jpg "梦幻城堡！")
+在瓜迪克斯地区，群山与山谷之间，坐落着拉卡拉奥拉小镇，一座宏伟的文艺复兴时期城堡便矗立于此。这座建筑瑰宝建于16世纪，由第一代塞内特侯爵修建，既具备坚固的军事防御功能，又融入了意大利宫殿的优雅风格，是西班牙最早的文艺复兴建筑之一。
+
+这座城堡位于海拔 1250 米的高处，最近因被选为瑞安·康达尔和乔治·R·R·马丁创作的电视剧《龙之家族》的拍摄地而声名鹊起。
+
+[下载480](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉奥拉城堡，格拉纳达，西班牙")
