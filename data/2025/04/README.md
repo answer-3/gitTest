@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_1024x768.jpg&rf=LaDigue_1024x768.jpg "安第斯动冠伞鸟，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安第斯动冠伞鸟，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_UHD.jpg&rf=LaDigue_UHD.jpg "安第斯动冠伞鸟，厄瓜多尔")
+
+
+---
+### 2025 4月 18：纪念历史
+#### 卡帕多西亚格雷梅国家公园上空的热气球，土耳其（© Anton Petrus/Getty Images）
+![纪念历史](https://cn.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_800x480.jpg&rf=LaDigue_800x480.jpg "纪念历史")
+试想一个没有金字塔、长城或古老洞穴城市的世界。是不是很难想象？这正是为什么 4月18日被定为“国际古迹遗址日”的原因。这个由联合国教科文组织认可的纪念日，致力于保护全球的文化瑰宝。这个日子旨在庆祝我们的历史，提升对濒危遗址的认识，并确保后代也能欣赏到这些宝贵遗产。
+
+人们利用这种松软的凝灰岩凿出地下居所。据认为，卡帕多西亚最早的修道活动出现在公元四世纪，当时隐士开始在岩石中凿出自己的居所。
+
+[下载480](https://cn.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_800x480.jpg&rf=LaDigue_800x480.jpg "卡帕多西亚格雷梅国家公园上空的热气球，土耳其")
+[下载720](https://cn.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡帕多西亚格雷梅国家公园上空的热气球，土耳其")
+[下载1080](https://cn.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡帕多西亚格雷梅国家公园上空的热气球，土耳其")
+[下载UHD](https://cn.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_UHD.jpg&rf=LaDigue_UHD.jpg "卡帕多西亚格雷梅国家公园上空的热气球，土耳其")
