@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡帕多西亚格雷梅国家公园上空的热气球，土耳其")
 [下载1080](https://cn.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡帕多西亚格雷梅国家公园上空的热气球，土耳其")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_UHD.jpg&rf=LaDigue_UHD.jpg "卡帕多西亚格雷梅国家公园上空的热气球，土耳其")
+
+
+---
+### 2025 4月 19：国家公园周开始了
+#### 锡安国家公园，犹他州，美国（© Simon Dannhauer/Getty Images）
+![国家公园周开始了](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_800x480.jpg&rf=LaDigue_800x480.jpg "国家公园周开始了")
+穿上你的登山靴——国家公园周开始了！这个为期九天的活动从今天开始，鼓励人们探索并欣赏国家公园的自然美景与文化遗产。这是一个了解这些受保护区域、参与保护工作、并享受壮丽景观的绝佳时机。可以通过参观国家公园、分享这些自然宝藏的信息，来加入这一庆祝活动，同时也感受它们在国家遗产中所扮演的重要角色。
+
+人类在该地区的居住始于大约 8,000 年前，当时由美洲原住民的小型家庭群体组成。
+
+[下载480](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_800x480.jpg&rf=LaDigue_800x480.jpg "锡安国家公园，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_1024x768.jpg&rf=LaDigue_1024x768.jpg "锡安国家公园，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡安国家公园，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_UHD.jpg&rf=LaDigue_UHD.jpg "锡安国家公园，犹他州，美国")
