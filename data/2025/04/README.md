@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_1024x768.jpg&rf=LaDigue_1024x768.jpg "春天里的野生小兔子")
 [下载1080](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天里的野生小兔子")
 [下载UHD](https://cn.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_UHD.jpg&rf=LaDigue_UHD.jpg "春天里的野生小兔子")
+
+
+---
+### 2025 4月 21：银河的魔力之下
+#### 银河下的约书亚树，加利福尼亚州，美国（© Chao Zhang/Getty Images）
+![银河的魔力之下](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_800x480.jpg&rf=LaDigue_800x480.jpg "银河的魔力之下")
+想象一下，站在一片漆黑的天空下，银河像一条发光的丝带横跨天际。这正是“国际暗黑周”希望带给我们的体验。每年四月，在新月周（今年是4 月 21 日至 27 日）期间，人们被邀请关闭灯光，仰望星空。这项活动由高中生詹妮弗·巴洛于2003 年发起，旨在对抗光污染。体验夜空之美的最佳地点之一是位于加利福尼亚州东南部的约书亚树国家公园，这是一个国际黑暗公园。在这里，由于没有人工光源的干扰，游客可以看到我们的祖先曾经看到过的星星。你知道吗？光污染使我们无法看到银河系中的大多数星星。通过减少光污染，我们可以重新与宇宙的美丽和神奇建立联系。
+
+暗夜保护区是受保护的区域，用于防止或减少光污染，保持夜空的黑暗。
+
+[下载480](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_800x480.jpg&rf=LaDigue_800x480.jpg "银河下的约书亚树，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_1024x768.jpg&rf=LaDigue_1024x768.jpg "银河下的约书亚树，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "银河下的约书亚树，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_UHD.jpg&rf=LaDigue_UHD.jpg "银河下的约书亚树，加利福尼亚州，美国")
