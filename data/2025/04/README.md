@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_1024x768.jpg&rf=LaDigue_1024x768.jpg "银河下的约书亚树，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "银河下的约书亚树，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_UHD.jpg&rf=LaDigue_UHD.jpg "银河下的约书亚树，加利福尼亚州，美国")
+
+
+---
+### 2025 4月 22：我们的能源，我们的星球
+#### 大棱镜彩泉，黄石国家公园，怀俄明州，美国（© Ajith Kumar/Getty Images）
+![我们的能源，我们的星球](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_800x480.jpg&rf=LaDigue_800x480.jpg "我们的能源，我们的星球")
+在地球日这一天，让我们前往大自然最壮观的地热奇观之一，位于美国怀俄明州黄石国家公园的大棱镜温泉。这是美国最大的温泉，直径达 370 英尺，水温高达 160 华氏度。这一地热奇观由地表下巨大的黄石火山所产生的强大热能驱动。温泉中色彩斑斓的蓝色、绿色、黄色和橙色环带是由生活在富含矿物质的热水中的嗜热微生物（称为嗜热菌）所形成的。
+
+2025年世界地球日的主题是“我们的能源，我们的星球”，呼吁全球团结一致，支持可再生能源，并在2030年前将全球清洁电力的产量提高三倍。
+
+[下载480](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_800x480.jpg&rf=LaDigue_800x480.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_1024x768.jpg&rf=LaDigue_1024x768.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_UHD.jpg&rf=LaDigue_UHD.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
