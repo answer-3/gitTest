@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_1024x768.jpg&rf=LaDigue_1024x768.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_UHD.jpg&rf=LaDigue_UHD.jpg "大棱镜彩泉，黄石国家公园，怀俄明州，美国")
+
+
+---
+### 2025 4月 23：波罗的海的魔力
+#### 海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国（© Frank Lukasseck/eStock Photo）
+![波罗的海的魔力](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_800x480.jpg&rf=LaDigue_800x480.jpg "波罗的海的魔力")
+沙滩椅最早是在 19 世纪被发明的，用于防风和防止细沙侵扰。即便是在风暴天气下，如今日照片中石瓦尔德码头前的场景，沙滩椅依旧有其特别的魅力。石瓦尔德是一个风景如画的半岛，最初仅通过盐沼和艾希霍尔茨低地与大陆相连。如今，它是追求宁静与自然的度假者的天堂。
+
+在海利根港的海滩上，有超过 900 把沙滩椅可供租用。如果你深深爱上了这种户外家具，甚至还可以买下来——无论是新的还是二手的。
+
+[下载480](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_800x480.jpg&rf=LaDigue_800x480.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_1024x768.jpg&rf=LaDigue_1024x768.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_UHD.jpg&rf=LaDigue_UHD.jpg "海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国")
