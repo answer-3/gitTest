@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_1024x768.jpg&rf=LaDigue_1024x768.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
 [下载1080](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_UHD.jpg&rf=LaDigue_UHD.jpg "麦哲伦企鹅, 志愿者角, 福克兰群岛")
+
+
+---
+### 2025 4月 26：悬崖、洞穴与清澈的水域
+#### 印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大（© Maurice Prokaziuk/Getty Images）
+![悬崖、洞穴与清澈的水域](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_800x480.jpg&rf=LaDigue_800x480.jpg "悬崖、洞穴与清澈的水域")
+布鲁斯半岛国家公园是安大略省一段令人叹为观止的尼亚加拉断崖地貌，由时间与水流共同雕琢而成。该公园于 1987 年设立，保护着高耸的石灰岩悬崖、隐秘的洞穴、茂密的森林和未被破坏的湖岸线。作为联合国教科文组织生物圈保护区的一部分，这里是多种适应崎岖地形的野生动物的避难所，比如黑熊、大响尾蛇和白尾鹿。
+
+布鲁斯半岛北部远离大多伦多地区的喧嚣都市，因此被指定为“暗夜星空保护区”。在无云的夜晚，可见银河系中多达 1,500 亿颗星星闪耀其间。
+
+[下载480](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_800x480.jpg&rf=LaDigue_800x480.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_1024x768.jpg&rf=LaDigue_1024x768.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_UHD.jpg&rf=LaDigue_UHD.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
