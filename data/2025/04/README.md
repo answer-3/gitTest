@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_1024x768.jpg&rf=LaDigue_1024x768.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_UHD.jpg&rf=LaDigue_UHD.jpg "印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大")
+
+
+---
+### 2025 4月 27：就在这里驻足吧
+#### 红木国家公园和州立公园, 加利福尼亚州, 美国（© Bob Pool/Getty Images）
+![就在这里驻足吧](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_800x480.jpg&rf=LaDigue_800x480.jpg "就在这里驻足吧")
+国家公园周今天落下帷幕，但这些森林已经庆祝大自然数千年了。走进一个树木直插云霄的世界。位于加利福尼亚州红木国家公园和州立公园的红木林，是地球上最高的树木之一，高达超过 370 英尺。州立公园包括红木国家公园、德尔诺特海岸红木州立公园、杰迪戴亚·史密斯红木州立公园和草原溪红木州立公园。有些红木树在玛雅人建造神庙和中国修建长城时就已经存在了。自 1968 年起被保护，这座公园保留了全球近一半现存的原始红木森林。
+
+作为世界上最高树木的家园，这座世界遗产地兼国际生物圈保护区保护了全球近一半的原始红木林，其中包括高度超过 370 英尺的冠军树种，比自由女神像还高五层楼。
+
+[下载480](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_800x480.jpg&rf=LaDigue_800x480.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1024x768.jpg&rf=LaDigue_1024x768.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_UHD.jpg&rf=LaDigue_UHD.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
