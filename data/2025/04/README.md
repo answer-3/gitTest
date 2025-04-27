@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1024x768.jpg&rf=LaDigue_1024x768.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_UHD.jpg&rf=LaDigue_UHD.jpg "红木国家公园和州立公园, 加利福尼亚州, 美国")
+
+
+---
+### 2025 4月 28：这只黑斑羚正在何处漫游？
+#### 莫雷米野生动物保护区的高角羚，博茨瓦纳（© Paul Souders/Getty Images）
+![这只黑斑羚正在何处漫游？](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_800x480.jpg&rf=LaDigue_800x480.jpg "这只黑斑羚正在何处漫游？")
+这里是野性主宰之地，大自然按自己的节奏律动。莫雷米禁猎区横跨博茨瓦纳奥卡万戈三角洲的东部，面积达1,900 平方英里。该保护区于 1963 年设立，是非洲首个由当地巴塔瓦纳人（一个原住于南部非洲的班图族裔）创建的自然保护区，旨在防止不受控制的狩猎行为，保护该地区的野生动物。永久性的水源与干燥陆地相结合，使这里成为非洲观察野生动物最理想的地点之一。
+
+黑斑羚与牛椋鸟之间存在共生关系，牛椋鸟以黑斑羚身体某些它自己无法触及部位上的蜱虫为食。黑斑羚是与牛椋鸟相关联的体型最小的有蹄类动物。
+
+[下载480](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_800x480.jpg&rf=LaDigue_800x480.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
+[下载720](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1024x768.jpg&rf=LaDigue_1024x768.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
+[下载1080](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
+[下载UHD](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg&rf=LaDigue_UHD.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
