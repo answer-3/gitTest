@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1024x768.jpg&rf=LaDigue_1024x768.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
 [下载1080](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
 [下载UHD](https://cn.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg&rf=LaDigue_UHD.jpg "莫雷米野生动物保护区的高角羚，博茨瓦纳")
+
+
+---
+### 2025 4月 29：几何之美绽放于此
+#### 维朗德里城堡，卢瓦尔河谷，法国（© Mint Images/Getty Images）
+![几何之美绽放于此](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_800x480.jpg&rf=LaDigue_800x480.jpg "几何之美绽放于此")
+这边的草地确实更绿，尤其是当那一边是维朗德里城堡时。虽然法国卢瓦尔河谷遍布令人惊叹的城堡，但维朗德里城堡却与众不同，它并非以高耸的塔楼或中世纪的雄伟气势取胜，而是以花园闻名。这座城堡建于 16 世纪，由弗朗索瓦一世国王的财政大臣让·勒·布雷顿所建，目的就是为了令人印象深刻。与为战争而建的防御性城堡不同，维朗德里城堡的设计注重舒适，拥有大窗户和开阔、宜人的布局。城堡的花园分布在不同的梯田上。每个梯田有独特的主题。装饰性花园展示了如图所示的几何图案。水景花园则提供宁静的休憩之所，而蔬菜园则将日常作物打造成艺术展示。
+
+1934年，维朗德里城堡被列为历史古迹。和卢瓦尔河谷的其他城堡一样，它也是世界遗产。
+
+[下载480](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_800x480.jpg&rf=LaDigue_800x480.jpg "维朗德里城堡，卢瓦尔河谷，法国")
+[下载720](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1024x768.jpg&rf=LaDigue_1024x768.jpg "维朗德里城堡，卢瓦尔河谷，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维朗德里城堡，卢瓦尔河谷，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&rf=LaDigue_UHD.jpg "维朗德里城堡，卢瓦尔河谷，法国")
