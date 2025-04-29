@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1024x768.jpg&rf=LaDigue_1024x768.jpg "维朗德里城堡，卢瓦尔河谷，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维朗德里城堡，卢瓦尔河谷，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg&rf=LaDigue_UHD.jpg "维朗德里城堡，卢瓦尔河谷，法国")
+
+
+---
+### 2025 4月 30：瀑布声在各国间回响
+#### 从巴拉那州看到的伊瓜苏瀑布, 巴西（© agustavop/Getty Images）
+![瀑布声在各国间回响](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_800x480.jpg&rf=LaDigue_800x480.jpg "瀑布声在各国间回响")
+伊瓜苏市是一处由大自然雕琢出的奇观，今日图片仅捕捉到其壮丽景色的一角。位于巴拉那州西南角，这片边境地带回荡着瀑布震耳欲聋的轰鸣声，每秒数百万升水以狂野而迷人的姿态倾泻而下。瀑布腾起的水雾在空中绘出道道彩虹，河流的力量将这片土地塑造成一幅仿佛有生命、不断变化的画卷。
+
+关于这座瀑布流传着一个传说：一位神明原计划迎娶一位名叫奈伊皮的美丽女子，但她却与凡人恋人塔罗巴乘独木舟私奔。神明震怒，劈开河流，造就了这片瀑布，并将这对恋人永远定格在坠落之中。
+
+[下载480](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_800x480.jpg&rf=LaDigue_800x480.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
+[下载720](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_1024x768.jpg&rf=LaDigue_1024x768.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_UHD.jpg&rf=LaDigue_UHD.jpg "从巴拉那州看到的伊瓜苏瀑布, 巴西")
