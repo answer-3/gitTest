@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_1024x768.jpg&rf=LaDigue_1024x768.jpg "鸡蛋花，夏威夷，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸡蛋花，夏威夷，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_UHD.jpg&rf=LaDigue_UHD.jpg "鸡蛋花，夏威夷，美国")
+
+
+---
+### 2025 5月 2：绿鹭
+#### 维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西（© Gerald Corsi/Getty Images）
+![绿鹭](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_800x480.jpg&rf=LaDigue_800x480.jpg "绿鹭")
+在巴西郁郁葱葱的潘塔纳尔湿地，一只绿鹭栖息在一片维多利亚王莲的叶面上。这种水鸟，也被称为红树鹭，约16英寸高，是耐心的猎手，擅长埋伏猎物。它会采用聪明的策略，例如投下羽毛或昆虫引诱鱼类上钩。绿鹭常见于南美洲的湿地，也分布于北美、澳大利亚、非洲、亚洲、新几内亚和太平洋岛屿。
+
+绿鹭有时会使用诱饵，它会小心地将一根羽毛或一片树叶投放到水面上，等候前来探查的鱼类。
+
+[下载480](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_800x480.jpg&rf=LaDigue_800x480.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_1024x768.jpg&rf=LaDigue_1024x768.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg&rf=LaDigue_UHD.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
