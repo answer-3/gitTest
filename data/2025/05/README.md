@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_1024x768.jpg&rf=LaDigue_1024x768.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg&rf=LaDigue_UHD.jpg "维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西")
+
+
+---
+### 2025 5月 3：让我们一起庆祝宇宙
+#### 拱门国家公园双拱门映衬下的银河，犹他州，美国（© Adventure_Photo/Getty Images）
+![让我们一起庆祝宇宙](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_800x480.jpg&rf=LaDigue_800x480.jpg "让我们一起庆祝宇宙")
+你是否曾好奇，通过望远镜看到的土星环是什么样子？又或者，天文学家是如何发现遥远星系的？国际天文日正是探索这些奥秘的绝佳时机！这一年度活动最早于 1973 年发起，其官方主题是：“将天文学带给大众”。 从当地公园到天文俱乐部、博物馆，再到天文台，游客们可以参与望远镜观测、太空讲座，甚至体验模拟月球重力的装置！这一想法起源于加利福尼亚的一位天文学家道格·伯杰。他不再等待人们走进天文台，而是直接把望远镜带到热闹的公共场所。这一招奏效了，人们很快就迷上了仰望星空！如今，世界各地都在庆祝国际天文日，加拿大、瑞典、阿根廷等许多国家都有举办相关活动。今天，就是探索宇宙的好时机。找一架望远镜，一起仰望星空、庆祝宇宙的壮丽吧！
+
+2020年，由于全球新冠疫情，天文联盟取消了线下活动。但如洛厄尔天文台等机构仍举办了线上活动，以延续这一传统。
+
+[下载480](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_800x480.jpg&rf=LaDigue_800x480.jpg "拱门国家公园双拱门映衬下的银河，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_1024x768.jpg&rf=LaDigue_1024x768.jpg "拱门国家公园双拱门映衬下的银河，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园双拱门映衬下的银河，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园双拱门映衬下的银河，犹他州，美国")
