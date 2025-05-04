@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1024x768.jpg&rf=LaDigue_1024x768.jpg "西班牙广场，塞维利亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西班牙广场，塞维利亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_UHD.jpg&rf=LaDigue_UHD.jpg "西班牙广场，塞维利亚，西班牙")
+
+
+---
+### 2025 5月 5：秀美壮丽的山河
+#### 日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林（© zhaojiankang/Getty Images）
+![秀美壮丽的山河](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_800x480.jpg&rf=LaDigue_800x480.jpg "秀美壮丽的山河")
+今天是立夏，标志着我们即将进入夏季，今天图片中壮丽又秀美的山河景色是位于中国桂林的喀斯特山脉景致。桂林喀斯特地貌，位于广西南岭构造带中部，是大陆型塔状岩溶的典型代表，华南地区岩溶演化末期的地貌展现，世界地质遗产地。桂林喀斯特位于南岭构造带中部，以秀美漓江及其支流周边的塔状及锥状岩溶地貌为主要特征，同时发育有许多洞穴。受古生代构造运动的影响，桂林喀斯特形成了独特的岩溶发育盆地。
+
+2024年9月，《桂林喀斯特》入选第二批100个世界地质遗产地名录。
+
+[下载480](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
+[下载720](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
+[下载1080](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
