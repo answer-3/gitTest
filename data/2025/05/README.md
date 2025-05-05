@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
 [下载1080](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林")
+
+
+---
+### 2025 5月 6：不一般的沙漠之旅
+#### 一架超轻型飞机飞越纳米比亚沙漠（© Burt Johnson/Alamy Stock Photo）
+![不一般的沙漠之旅](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_800x480.jpg&rf=LaDigue_800x480.jpg "不一般的沙漠之旅")
+想象一下，在轻型飞行器中翱翔于天空，风呼啸而过，俯瞰着如画的风景。下方是世界上最古老的沙漠：纳米布沙漠，在5500万年的风力作用下形成并不断演变。这就是纳米比亚，一片由高耸沙丘、干涸河床和流沙构成的超现实梦幻般的景观。
+
+在大多数富裕国家，超轻型飞行器或轻型飞机如今在全球民用飞机中占据了相当大的比例。
+
+[下载480](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_800x480.jpg&rf=LaDigue_800x480.jpg "一架超轻型飞机飞越纳米比亚沙漠")
+[下载720](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1024x768.jpg&rf=LaDigue_1024x768.jpg "一架超轻型飞机飞越纳米比亚沙漠")
+[下载1080](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一架超轻型飞机飞越纳米比亚沙漠")
+[下载UHD](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg&rf=LaDigue_UHD.jpg "一架超轻型飞机飞越纳米比亚沙漠")
