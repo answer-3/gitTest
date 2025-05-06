@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1024x768.jpg&rf=LaDigue_1024x768.jpg "一架超轻型飞机飞越纳米比亚沙漠")
 [下载1080](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一架超轻型飞机飞越纳米比亚沙漠")
 [下载UHD](https://cn.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg&rf=LaDigue_UHD.jpg "一架超轻型飞机飞越纳米比亚沙漠")
+
+
+---
+### 2025 5月 7：岩石上的城堡
+#### 邓路斯城堡，安特里姆郡，北爱尔兰（© DieterMeyrl/Getty Images）
+![岩石上的城堡](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_800x480.jpg&rf=LaDigue_800x480.jpg "岩石上的城堡")
+如图所示的邓路斯城堡，是否让你仿佛置身于《权力的游戏》？那是因为它正是剧中“派克城”——葛雷乔伊家族领地的现实灵感来源。该城堡建于13世纪，坐落于北爱尔兰安特里姆郡，曾是安特里姆·麦克唐纳家族的据点。该家族是苏格兰麦克唐纳氏族的一个分支，在15世纪至17世纪期间在爱尔兰政治中扮演了重要角色。1690年博因河战役后，该家族的势力衰落，由于缺乏资金维护，城堡逐渐荒废成废墟。
+
+2011年，一次重大的考古发掘发现了“邓路斯失落之城”的大量遗迹，该城镇在1641年的爱尔兰起义中被夷为平地。
+
+[下载480](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_800x480.jpg&rf=LaDigue_800x480.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1024x768.jpg&rf=LaDigue_1024x768.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg&rf=LaDigue_UHD.jpg "邓路斯城堡，安特里姆郡，北爱尔兰")
