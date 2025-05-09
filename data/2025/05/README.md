@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_1024x768.jpg&rf=LaDigue_1024x768.jpg "普通变色龙")
 [下载1080](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通变色龙")
 [下载UHD](https://cn.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_UHD.jpg&rf=LaDigue_UHD.jpg "普通变色龙")
+
+
+---
+### 2025 5月 10：童话烟囱！
+#### 巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙（© Eloi_Omella/Getty Images）
+![童话烟囱！](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_800x480.jpg&rf=LaDigue_800x480.jpg "童话烟囱！")
+在西班牙纳瓦拉自治区这片独特的半沙漠景观中心，矗立着一座标志性的岩石地貌：卡斯蒂尔德蒂耶拉。它如天然石塔般的轮廓，是风与水共同侵蚀的杰作，也是这一地区的象征。此地已被联合国教科文组织列为生物圈保护区。
+
+巴尔德纳斯雷亚莱斯自然公园分为两大区域：白巴德纳与黑巴德纳，其鲜明的地貌对比将带给你无限惊喜。
+
+[下载480](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_800x480.jpg&rf=LaDigue_800x480.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg&rf=LaDigue_UHD.jpg "巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙")
