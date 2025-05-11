@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_1024x768.jpg&rf=LaDigue_1024x768.jpg "豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳")
 [下载1080](https://cn.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳")
 [下载UHD](https://cn.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_UHD.jpg&rf=LaDigue_UHD.jpg "豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳")
+
+
+---
+### 2025 5月 12：紫色的波浪
+#### 东京的鸢尾花园, 日本（© M.Arai/Getty Images）
+![紫色的波浪](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_800x480.jpg&rf=LaDigue_800x480.jpg "紫色的波浪")
+赏花是日本深受喜爱的传统活动，每个季节都有其独特的自然景观。当最后一片樱花花瓣随风飘落时，东京的庭园便开始迎接下一场花事盛典：鸢尾花季。今日图片展示的是东京的一处鸢尾花园。鸢尾是一类开花植物的属名，拥有已知的310 个物种，以色彩艳丽、花型优美而闻名。该属的名字来源于希腊语“iris”，意为“彩虹”，也是希腊彩虹女神的名字。
+
+据家族传说，在江户时代早期（1603–1867 年），一位嫁入神护氏家族的贵族女子从日本北部遥远的岩出山城带来了最初的鸢尾花。鸢尾花被视为神圣之花，据说具有驱邪避灾之力，因此很可能被种植在主门前，以保佑婚姻幸福美满。
+
+[下载480](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_800x480.jpg&rf=LaDigue_800x480.jpg "东京的鸢尾花园, 日本")
+[下载720](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_1024x768.jpg&rf=LaDigue_1024x768.jpg "东京的鸢尾花园, 日本")
+[下载1080](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东京的鸢尾花园, 日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_UHD.jpg&rf=LaDigue_UHD.jpg "东京的鸢尾花园, 日本")
