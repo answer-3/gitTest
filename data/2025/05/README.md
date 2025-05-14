@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_1024x768.jpg&rf=LaDigue_1024x768.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_UHD.jpg&rf=LaDigue_UHD.jpg "弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利")
+
+
+---
+### 2025 5月 15：伦敦时间到！
+#### 大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国（© Puthipong Worasaran/Getty Images）
+![伦敦时间到！](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_800x480.jpg&rf=LaDigue_800x480.jpg "伦敦时间到！")
+伦敦最著名的钟楼其实并不叫“大本钟”，这个名字指的是钟楼内那口重达13.5吨的巨大钟体。自1859年以来，它便为伦敦人报时，钟声响起自如今名为“伊丽莎白塔”的建筑中。2012年，在伊丽莎白二世女王登基60周年之际，这座原本称为“钟楼”的建筑被正式更名为“伊丽莎白塔”。自诞生以来，这座钟仅在维修或特殊情况下才停止运转，如一战和二战期间因轰炸受损。它的四个钟面每个直径达22.5英尺，分针长度达14英尺。钟楼高达316英尺，属于雄伟的威斯敏斯特宫的一部分，也就是英国议会的所在地。
+
+这座钟已成为英国的重要文化象征，尤其在视觉媒体中尤为显著。当影视作品需要展示“英国”这一概念时，通常会选用这座钟楼的画面，前景常伴有红色双层巴士或黑色出租车。
+
+[下载480](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_800x480.jpg&rf=LaDigue_800x480.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
+[下载720](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_1024x768.jpg&rf=LaDigue_1024x768.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
+[下载1080](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_UHD.jpg&rf=LaDigue_UHD.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
