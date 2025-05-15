@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_1024x768.jpg&rf=LaDigue_1024x768.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
 [下载1080](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_UHD.jpg&rf=LaDigue_UHD.jpg "大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国")
+
+
+---
+### 2025 5月 16：守护濒危生命的一天
+#### 大绿金刚鹦鹉, 墨西哥（© Ondrej Prosicky/Shutterstock）
+![守护濒危生命的一天](https://cn.bing.com/th?id=OHR.GreenMacaw_ZH-CN3451340204_800x480.jpg&rf=LaDigue_800x480.jpg "守护濒危生命的一天")
+每年五月的第三个星期五，全球都会迎来“濒危物种日”。这是一个为濒危野生动植物而庆祝、学习并付诸行动的日子。该活动由濒危物种联盟及环保主义者大卫·罗宾逊于 2006 年共同发起，旨在激励全球各地的人们保护濒危动物及其栖息地。
+
+墨西哥的蝾螈是一种极危两栖动物，它拥有惊人的再生能力，能够重生整个身体部位，包括心脏、肺，甚至大脑的一部分。
+
+[下载480](https://cn.bing.com/th?id=OHR.GreenMacaw_ZH-CN3451340204_800x480.jpg&rf=LaDigue_800x480.jpg "大绿金刚鹦鹉, 墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.GreenMacaw_ZH-CN3451340204_1024x768.jpg&rf=LaDigue_1024x768.jpg "大绿金刚鹦鹉, 墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.GreenMacaw_ZH-CN3451340204_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大绿金刚鹦鹉, 墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreenMacaw_ZH-CN3451340204_UHD.jpg&rf=LaDigue_UHD.jpg "大绿金刚鹦鹉, 墨西哥")
