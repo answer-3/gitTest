@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_1024x768.jpg&rf=LaDigue_1024x768.jpg "威尼斯潟湖中的三角洲, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "威尼斯潟湖中的三角洲, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg&rf=LaDigue_UHD.jpg "威尼斯潟湖中的三角洲, 意大利")
+
+
+---
+### 2025 5月 18：图卢兹的暮色
+#### 加龙河对面的圣皮埃尔桥，图卢兹，法国（© Image Professionals GmbH/Alamy）
+![图卢兹的暮色](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_800x480.jpg&rf=LaDigue_800x480.jpg "图卢兹的暮色")
+夕阳西下，加龙河畔的图卢兹展现出最迷人的景致——圣皮埃尔桥与雄伟的拉格拉夫圆顶倒映在水面上，相映成辉。这座连接粉色之城两岸的桥梁最初建于1849年，后分别在1927年和1987年进行重建，以适应现代需求。
+
+图卢兹拥有三处联合国教科文组织世界遗产：米迪运河（1996年列入，与其他城市共享）、圣瑟南大教堂（欧洲现存最大的罗马式建筑）及圣雅克医院旧址。这两处建筑因其在圣地亚哥-德孔波斯特拉朝圣路线上的重要作用，于1998年被列入世界遗产名录。
+
+[下载480](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_800x480.jpg&rf=LaDigue_800x480.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1024x768.jpg&rf=LaDigue_1024x768.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg&rf=LaDigue_UHD.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
