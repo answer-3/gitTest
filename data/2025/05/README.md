@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1024x768.jpg&rf=LaDigue_1024x768.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg&rf=LaDigue_UHD.jpg "加龙河对面的圣皮埃尔桥，图卢兹，法国")
+
+
+---
+### 2025 5月 19：汉密尔顿山的蜿蜒之路
+#### 汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国（© Jeffrey Lewis/TANDEM Stills + Motion）
+![汉密尔顿山的蜿蜒之路](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_800x480.jpg&rf=LaDigue_800x480.jpg "汉密尔顿山的蜿蜒之路")
+驾车驶上加州湾区的汉密尔顿山，游客将沉浸于迷人的自然景观与丰富的历史之中。全长19英里的汉密尔顿山公路，是130号州道的一部分。凭借漫长的爬坡路段和稀少的车流量，该道路深受骑行与摩托车爱好者的喜爱。这条公路建于1875年至1876年，最初旨在为世界首个长期有人驻守的山顶天文台“利克天文台”运送建材而修建。在海拔4265英尺的山顶，天气晴朗时，甚至可以远望至优胜美地国家公园或内华达山脉。
+
+汉密尔顿山拥有加州一些最美丽的自然景观，同时也是最脆弱的自然环境之一。这里生长着高大的橡树、珍稀的本地草种，以及遍地盛开的野花。
+
+[下载480](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_800x480.jpg&rf=LaDigue_800x480.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1024x768.jpg&rf=LaDigue_1024x768.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_UHD.jpg&rf=LaDigue_UHD.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
