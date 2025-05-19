@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1024x768.jpg&rf=LaDigue_1024x768.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_UHD.jpg&rf=LaDigue_UHD.jpg "汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国")
+
+
+---
+### 2025 5月 20：小翅膀，大作用
+#### 薰衣草上的蜜蜂（© Anthony Brown/Alamy Stock Photo）
+![小翅膀，大作用](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_800x480.jpg&rf=LaDigue_800x480.jpg "小翅膀，大作用")
+蜜蜂身躯虽小，但没有它们，你的购物清单可能会少很多。不再有莓果、牛油果，甚至咖啡。蜜蜂与蝴蝶、蝙蝠和蜂鸟一起，为全球近 90% 的野生开花植物和超过 35% 的我们所依赖的农作物授粉。每年5月20日的世界蜜蜂日，正是为了向这些至关重要的传粉者致敬，并纪念现代养蜂业先驱安东·扬沙。扬沙曾称蜜蜂为“最高贵的昆虫”，这一观点如今也得到了科学的证实。
+
+选定每年5月20日作为世界蜜蜂日是因为这一天是现代养蜂业先驱安东·扬沙的生日。扬沙来自斯洛文尼亚的一个养蜂世家，当地的养蜂活动有着悠久的历史传统，是重要的农业活动之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_800x480.jpg&rf=LaDigue_800x480.jpg "薰衣草上的蜜蜂")
+[下载720](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1024x768.jpg&rf=LaDigue_1024x768.jpg "薰衣草上的蜜蜂")
+[下载1080](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "薰衣草上的蜜蜂")
+[下载UHD](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_UHD.jpg&rf=LaDigue_UHD.jpg "薰衣草上的蜜蜂")
