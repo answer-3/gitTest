@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1024x768.jpg&rf=LaDigue_1024x768.jpg "薰衣草上的蜜蜂")
 [下载1080](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "薰衣草上的蜜蜂")
 [下载UHD](https://cn.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_UHD.jpg&rf=LaDigue_UHD.jpg "薰衣草上的蜜蜂")
+
+
+---
+### 2025 5月 21：茶歇时光
+#### 杨家塘村茶园，松阳县，中国（© feng xu/Getty Images）
+![茶歇时光](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_800x480.jpg&rf=LaDigue_800x480.jpg "茶歇时光")
+传说中，茶的故事始于中国古代：一片树叶偶然落入沸水中，开启了这段芳香之旅。几个世纪之后，茶已成为全球消费量第二的饮品（仅次于水）。今天是国际茶日，这是由联合国设立的全球性节日，旨在肯定茶在消除贫困和促进可持续发展方面的重要作用，也向茶产业中的劳动者们致以敬意。
+
+今年，国际茶日的主题是突出妇女在茶产业中的重要作用。
+
+[下载480](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_800x480.jpg&rf=LaDigue_800x480.jpg "杨家塘村茶园，松阳县，中国")
+[下载720](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1024x768.jpg&rf=LaDigue_1024x768.jpg "杨家塘村茶园，松阳县，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杨家塘村茶园，松阳县，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&rf=LaDigue_UHD.jpg "杨家塘村茶园，松阳县，中国")
