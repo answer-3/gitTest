@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1024x768.jpg&rf=LaDigue_1024x768.jpg "杨家塘村茶园，松阳县，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杨家塘村茶园，松阳县，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg&rf=LaDigue_UHD.jpg "杨家塘村茶园，松阳县，中国")
+
+
+---
+### 2025 5月 22：猴面包树大道
+#### 日落时分的猴面包树，猴面包树大道，马达加斯加（© Framalicious/Shutterstock）
+![猴面包树大道](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_800x480.jpg&rf=LaDigue_800x480.jpg "猴面包树大道")
+从微小的细菌到高大的树木，地球上的生命彼此相互关联。国际生物多样性日旨在庆祝这一维系地球繁荣的生命之网。生物多样性与日常生活息息相关，涵盖可持续农业、清洁用水、气候行动以及灾害防范等诸多领域。生物多样性的减少会增加动物传染病传播的风险（包括动物传染给人类的疾病）。相反，保护生物多样性则有助于增强我们预防和应对大流行病等健康危机的能力。联合国深知生物多样性对当前和未来世代的重要意义，因此每年都设立这个纪念日，提高公众意识并推动保护行动。
+
+一些猴面包树品种能提供纤维、染料和燃料。
+
+[下载480](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
+[下载720](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
+[下载1080](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
+[下载UHD](https://cn.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的猴面包树，猴面包树大道，马达加斯加")
