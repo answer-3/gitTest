@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_1024x768.jpg&rf=LaDigue_1024x768.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg&rf=LaDigue_UHD.jpg "停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔")
+
+
+---
+### 2025 5月 24：欧洲的野性之美
+#### 挪威尤通黑门山国家公园（© Marisa Estivill/Shutterstock）
+![欧洲的野性之美](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲的野性之美")
+今天是“欧洲公园日”，旨在庆祝那些塑造各国自然特性的国家公园和保护区。该纪念日由欧洲公园联盟于1999年创立，以纪念1909年在瑞典建立的九座欧洲最早的国家公园。该节日旨在推动保护自然栖息地、野生动植物及文化遗产的行动，同时鼓励可持续旅游与户外活动。
+
+2020年2月，“冰之秘密”项目的研究人员在挪威南部尤通黑门山脉，因气候变化而逐渐消融的冰川中，发现了一支距今1,500年来自日耳曼铁器时代的维京箭头。
+
+[下载480](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_800x480.jpg&rf=LaDigue_800x480.jpg "挪威尤通黑门山国家公园")
+[下载720](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1024x768.jpg&rf=LaDigue_1024x768.jpg "挪威尤通黑门山国家公园")
+[下载1080](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "挪威尤通黑门山国家公园")
+[下载UHD](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg&rf=LaDigue_UHD.jpg "挪威尤通黑门山国家公园")
