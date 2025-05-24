@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1024x768.jpg&rf=LaDigue_1024x768.jpg "挪威尤通黑门山国家公园")
 [下载1080](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "挪威尤通黑门山国家公园")
 [下载UHD](https://cn.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg&rf=LaDigue_UHD.jpg "挪威尤通黑门山国家公园")
+
+
+---
+### 2025 5月 25：绽放于你所在之地
+#### 布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大（© 2009fotofriends/Shutterstock）
+![绽放于你所在之地](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_800x480.jpg&rf=LaDigue_800x480.jpg "绽放于你所在之地")
+一个多世纪前，这里还是一片荒废的采石场，如今每年春季则变成了色彩斑斓的花海。位于加拿大不列颠哥伦比亚省布伦特伍德湾的布查特花园，展示了如何将缤纷花卉演绎为盛宴。春季时节，郁金香的香气弥漫小径，沿途色彩斑斓，每一个转角都有新花绽放。然而，这里并非一直如此美丽。20世纪初，罗伯特·皮姆·布查特曾在此经营石灰石采石场。1912年，他的妻子珍妮识别出废弃矿坑的潜力，开始在坑内种植花卉。如今，布查特花园占地55英亩，种植有900多种植物，每年春天近30万株球茎花卉竞相绽放。
+
+1982年，布查特花园被选为佛罗里达州奥兰多卡特中心加拿大馆花园的设计灵感来源。
+
+[下载480](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_800x480.jpg&rf=LaDigue_800x480.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1024x768.jpg&rf=LaDigue_1024x768.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_UHD.jpg&rf=LaDigue_UHD.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
