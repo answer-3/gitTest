@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1024x768.jpg&rf=LaDigue_1024x768.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_UHD.jpg&rf=LaDigue_UHD.jpg "布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大")
+
+
+---
+### 2025 5月 26：山间奔驰
+#### 沿着岚山保津川行驶的火车，京都，日本（© Alvin Huang/Getty Images）
+![山间奔驰](https://cn.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_800x480.jpg&rf=LaDigue_800x480.jpg "山间奔驰")
+岚山四季景色各具风韵，春季樱花盛放，秋季枫叶绚丽，令人叹为观止。此地最具代表性的地标之一为渡月桥，横跨宁静的桂川，桥上可远眺群山环绕的壮丽景色。漫步于嵯峨野竹林小径，高耸的竹子随风摇曳，仿佛置身于一个神秘而静谧的世界。岚山亦坐落着宁静的天龙寺，以其精致的枯山水庭园而闻名。若希望体验难忘之旅，游客可搭乘嵯峨野观光小火车，穿越风光旖旎的保津川峡谷，沿途欣赏四季更替的自然景观。无论是寻求静谧、感受自然之美，还是希望体验京都深厚的历史文化，岚山都能为来访者留下难以磨灭的回忆。
+
+岚山是京都著名的风景区，位于京都市西北部，地处丹波高原的东缘，被誉为“京都第一名胜”。
+
+[下载480](https://cn.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_800x480.jpg&rf=LaDigue_800x480.jpg "沿着岚山保津川行驶的火车，京都，日本")
+[下载720](https://cn.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_1024x768.jpg&rf=LaDigue_1024x768.jpg "沿着岚山保津川行驶的火车，京都，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沿着岚山保津川行驶的火车，京都，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_UHD.jpg&rf=LaDigue_UHD.jpg "沿着岚山保津川行驶的火车，京都，日本")
