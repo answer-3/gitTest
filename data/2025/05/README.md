@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_1024x768.jpg&rf=LaDigue_1024x768.jpg "梦娜维尔岩池，悉尼，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梦娜维尔岩池，悉尼，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MonaValePool_ZH-CN7968271596_UHD.jpg&rf=LaDigue_UHD.jpg "梦娜维尔岩池，悉尼，澳大利亚")
+
+
+---
+### 2025 5月 28：海獭很重要
+#### 一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国（© Gerry Ellis/Minden Pictures）
+![海獭很重要](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_800x480.jpg&rf=LaDigue_800x480.jpg "海獭很重要")
+它们在水中穿梭如同毛茸茸的鱼雷，在河岸上翻滚仿佛孩童在游乐场嬉戏，甚至在休息时也会彼此牵手。海獭是大自然中极具玩性的小动物，然而它们的未来并非一片光明。栖息地破坏、污染以及非法野生动物贸易正对多个水獭物种构成严重威胁。然而，这种情况并非不可逆转。每年五月最后一个星期三为“世界海獭日”，这一纪念日旨在提升公众对海獭所面临威胁的认识，并鼓励人们采取行动，共同保护它们赖以生存的野外栖息地。
+
+海獭生性好动，似乎会纯粹为了娱乐而进行各类行为，例如制造水滑梯并从上方滑入水中。
+
+[下载480](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_800x480.jpg&rf=LaDigue_800x480.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_UHD.jpg&rf=LaDigue_UHD.jpg "一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国")
