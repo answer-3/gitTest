@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_1024x768.jpg&rf=LaDigue_1024x768.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_UHD.jpg&rf=LaDigue_UHD.jpg "米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙")
+
+
+---
+### 2025 5月 30：流经烟雾弥漫之地
+#### 小鸽子河，大雾山国家公园，田纳西州, 美国（© GreenStock/Getty Images）
+![流经烟雾弥漫之地](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_800x480.jpg&rf=LaDigue_800x480.jpg "流经烟雾弥漫之地")
+若不留神，便可能错过它，直到耳边传来潺潺水声、鳟鱼跃水的扑通声，或远处徒步者的欢笑声。这便是小鸽子河，蜿蜒穿越美国田纳西州的大烟山国家公园。在漂流活动与飞蝇钓兴起之前，这条河曾是当地原住民与早期定居者赖以生存的重要资源。切罗基族曾在此捕鱼，定居者沿河建起磨坊，盖特林堡、鸽子谷等城镇亦因河而兴。河名“小鸽子”源于曾栖息于此的旅鸽，尽管这一物种已于20世纪初灭绝，这一命名仍是对自然历史的纪念。
+
+尽管名称相近，小鸽子河并非附近鸽子河的支流。鸽子河在道格拉斯大坝上游汇入法国宽河，并流入该水库。
+
+[下载480](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_800x480.jpg&rf=LaDigue_800x480.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_1024x768.jpg&rf=LaDigue_1024x768.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_UHD.jpg&rf=LaDigue_UHD.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
