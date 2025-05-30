@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_1024x768.jpg&rf=LaDigue_1024x768.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_UHD.jpg&rf=LaDigue_UHD.jpg "小鸽子河，大雾山国家公园，田纳西州, 美国")
+
+
+---
+### 2025 5月 31：充满节日氛围节装饰
+#### 用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国（© Visual China Group/Getty Images）
+![充满节日氛围节装饰](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_800x480.jpg&rf=LaDigue_800x480.jpg "充满节日氛围节装饰")
+端午节，是中国四大传统节日之一，端午节除了吃粽子，还有许多富有特色的民间习俗，比如今天图片中的彩色丝线串成的香囊。这是在吉林市的端午节前夕就开始的庙会上售卖的。
+
+端午节祝福语说 “快乐 ”还是说 “安康 ”的讨论，从根本上说，是对端午节文化传统意义的探索，也是人们对未来生活的美好期盼。
+
+[下载480](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_800x480.jpg&rf=LaDigue_800x480.jpg "用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国")
+[下载720](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_1024x768.jpg&rf=LaDigue_1024x768.jpg "用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_UHD.jpg&rf=LaDigue_UHD.jpg "用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国")
