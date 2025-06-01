@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_1024x768.jpg&rf=LaDigue_1024x768.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_UHD.jpg&rf=LaDigue_UHD.jpg "格朗特尔岛附近的堡礁，法属新喀里多尼亚")
+
+
+---
+### 2025 6月 2：花的力量
+#### 一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约（© Marianne A. Campolongo/Alamy）
+![花的力量](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_800x480.jpg&rf=LaDigue_800x480.jpg "花的力量")
+今日图片中展示的是一只灰蝶，它以迅速、跳跃式的飞行方式而闻名，正停驻在一朵鲜艳的紫锥菊上，亦称松果菊。紫锥菊原产于北美，以其耐寒的花朵和独特的刺状花心而广受园艺爱好者和传粉昆虫的喜爱。
+
+研究表明，仅仅观赏花园就能降低血压和减轻压力。
+
+[下载480](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_800x480.jpg&rf=LaDigue_800x480.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
+[下载720](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
+[下载1080](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
+[下载UHD](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_UHD.jpg&rf=LaDigue_UHD.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
