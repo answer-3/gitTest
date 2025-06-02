@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
 [下载1080](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
 [下载UHD](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_UHD.jpg&rf=LaDigue_UHD.jpg "一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约")
+
+
+---
+### 2025 6月 3：为快乐而刹车
+#### 乌得勒支桥上的自行车，荷兰（© George Pachantouris/Getty Images）
+![为快乐而刹车](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_800x480.jpg&rf=LaDigue_800x480.jpg "为快乐而刹车")
+两个轮子，无需燃料，却承载着深远的意义：骑行不仅经济、环保，更对地球友好。如此简单的一项活动，便能显著改善健康状况。将汽车出行替换为骑行，是保持活力的便捷方式。此外，骑行有助于减少污染、缓解交通拥堵，并为无驾照者提供一种经济实惠的交通选择。正因其多重益处，联合国将每年6月3日设立为“世界自行车日”，以庆祝这种双轮工具所承载的全部价值。
+
+尽管“bike”和“cycle”这两个词在大多数情况下可以互换使用，均指代两轮交通工具，但它们在世界各地的具体用法仍略有不同。
+
+[下载480](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_800x480.jpg&rf=LaDigue_800x480.jpg "乌得勒支桥上的自行车，荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌得勒支桥上的自行车，荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌得勒支桥上的自行车，荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg&rf=LaDigue_UHD.jpg "乌得勒支桥上的自行车，荷兰")
