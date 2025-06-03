@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌得勒支桥上的自行车，荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌得勒支桥上的自行车，荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg&rf=LaDigue_UHD.jpg "乌得勒支桥上的自行车，荷兰")
+
+
+---
+### 2025 6月 4：卡拉卢纳海滩, 撒丁岛, 意大利
+#### 卡拉卢纳海滩, 撒丁岛, 意大利（© guenterguni/Getty Images）
+![卡拉卢纳海滩, 撒丁岛, 意大利](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
+意大利撒丁岛以其崎岖的悬崖、隐秘的海滩以及层层叠叠的蓝色海水，堪称地中海的一颗明珠。全岛海岸线长度超过1100英里。尽管岛上自然河流稀少，其中提尔索河为最长河流，撒丁岛通过水利工程建设了54座人工湖与水坝。其中最重要的两座为奥莫代奥湖与科吉纳斯湖，分别为当地的重要水源及电力供应地。
+
+因其非凡的美丽与野性魅力，卡拉卢纳海滩曾被选为意大利经典电影《踩过界》的拍摄地，同时也是由国际巨星麦当娜主演的同名电影翻拍版的取景地。
+
+[下载480](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_800x480.jpg&rf=LaDigue_800x480.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
