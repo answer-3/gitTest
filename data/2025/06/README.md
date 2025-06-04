@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg&rf=LaDigue_UHD.jpg "卡拉卢纳海滩, 撒丁岛, 意大利")
+
+
+---
+### 2025 6月 5：隐藏的美景
+#### 福玛萨瀑布，迪亚曼蒂纳，巴西（© Pulsar Images/Alamy）
+![隐藏的美景](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_800x480.jpg&rf=LaDigue_800x480.jpg "隐藏的美景")
+今日图片带我们走近迪亚曼蒂纳高地国家公园中最壮观、却极少有人踏足的瀑布之一福玛萨瀑布。该瀑布位于巴伊亚州，垂直落差约为100米。通往瀑布的小径始于巴伊绍村，由于地形陡峭，被评为高难度路线。
+
+环绕迪亚曼蒂纳高地国家公园的城镇，遍布殖民时期的建筑，体现出当时的建筑风格，也清晰地提醒人们钻石时代曾带来的繁荣，正是这段时期促使巴西在20世纪初成为全球最大的钻石生产国。
+
+[下载480](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_800x480.jpg&rf=LaDigue_800x480.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1024x768.jpg&rf=LaDigue_1024x768.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_UHD.jpg&rf=LaDigue_UHD.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
