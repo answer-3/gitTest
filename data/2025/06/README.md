@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1024x768.jpg&rf=LaDigue_1024x768.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_UHD.jpg&rf=LaDigue_UHD.jpg "福玛萨瀑布，迪亚曼蒂纳，巴西")
+
+
+---
+### 2025 6月 6：诺曼底登陆日的转折点
+#### 诺曼底的阿罗芒什莱班 , 法国（© Horia Merla/Getty Images）
+![诺曼底登陆日的转折点](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底登陆日的转折点")
+今天是诺曼底登陆日的81周年纪念日，也是我们缅怀现代史上最具决定性的时刻之一。1944年6月6日，超过15.6万名盟军部队在法国诺曼底海滩登陆，发起了代号“霸王行动”的军事进攻，也就是我们熟知的D日。这场复杂的突袭整合了空中、海上与陆地部队，是解放西欧摆脱纳粹控制战役的开始。
+
+今天，阿罗芒什主要是一个旅游城镇。由于地理位置优越，适合参观所有战役遗址和战争公墓，阿罗芒什还设有一个博物馆，介绍有关“霸王行动”，尤其是“桑树港”的内容。
+
+[下载480](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_800x480.jpg&rf=LaDigue_800x480.jpg "诺曼底的阿罗芒什莱班 , 法国")
+[下载720](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_1024x768.jpg&rf=LaDigue_1024x768.jpg "诺曼底的阿罗芒什莱班 , 法国")
+[下载1080](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "诺曼底的阿罗芒什莱班 , 法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_UHD.jpg&rf=LaDigue_UHD.jpg "诺曼底的阿罗芒什莱班 , 法国")
