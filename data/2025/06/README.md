@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_1024x768.jpg&rf=LaDigue_1024x768.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_UHD.jpg&rf=LaDigue_UHD.jpg "达尔马提亚的杜布罗夫尼克古城，克罗地亚")
+
+
+---
+### 2025 6月 10：草之河流
+#### 大沼泽地国家公园的鸟瞰图，佛罗里达州，美国（© Robert DelVecchio - OcuDrone/Getty Images）
+![草之河流](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_800x480.jpg&rf=LaDigue_800x480.jpg "草之河流")
+我们是否曾设想，从高空俯瞰自身在这片广袤水域中的倒影？佛罗里达州的大沼泽地国家公园是美国最大的热带荒野，面积超过150万英亩。它保护了原始大沼泽地的南部20%，栖息着众多珍稀和濒危物种，包括佛罗里达美洲豹、美洲鳄以及西印度海牛。大沼泽地国家公园被称为“草之河”，其独特的生态系统由从奥基乔比湖缓慢流向佛罗里达湾的河流供养，是热带涉禽的重要繁殖地。这座国家公园不仅是美国的自然瑰宝，也具有重要的国际价值。它被联合国教科文组织列为世界遗产、国际生物圈保护区以及国际重要湿地。
+
+佛罗里达州大沼泽地国家公园的部分区域非常适合在南佛罗里达进行暗夜星空观测。最佳观测点位于大沼泽地偏远的南部和西部地区，例如弗拉明戈和万岛。
+
+[下载480](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_800x480.jpg&rf=LaDigue_800x480.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_1024x768.jpg&rf=LaDigue_1024x768.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_UHD.jpg&rf=LaDigue_UHD.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
