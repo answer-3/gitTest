@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_1024x768.jpg&rf=LaDigue_1024x768.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_UHD.jpg&rf=LaDigue_UHD.jpg "大沼泽地国家公园的鸟瞰图，佛罗里达州，美国")
+
+
+---
+### 2025 6月 11：潮汐间的芭蕾
+#### 大红鹳，吕德里茨，纳米比亚（© Karine Aigner/TANDEM Stills + Motion）
+![潮汐间的芭蕾](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐间的芭蕾")
+在纳米比亚吕德里茨，这些鸟类并非过客，而是真正“站稳脚跟”的居民，字面意义上，仅用一条腿支撑。它们便是大红鹳，为南大西洋沿岸狂风席卷的纳米比亚海岸增添了一抹亮丽的粉色。作为所有鹳类中体型最大的一种，大红鹳毫不吝啬地展示自身风采：身高可达59英寸，具有匙状弯曲喙和修长的双腿，极具辨识度。
+
+成年大红鹳几乎没有天敌。然而，其蛋和雏鸟仍可能遭受猛禽、乌鸦、海鸥和白鹳的捕食。据估计，约一半的大红鹳蛋和雏鸟都被黄脚银鸥所捕食。
+
+[下载480](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_800x480.jpg&rf=LaDigue_800x480.jpg "大红鹳，吕德里茨，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1024x768.jpg&rf=LaDigue_1024x768.jpg "大红鹳，吕德里茨，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大红鹳，吕德里茨，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg&rf=LaDigue_UHD.jpg "大红鹳，吕德里茨，纳米比亚")
