@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1024x768.jpg&rf=LaDigue_1024x768.jpg "大红鹳，吕德里茨，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大红鹳，吕德里茨，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg&rf=LaDigue_UHD.jpg "大红鹳，吕德里茨，纳米比亚")
+
+
+---
+### 2025 6月 12：星空、岩石与孤寂
+#### 奇索斯山脉，大弯国家公园，德克萨斯州，美国（© Dean Fikar/Getty Images）
+![星空、岩石与孤寂](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_800x480.jpg&rf=LaDigue_800x480.jpg "星空、岩石与孤寂")
+人们常说：“德州的一切都更大。”而大弯国家公园正是对这句话的最佳注解。这片占地801,163英亩的广袤区域，最初属于墨西哥领土，1848年并入美国。自20世纪30年代起，该地区的自然景观便受到保护，并于1944年6月12日正式被指定为国家公园。大弯国家公园是美国最偏远、游客最少的国家公园之一。它并非由单一地貌构成，而是三种景观的综合体：奇瓦瓦沙漠、奇索斯山脉和格兰德河。公园地处美墨边境，其历史也体现出文化交融的特征：原住民、西班牙探险者、牧场主、矿工和游客皆曾在此留下足迹。岩画、历史遗迹和古道见证了这片土地在成为国家公园之前就已拥有深厚历史。
+
+大弯国家公园内拥有多个温泉，其中包括位于温泉历史区内的主要温泉。该温泉常被称为“博卡迪拉斯温泉”或“兰福德温泉”，已被列入国家史迹名录。
+
+[下载480](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_800x480.jpg&rf=LaDigue_800x480.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1024x768.jpg&rf=LaDigue_1024x768.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_UHD.jpg&rf=LaDigue_UHD.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
