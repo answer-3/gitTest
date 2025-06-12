@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1024x768.jpg&rf=LaDigue_1024x768.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_UHD.jpg&rf=LaDigue_UHD.jpg "奇索斯山脉，大弯国家公园，德克萨斯州，美国")
+
+
+---
+### 2025 6月 13：海洋的隐秘心跳
+#### 维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙（© ARoxo/Getty Images）
+![海洋的隐秘心跳](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_800x480.jpg&rf=LaDigue_800x480.jpg "海洋的隐秘心跳")
+位于葡萄牙亚速尔群岛圣米格尔岛附近的维拉弗兰卡岛，是一座无人居住的绿色火山岛，静静地坐落在弗兰卡村镇的南侧。尽管今日宁静怡人，这座小岛却拥有悠久而多变的历史。早在1537年，文献中便有定居者向西扩展至此的记载，使维拉弗兰卡岛正式登上历史舞台。它曾先后作为军事要塞、避风港、葡萄园种植地，乃至观鲸瞭望台。
+
+尽管这座小岛仅覆盖着一层薄薄的土壤，但历史上其海拔最高处曾被用于葡萄种植，如今，废弃葡萄园的痕迹仍清晰可辨。
+
+[下载480](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_800x480.jpg&rf=LaDigue_800x480.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1024x768.jpg&rf=LaDigue_1024x768.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_UHD.jpg&rf=LaDigue_UHD.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
