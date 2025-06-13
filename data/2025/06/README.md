@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1024x768.jpg&rf=LaDigue_1024x768.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_UHD.jpg&rf=LaDigue_UHD.jpg "维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙")
+
+
+---
+### 2025 6月 14：静谧之声
+#### 五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区（© usabin/Getty Images）
+![静谧之声](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_800x480.jpg&rf=LaDigue_800x480.jpg "静谧之声")
+五塔峰坐落于意大利威尼托大区贝卢诺省的多洛米蒂山脉腹地，仿佛天然雕塑般矗立，是夏季避暑、远离海滩与城市喧嚣的理想之选。每一座岩塔皆承载着独特的历史与自然故事：从古文明的遗迹，到徒步与登山者的足迹，再到第一次世界大战时期的军事要地。这些塔峰在战时曾扮演战略要塞的角色，如今游客仍可探访战壕遗址与战争留下的痕迹。然而，自然的力量终将超越人类历史：茂密松林、芳草牧场与山间溪流共同构成了一幅宁静和谐的生态图景，晴朗的天空与繁花草甸相映成趣，伴随着阵阵鸟鸣，为前行的每一步增添生机。
+
+这几座岩塔因具备多样化的攀登路线等级，成为攀岩爱好者的重要目的地，适合不同水平的攀岩者挑战。
+
+[下载480](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_800x480.jpg&rf=LaDigue_800x480.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
+[下载720](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1024x768.jpg&rf=LaDigue_1024x768.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
+[下载1080](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
+[下载UHD](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&rf=LaDigue_UHD.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
