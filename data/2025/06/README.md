@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1024x768.jpg&rf=LaDigue_1024x768.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
 [下载1080](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
 [下载UHD](https://cn.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg&rf=LaDigue_UHD.jpg "五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区")
+
+
+---
+### 2025 6月 15：羽翼下的父爱
+#### 雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利（© Ignacio Yufera/Minden Pictures）
+![羽翼下的父爱](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_800x480.jpg&rf=LaDigue_800x480.jpg "羽翼下的父爱")
+早在领带和贺卡成为父亲节的象征之前，这一节日的诞生源于一位女儿的悼念之情与不懈坚持。1907年，格雷斯·克莱顿因父亲在蒙农加哈矿难中遇难，提议举行一次纪念仪式，以缅怀事故中逝去的众多父亲。虽然当时并未广泛引起共鸣，但在1909年，索诺拉·斯马特·多德在华盛顿州斯波坎重新点燃了这一提议的火种。她希望纪念自己的父亲，一位在南北战争后独自抚养六个孩子的退伍军人。她的努力最终促成了我们今日所熟知的父亲节传统。
+
+小美洲鸵通常性情温和，少有鸣叫。唯有雏鸟会发出哀鸣，而雄鸟在求偶时则以低沉的轰鸣声吸引异性。
+
+[下载480](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_800x480.jpg&rf=LaDigue_800x480.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
+[下载720](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_1024x768.jpg&rf=LaDigue_1024x768.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
+[下载1080](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
+[下载UHD](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg&rf=LaDigue_UHD.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
