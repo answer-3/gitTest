@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_1024x768.jpg&rf=LaDigue_1024x768.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
 [下载1080](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
 [下载UHD](https://cn.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg&rf=LaDigue_UHD.jpg "雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利")
+
+
+---
+### 2025 6月 16：远古泳者的现代困境
+#### 海龟，费尔南多·迪诺罗尼亚群岛，巴西（© João Vianna/Getty Images）
+![远古泳者的现代困境](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_800x480.jpg&rf=LaDigue_800x480.jpg "远古泳者的现代困境")
+它们天生“头戴钢盔”，以从容节奏穿梭海洋，丝毫不受人类时间表的影响。以今日图片中拍摄于巴西费尔南多·迪诺罗尼亚群岛的海龟为例：这类生物早在霸王龙出现之前就已在地球的海洋中悠游。6月16日是“世界海龟日”，旨在唤起人们对这一古老物种及其在维持海洋生态平衡中所发挥作用的关注。该日期之所以被选定，是为纪念被誉为“海龟保护之父”的美国自然保护主义者阿奇·卡尔的生日。他的研究与倡导为现代海龟行为学研究和保护实践奠定了坚实基础。
+
+2001年，联合国教科文组织将这里列为世界遗产地，理由是其对金枪鱼、鲨鱼、海龟和海洋哺乳动物的重要觅食地位。
+
+[下载480](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_800x480.jpg&rf=LaDigue_800x480.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_1024x768.jpg&rf=LaDigue_1024x768.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_UHD.jpg&rf=LaDigue_UHD.jpg "海龟，费尔南多·迪诺罗尼亚群岛，巴西")
