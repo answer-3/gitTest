@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_1024x768.jpg&rf=LaDigue_1024x768.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_UHD.jpg&rf=LaDigue_UHD.jpg "坎伯兰岛国家海岸的海滨森林，乔治亚州，美国")
+
+
+---
+### 2025 6月 18：让授粉游戏开始吧！
+#### 红花石蒜上的柑橘凤蝶（© lzh/Getty Images）
+![让授粉游戏开始吧！](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_800x480.jpg&rf=LaDigue_800x480.jpg "让授粉游戏开始吧！")
+传粉者周正在如火如荼地展开！今年的庆祝时间为6月16日至22日，旨在关注那些为近90%开花植物完成授粉过程的重要传粉者，包括我们日常喜爱的水果、蔬菜和坚果等作物的“幕后功臣”。今日图片展示的是一只亚洲凤蝶，它正优雅地停驻在一朵鲜红的彼岸花上。亚洲凤蝶广泛分布于东北亚地区，甚至扩展至夏威夷部分区域。这类蝴蝶具有敏锐的色觉，擅长寻找花朵，尤其偏爱柑橘类植物。尽管该物种当前种群稳定、不被列为受威胁物种，它在自然授粉过程中的作用仍不可或缺。
+
+授粉者不止有蜜蜂，还有蝴蝶、鸟类、蝙蝠、风、水，甚至某些植物也能完成自花授粉！
+
+[下载480](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_800x480.jpg&rf=LaDigue_800x480.jpg "红花石蒜上的柑橘凤蝶")
+[下载720](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1024x768.jpg&rf=LaDigue_1024x768.jpg "红花石蒜上的柑橘凤蝶")
+[下载1080](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红花石蒜上的柑橘凤蝶")
+[下载UHD](https://cn.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_UHD.jpg&rf=LaDigue_UHD.jpg "红花石蒜上的柑橘凤蝶")
