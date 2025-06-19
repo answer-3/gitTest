@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣卡塔琳娜州的海滩, 巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣卡塔琳娜州的海滩, 巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.WinterBegins_ZH-CN7638411804_UHD.jpg&rf=LaDigue_UHD.jpg "圣卡塔琳娜州的海滩, 巴西")
+
+
+---
+### 2025 6月 20：寻找斑点
+#### 一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚（© Alberto Cassani/Getty Images）
+![寻找斑点](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_800x480.jpg&rf=LaDigue_800x480.jpg "寻找斑点")
+今天我们介绍的是生活于塞伦盖蒂地区的马赛长颈鹿。它们以独特的锯齿状斑点而闻名，是东非的本土物种。除了肯尼亚和乌干达，马赛长颈鹿还广泛分布于坦桑尼亚辽阔的塞伦盖蒂平原。“塞伦盖蒂”一词源自马赛语“seringit”，意为“无边无际的平原”。如今日图片所示，一对母子马赛长颈鹿在这片壮阔的景色中彼此依偎，画面温馨动人。据估计，目前全球野生长颈鹿仅存约117000头，现在正是采取行动的关键时刻。通过支持“世界长颈鹿日”， 你可以为保护这些奇特生物及其自然栖息地贡献力量。加入这一年度庆祝活动，为地球上最高的陆生动物带来切实的改变。
+
+马赛长颈鹿在奔跑时，时速最高可达近64公里（40英里）。
+
+[下载480](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_800x480.jpg&rf=LaDigue_800x480.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_UHD.jpg&rf=LaDigue_UHD.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
