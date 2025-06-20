@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_UHD.jpg&rf=LaDigue_UHD.jpg "一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚")
+
+
+---
+### 2025 6月 21：此花端合在瑶池
+#### 雾中莲花，中国佛山（© huoguangliang/Getty Images）
+![此花端合在瑶池](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_800x480.jpg&rf=LaDigue_800x480.jpg "此花端合在瑶池")
+夏至既是二十四节气之一，“夏至”是盛夏的起点，这个季节也是荷花盛开的季节。今天图片中的美景位于广东佛山地区的盛开的荷花。晨曦在水面上织就一层丝丝薄纱。漫步岸边，仿佛置身于云雾缭绕的仙境，每一次呼吸都模糊了虚实的界限。这便是“朦胧”的精髓——这种诗意的朦胧感曾深深触动过中国古代文人，激发出无数颂扬莲花空灵之美的诗句。
+
+荷花全身皆宝，藕和莲子能食用，莲子、根茎、藕节、荷叶、花及种子的胚芽等都可入药。
+
+[下载480](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_800x480.jpg&rf=LaDigue_800x480.jpg "雾中莲花，中国佛山")
+[下载720](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1024x768.jpg&rf=LaDigue_1024x768.jpg "雾中莲花，中国佛山")
+[下载1080](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雾中莲花，中国佛山")
+[下载UHD](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg&rf=LaDigue_UHD.jpg "雾中莲花，中国佛山")
