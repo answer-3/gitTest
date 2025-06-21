@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1024x768.jpg&rf=LaDigue_1024x768.jpg "雾中莲花，中国佛山")
 [下载1080](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雾中莲花，中国佛山")
 [下载UHD](https://cn.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg&rf=LaDigue_UHD.jpg "雾中莲花，中国佛山")
+
+
+---
+### 2025 6月 22：一路丛林
+#### 亚马逊雨林，厄瓜多尔（© Mark Fox/Getty Images）
+![一路丛林](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_800x480.jpg&rf=LaDigue_800x480.jpg "一路丛林")
+“世界雨林日”不仅是日历上的一个纪念日，更是一项行动号召。该节日由非营利环保组织“雨林伙伴关系”于2017年设立，旨在提升公众对雨林重要性的认识，并推动全球范围内的保护工作。在美国，人们通过社区植树、学校项目以及社交媒体活动参与纪念，宣传雨林保护的成功案例。许多植物园会举办特别展览，而环保组织则发起筹款挑战，以支持实地保护项目。
+
+亚马逊雨林绝非人迹罕至，约有三千万人生活在该流域之中。
+
+[下载480](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_800x480.jpg&rf=LaDigue_800x480.jpg "亚马逊雨林，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_1024x768.jpg&rf=LaDigue_1024x768.jpg "亚马逊雨林，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚马逊雨林，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg&rf=LaDigue_UHD.jpg "亚马逊雨林，厄瓜多尔")
