@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_1024x768.jpg&rf=LaDigue_1024x768.jpg "亚马逊雨林，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚马逊雨林，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg&rf=LaDigue_UHD.jpg "亚马逊雨林，厄瓜多尔")
+
+
+---
+### 2025 6月 23：从废墟中重生
+#### 德累斯顿易北河谷, 德国（© Sean Pavone/Getty Images）
+![从废墟中重生](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_800x480.jpg&rf=LaDigue_800x480.jpg "从废墟中重生")
+柏林充满活力，慕尼黑以啤酒闻名，那么德累斯顿则诉说着历史与重生的故事。这座位于德国萨克森州的城市，曾被誉为“易北河上的佛罗伦萨”。然而，在1945年第二次世界大战期间，城市几乎被彻底摧毁。自那以后，它经历了浴火重生，如今成为一座融合现代艺术博物馆、巴洛克建筑与河畔风光的文化城市。德累斯顿最古老的建筑群主要分布在老城区与新城区两大区域。周边街区最初由萨克森王室在18世纪至19世纪间规划，并以历代君主命名，例如腓特烈城和阿尔贝特城。
+
+易北河上有多条渡轮航线运营，既有载客渡轮，也有可搭载车辆的渡轮。
+
+[下载480](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_800x480.jpg&rf=LaDigue_800x480.jpg "德累斯顿易北河谷, 德国")
+[下载720](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1024x768.jpg&rf=LaDigue_1024x768.jpg "德累斯顿易北河谷, 德国")
+[下载1080](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德累斯顿易北河谷, 德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_UHD.jpg&rf=LaDigue_UHD.jpg "德累斯顿易北河谷, 德国")
