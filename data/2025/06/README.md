@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1024x768.jpg&rf=LaDigue_1024x768.jpg "德累斯顿易北河谷, 德国")
 [下载1080](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "德累斯顿易北河谷, 德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_UHD.jpg&rf=LaDigue_UHD.jpg "德累斯顿易北河谷, 德国")
+
+
+---
+### 2025 6月 24：大自然的耐心之作
+#### 精致拱门, 拱门国家公园, 犹他州, 美国（© mmac72/Getty Images）
+![大自然的耐心之作](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的耐心之作")
+这片景观并非一朝一夕形成，而是大自然历经漫长岁月的雕琢之作。你在美国犹他州拱门国家公园所见的一切，是3亿多年间地壳抬升、风化与侵蚀共同作用的结果。这些天然拱门最初由古海洋遗留下的盐层构成，在时间推移中，砂岩层开裂、位移并不断风化，最终形成了超过2000座天然拱门。这些地貌主要由恩特拉达砂岩与纳瓦霍砂岩构成。该地区于1929年被认定为国家纪念地，并于1971年正式升格为国家公园。
+
+在这座公园内，游客可以进行露营、在指定小径徒步旅行、背包探险、峡谷穿越、攀岩、骑行，以及在现有的铺砌和未铺砌道路上驾车游览等活动。
+
+[下载480](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_800x480.jpg&rf=LaDigue_800x480.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_1024x768.jpg&rf=LaDigue_1024x768.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_UHD.jpg&rf=LaDigue_UHD.jpg "精致拱门, 拱门国家公园, 犹他州, 美国")
