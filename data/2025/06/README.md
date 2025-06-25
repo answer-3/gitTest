@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_1024x768.jpg&rf=LaDigue_1024x768.jpg "格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_UHD.jpg&rf=LaDigue_UHD.jpg "格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰")
+
+
+---
+### 2025 6月 26：海岸线附近的“马戏”
+#### 马头岩上空的银河, 新南威尔士州, 澳大利亚（© Philip Thurston/Getty Images）
+![海岸线附近的“马戏”](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_800x480.jpg&rf=LaDigue_800x480.jpg "海岸线附近的“马戏”")
+人们常说：“你可以牵马到水边，却无法强迫它饮水。”当然，马头岩除外。这块岩石屹立于澳大利亚新南威尔士州伯马吉附近的蓝宝石海岸。如今日图片所示，这块古老的岩石宛如大自然亲手雕刻的一匹神话中的骏马，永远在低头畅饮海水。据估计，马头岩已有5亿年历史，其酷似一匹弯颈饮水的马，这正是风蚀与海浪侵蚀共同作用的结果。作为该地区最古老且最具象征意义的地质地标之一，马头岩全年吸引着徒步旅行者、摄影师与自然爱好者前来观赏。最佳观景点位于骆驼岩与穆鲁纳角之间的高地步道，而更富冒险精神的访客则可在退潮时，从骆驼岩冲浪海滩绕行至此。
+
+1880年，政府地质学家拉蒙特·杨与另外四人在从伯马吉出海途中神秘失踪，该海湾的命名正与这起事件有关。
+
+[下载480](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_800x480.jpg&rf=LaDigue_800x480.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1024x768.jpg&rf=LaDigue_1024x768.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_UHD.jpg&rf=LaDigue_UHD.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
