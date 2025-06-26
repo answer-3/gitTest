@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1024x768.jpg&rf=LaDigue_1024x768.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_UHD.jpg&rf=LaDigue_UHD.jpg "马头岩上空的银河, 新南威尔士州, 澳大利亚")
+
+
+---
+### 2025 6月 27：古冰川遗迹之地
+#### Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典（© Sven Halling/DEEPOL/plainpicture）
+![古冰川遗迹之地](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_800x480.jpg&rf=LaDigue_800x480.jpg "古冰川遗迹之地")
+克努特霍德斯莫森自然保护区位于瑞典海勒福什市附近，占地近250英亩。这片宁静的绿洲拥有环形木栈道，穿越沼泽地带，沿途分布着多个小湖泊、沙丘、湿地与松林。其中部分路段无障碍设计，适合轮椅和婴儿车通行。
+
+最佳造访时间为每年4月至5月。若运气不错，你甚至可能在步道旁发现鸟巢。请注意：在4月1日至7月15日的鸟类繁殖期内，请务必留在步道上，以避免惊扰野生鸟类。
+
+[下载480](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_800x480.jpg&rf=LaDigue_800x480.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
+[下载720](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_1024x768.jpg&rf=LaDigue_1024x768.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
+[下载1080](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
+[下载UHD](https://cn.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_UHD.jpg&rf=LaDigue_UHD.jpg "Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典")
