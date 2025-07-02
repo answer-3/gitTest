@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_1024x768.jpg&rf=LaDigue_1024x768.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_UHD.jpg&rf=LaDigue_UHD.jpg "被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚")
+
+
+---
+### 2025 7月 3：彩虹河的清澈拥抱
+#### 彩虹泉州立公园的彩虹河，佛罗里达州，美国（© Michel Roggo/Minden Pictures）
+![彩虹河的清澈拥抱](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹河的清澈拥抱")
+坐落于佛罗里达州北部墨西哥湾沿岸的，是彩虹泉州立公园。数百年来，这片区域一直作为自然资源，为人类与动物所依赖。穿越公园蜿蜒流淌的彩虹河，正是其中的关键生态要素。河水源自佛罗里达州最大型的泉水之一彩虹泉，其水体汇集自770平方英里的广阔集水区，最终流入威特拉库奇河。
+
+彩虹河因其卓越的自然美景和审美价值，曾于1972年被指定为“国家自然地标”，1986年列为“水域保护区”，并在1987年被评为“杰出的佛罗里达水道”。
+
+[下载480](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_1024x768.jpg&rf=LaDigue_1024x768.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_UHD.jpg&rf=LaDigue_UHD.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
