@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_1024x768.jpg&rf=LaDigue_1024x768.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_UHD.jpg&rf=LaDigue_UHD.jpg "彩虹泉州立公园的彩虹河，佛罗里达州，美国")
+
+
+---
+### 2025 7月 4：水、空气、岩石
+#### 奥罗塞，撒丁岛，意大利（© EyeEm Mobile GmbH/Getty Images）
+![水、空气、岩石](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_800x480.jpg&rf=LaDigue_800x480.jpg "水、空气、岩石")
+此刻，我们置身于意大利撒丁岛东部奥罗塞湾的一处瑰宝卡拉卢纳，坐落于第勒尼安海之滨。大自然在此将岩石雕琢成面向大海的隐秘洞穴，正如今日图片所示，湛蓝海水悄然渗入石窟，在石灰岩墙上投射出光影交织的图案。金色沙滩与天然阴影交错，地中海的微风带来咸香气息，海浪轻拍岩岸，低语着亘古不变的旋律。被岩洞环抱的这片海滩仿若人间秘境，陆地与海洋在此交汇，构成一幅和谐而独特的自然画卷。清澈海水邀请人们畅游其中，峭壁巍峨静立，见证岁月流转。卡拉卢纳不仅是一处地理位置，更是一段自然的诗篇：海浪拍击古老岩石的低语，金色阳光在水面上的短暂停留，共同诉说着海洋以超越语言的方式，留下的恒久故事。
+
+奥罗塞虽小，却汇聚了撒丁岛“原貌”的精华：壮丽的历史、隐秘的海湾，以及壮阔的大自然。
+
+[下载480](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_800x480.jpg&rf=LaDigue_800x480.jpg "奥罗塞，撒丁岛，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥罗塞，撒丁岛，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥罗塞，撒丁岛，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_UHD.jpg&rf=LaDigue_UHD.jpg "奥罗塞，撒丁岛，意大利")
