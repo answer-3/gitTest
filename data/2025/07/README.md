@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥罗塞，撒丁岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥罗塞，撒丁岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_UHD.jpg&rf=LaDigue_UHD.jpg "奥罗塞，撒丁岛，意大利")
+
+
+---
+### 2025 7月 5：优雅而低调的巨人
+#### Cize-Bolozon viaduct crossing the Ain gorge, France（© Leonid Andronov/Getty Images）
+![优雅而低调的巨人](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_800x480.jpg&rf=LaDigue_800x480.jpg "优雅而低调的巨人")
+想象一座桥梁，它连接的不仅是两岸，更是时间与记忆的延续。坐落于法国东部安省的锡兹博洛宗高架桥，它建于1950年，这座桥取代了战争中被摧毁的前代桥梁，成为重建与希望的象征。
+
+安河全长近190公里，长期以来一直作为汝拉山脉与罗讷河之间的重要交通通道。
+
+[下载480](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_800x480.jpg&rf=LaDigue_800x480.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
+[下载720](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1024x768.jpg&rf=LaDigue_1024x768.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
+[下载1080](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
+[下载UHD](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_UHD.jpg&rf=LaDigue_UHD.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
