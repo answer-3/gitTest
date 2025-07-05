@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1024x768.jpg&rf=LaDigue_1024x768.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
 [下载1080](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
 [下载UHD](https://cn.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_UHD.jpg&rf=LaDigue_UHD.jpg "Cize-Bolozon viaduct crossing the Ain gorge, France")
+
+
+---
+### 2025 7月 6：时光沙丘
+#### 死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国（© Bryan Jolley/TANDEM Stills + Motion）
+![时光沙丘](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_800x480.jpg&rf=LaDigue_800x480.jpg "时光沙丘")
+梅斯基特平原沙丘位于死亡谷国家公园内的斯托夫派普韦尔斯村附近，是公园内最易到达且最具标志性的沙丘。它们由北侧山脉风化提供的沙源、盛行风的搬运作用，以及南侧山脉的阻挡所共同作用形成，造就了这片波纹起伏的壮美景观。沙丘以在恶劣环境中依旧顽强生长的蜜荆树命名。在日出和日落时分，沙丘的纹理和棱线在光影映照下格外分明，是欣赏日照美景与星空观测的绝佳地点。
+
+梅斯基特平原沙丘以日出和日落时分的壮丽阴影而闻名，那时沙丘上的波纹和棱线在光线的映照下显得更加分明。这里也是观测死亡谷著名漆黑夜空的绝佳地点。
+
+[下载480](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_800x480.jpg&rf=LaDigue_800x480.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1024x768.jpg&rf=LaDigue_1024x768.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_UHD.jpg&rf=LaDigue_UHD.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
