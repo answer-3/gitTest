@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1024x768.jpg&rf=LaDigue_1024x768.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_UHD.jpg&rf=LaDigue_UHD.jpg "死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国")
+
+
+---
+### 2025 7月 7：闪电俯冲、水花四溅，然后开吃
+#### 潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰（© Richard Shucksmith/Minden Pictures）
+![闪电俯冲、水花四溅，然后开吃](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_800x480.jpg&rf=LaDigue_800x480.jpg "闪电俯冲、水花四溅，然后开吃")
+优雅、有力，且令人难以忽视的北方鲣鸟是北大西洋海域体型最大的海鸟之一。它们大部分时间都在辽阔的海面上滑翔，只有在繁殖季节才会返回陆地。这些海鸟以其庞大而喧嚣的繁殖群体著称，被称为“鲣鸟群”，通常选择在陡峭悬崖、偏远岩岛，或突兀于海中的海蚀柱上筑巢。
+
+这些羽毛具备防水特性，使得该类鸟能够在水中停留较长时间。羽毛表面覆盖着一种由皮脂腺分泌的防水物质，鸟类通常会用喙或头部将其涂抹至全身。
+
+[下载480](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_800x480.jpg&rf=LaDigue_800x480.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1024x768.jpg&rf=LaDigue_1024x768.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg&rf=LaDigue_UHD.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
