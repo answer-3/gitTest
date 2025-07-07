@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1024x768.jpg&rf=LaDigue_1024x768.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg&rf=LaDigue_UHD.jpg "潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰")
+
+
+---
+### 2025 7月 8：锋芒毕露的美
+#### 塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利（© Kalyakan/Adobe Stock）
+![锋芒毕露的美](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_800x480.jpg&rf=LaDigue_800x480.jpg "锋芒毕露的美")
+意大利多洛米蒂山脉不仅雄伟耸立，更如施展魔法般，使每一条山路都变成一个故事。人们亲切地称它们为“苍白山脉”，这一名字源自其主要构成矿物白云石。这片山脉坐落于意大利北部阿尔卑斯山脉，占地超过34.5万英亩，拥有18座海拔超过9,500英尺的高峰。其地貌特征包括陡峭的悬崖、雄伟的岩壁和蜿蜒狭窄的山谷。
+
+塞切达位于瓦尔加迪纳山谷向阳的一侧，冬季可欣赏令人惊叹的美景，是一个应有尽有的滑雪胜地。夏季，这里为游客提供了无限的户外活动机会。
+
+[下载480](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_800x480.jpg&rf=LaDigue_800x480.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&rf=LaDigue_UHD.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
