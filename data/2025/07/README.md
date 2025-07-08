@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1024x768.jpg&rf=LaDigue_1024x768.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg&rf=LaDigue_UHD.jpg "塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利")
+
+
+---
+### 2025 7月 9：具有纪念意义的火车站
+#### 宪法火车站，布宜诺斯艾利斯，阿根廷（© Grafissimo/Getty Images）
+![具有纪念意义的火车站](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_800x480.jpg&rf=LaDigue_800x480.jpg "具有纪念意义的火车站")
+今天是阿根廷的独立日。这片拥有辽阔潘帕斯草原、丰富文化遗产与鲜明民族认同的南美国家，于1816年在图库曼省圣米格尔市正式宣告独立，摆脱西班牙的殖民统治。通往独立的道路充满挑战，伴随着长期内战与政治动荡；而阿根廷的独立运动也深受美国和法国独立运动的影响。最终，阿根廷人民以坚定不移的意志赢得了国家的自由。
+
+2021年，这座火车站被授予国家历史纪念碑的遗产称号。
+
+[下载480](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_800x480.jpg&rf=LaDigue_800x480.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
+[下载720](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1024x768.jpg&rf=LaDigue_1024x768.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
+[下载1080](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
+[下载UHD](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_UHD.jpg&rf=LaDigue_UHD.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
