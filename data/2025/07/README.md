@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1024x768.jpg&rf=LaDigue_1024x768.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
 [下载1080](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
 [下载UHD](https://cn.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_UHD.jpg&rf=LaDigue_UHD.jpg "宪法火车站，布宜诺斯艾利斯，阿根廷")
+
+
+---
+### 2025 7月 10：奔向自由之浪
+#### 巴哈马的绿松石色水域（© BlueOrange Studio/Adobe Stock）
+![奔向自由之浪](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_800x480.jpg&rf=LaDigue_800x480.jpg "奔向自由之浪")
+今天，巴哈马以缤纷的色彩、音乐与自豪感迎来国家独立日的庆祝。1492年，克里斯托弗·哥伦布首次抵达这些岛屿，自此被欧洲人记录在案。最初，这些岛屿处于西班牙统治之下，之后曾短暂由美国控制，随后成为英国殖民地。经过数十年的法律谈判与日益高涨的自治诉求，巴哈马最终于1973年7月10日实现完全独立。
+
+虽然巴哈马在1973年获得独立，但英国君主仍为其国家元首。
+
+[下载480](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_800x480.jpg&rf=LaDigue_800x480.jpg "巴哈马的绿松石色水域")
+[下载720](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴哈马的绿松石色水域")
+[下载1080](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴哈马的绿松石色水域")
+[下载UHD](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_UHD.jpg&rf=LaDigue_UHD.jpg "巴哈马的绿松石色水域")
