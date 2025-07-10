@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴哈马的绿松石色水域")
 [下载1080](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴哈马的绿松石色水域")
 [下载UHD](https://cn.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_UHD.jpg&rf=LaDigue_UHD.jpg "巴哈马的绿松石色水域")
+
+
+---
+### 2025 7月 11：把我们都算上
+#### 日出时的东京，日本（© pongnathee kluaythong/Getty Images）
+![把我们都算上](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_800x480.jpg&rf=LaDigue_800x480.jpg "把我们都算上")
+我们生活的地球早已人满为患，并且仍在不断变得更加拥挤。目前全球人口已达82亿，且呈持续增长之势。世界人口日旨在引发人们对人口增长如何影响城市发展、粮食供给与未来前景的思考。该纪念日设立于1989年，聚焦于不受控的人口增长对可持续性带来的影响，其灵感源自1987年全球人口首次突破50亿的“50亿人口日”。随着城市不断扩张，绿地面积减少，农业也在有限的土地和水资源中展开竞争。然而前路并非无解：通过教育投资、改善医疗可及性，以及建设更智慧的城市，人口增长与可持续发展之间可以实现平衡。
+
+在过去三十年间，世界各地的社会在人口数据的收集、分析与使用方面取得了显著进步。如今的人口数据可以按年龄、族裔、性别及其他因素进行细致划分，更加准确地反映出我们社会的多样性。
+
+[下载480](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的东京，日本")
+[下载720](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时的东京，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的东京，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的东京，日本")
