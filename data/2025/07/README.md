@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时的东京，日本")
 [下载1080](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的东京，日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的东京，日本")
+
+
+---
+### 2025 7月 12：跟随妈妈的脚步
+#### 汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚（© Gallo Images/DanitaDelimont.com）
+![跟随妈妈的脚步](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_800x480.jpg&rf=LaDigue_800x480.jpg "跟随妈妈的脚步")
+在肯尼亚西南部的马赛马拉稀树草原上，金色阳光洒落大地，野生动物穿梭其间，形成一幅动人画面。这片草原上野生动物众多，有在灌木丛中漫步的大象，地平线上搜寻猎物的猎豹等。然而，真正吸引目光的，往往是那些体型较小却灵动可爱的动物，比如今日图片中的汤氏瞪羚。
+
+2016年迪士尼动画电影《疯狂动物城》中，一位拟人化的流行歌手“汤氏瞪羚”由歌手夏奇拉配音，令人印象深刻。
+
+[下载480](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_800x480.jpg&rf=LaDigue_800x480.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_1024x768.jpg&rf=LaDigue_1024x768.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_UHD.jpg&rf=LaDigue_UHD.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
