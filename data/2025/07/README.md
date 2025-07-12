@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_1024x768.jpg&rf=LaDigue_1024x768.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_UHD.jpg&rf=LaDigue_UHD.jpg "汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚")
+
+
+---
+### 2025 7月 13：层层叠叠的岩石
+#### 卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛（© Arterra Picture Library/Alamy Stock Photo）
+![层层叠叠的岩石](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_800x480.jpg&rf=LaDigue_800x480.jpg "层层叠叠的岩石")
+你觉得岩石只是……岩石吗？这些天然的矿物组合不仅仅只是静静地待在原地，它们是地球地壳的基本组成单位，从石器时代的工具到为现代文明提供动力的矿物，岩石在人类发展史中发挥了重要作用。国际岩石日的设立，正是为了庆祝岩石在自然界及人类社会中的深远影响，激发公众对地质科学的兴趣，并鼓励人们欣赏岩石所展现的自然之美与多样性。
+
+玄武岩是火星表面常见的岩石类型之一，这一事实已通过来自火星探测任务的数据与陨石分析得到了证实。
+
+[下载480](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_800x480.jpg&rf=LaDigue_800x480.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_UHD.jpg&rf=LaDigue_UHD.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
