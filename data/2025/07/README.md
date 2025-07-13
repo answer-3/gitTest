@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_UHD.jpg&rf=LaDigue_UHD.jpg "卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛")
+
+
+---
+### 2025 7月 14：追逐海浪，掀起潮汐
+#### 加利西亚海域游弋的幼年大青鲨，西班牙（© Damocean/Getty Images）
+![追逐海浪，掀起潮汐](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_800x480.jpg&rf=LaDigue_800x480.jpg "追逐海浪，掀起潮汐")
+鲨鱼在地球上的历史可追溯至4亿年前，它们早于恐龙出现，并在历经冰河时期及多次生物大灭绝后依然顽强存续，成为海洋生态系统中不可或缺的一环。鲨鱼被视为健康海洋的指标物种，因此每年“鲨鱼意识日”的设立，正是为了提升公众对鲨鱼生态重要性的认知。作为海洋食物链顶端的掠食者，鲨鱼有助于维持物种平衡，其保护关系到整个海洋生态的可持续性。然而，当前多种鲨鱼面临灭绝危机，这一天也提醒人们采取行动，避免这些古老生物从海洋中消失。
+
+大青鲨与真鲨科其他成员一样，具备五种核心感官：视觉、听觉、侧线感知、化学感知以及电感知。
+
+[下载480](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_800x480.jpg&rf=LaDigue_800x480.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_1024x768.jpg&rf=LaDigue_1024x768.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_UHD.jpg&rf=LaDigue_UHD.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
