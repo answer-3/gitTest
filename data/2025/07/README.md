@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_1024x768.jpg&rf=LaDigue_1024x768.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_UHD.jpg&rf=LaDigue_UHD.jpg "加利西亚海域游弋的幼年大青鲨，西班牙")
+
+
+---
+### 2025 7月 15：永恒的光芒
+#### 英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国（© Wirestock Creators/Shutterstock）
+![永恒的光芒](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_800x480.jpg&rf=LaDigue_800x480.jpg "永恒的光芒")
+准备迎接一年中最耀眼的天文奇观之一英仙座流星雨吧！该流星雨每年活跃期为7月中旬至8月下旬，而今年的峰值将于8月12日夜间至13日凌晨上演璀璨盛景。当地球穿越彗星斯威夫特-塔特尔留下的冰岩碎片轨道时，形成了这一流星雨。这颗彗星上一次接近地球是在1992年。当这些尘埃颗粒以高速进入地球大气层时，会因摩擦而燃烧，划出一道道明亮的光痕。
+
+英仙座流星雨之所以得名，是因为这些流星看起来像是从英仙座方向划破夜空。“Perseids”一词源自希腊语，意为“英仙的子孙”。
+
+[下载480](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_800x480.jpg&rf=LaDigue_800x480.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_1024x768.jpg&rf=LaDigue_1024x768.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_UHD.jpg&rf=LaDigue_UHD.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
