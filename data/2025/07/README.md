@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_1024x768.jpg&rf=LaDigue_1024x768.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_UHD.jpg&rf=LaDigue_UHD.jpg "英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国")
+
+
+---
+### 2025 7月 16：伊西斯女神的光辉照耀下
+#### 菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及（© Ratnakorn Piyasirisorost/Getty Images）
+![伊西斯女神的光辉照耀下](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_800x480.jpg&rf=LaDigue_800x480.jpg "伊西斯女神的光辉照耀下")
+菲莱神庙，常被称为伊西斯神庙，是埃及最迷人的古迹之一。它最初建在菲莱岛上，后来为避免被洪水淹没而迁至附近的阿吉勒基亚岛。这项迁移工程是20世纪60年代由联合国教科文组织发起的国际文物拯救项目，历时多年，搬运了逾4万块石块，才得以完整重建并保存这座古老神庙。如今，它坐落在尼罗河环绕的静谧之地，是乘船游览和探寻往昔的绝佳去处。
+
+菲莱岛虽小，仅长约450米、宽不足150米，却自古以来便吸引着无数前来埃及的游客。因其秀美的景致，这座小岛素有“埃及明珠”之称。
+
+[下载480](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_800x480.jpg&rf=LaDigue_800x480.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
+[下载720](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_1024x768.jpg&rf=LaDigue_1024x768.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
+[下载1080](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
+[下载UHD](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_UHD.jpg&rf=LaDigue_UHD.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
