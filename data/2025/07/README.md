@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_1024x768.jpg&rf=LaDigue_1024x768.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
 [下载1080](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
 [下载UHD](https://cn.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_UHD.jpg&rf=LaDigue_UHD.jpg "菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及")
+
+
+---
+### 2025 7月 17：追随香气的地平线
+#### 瓦朗索勒高原的薰衣草田，法国（© zpagistock/Getty Images）
+![追随香气的地平线](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_800x480.jpg&rf=LaDigue_800x480.jpg "追随香气的地平线")
+若你正在寻找一场充满芬芳的夏日旅程，法国普罗旺斯的瓦朗索勒高原无疑是理想之选。从六月下旬至七月中旬，这片高原便会被紫色花海覆盖，宛如香气四溢的天然画布。高原坐落于海拔约1,900英尺的地带，面积达约300平方英里，是法国规模最大的薰衣草种植区之一。
+
+与普罗旺斯的其他地区一样，瓦朗索勒高原受益于充足的阳光，这一气候条件不仅适合薰衣草的生长，也吸引了大量偏好自然体验的夏季游客，与偏爱地中海沿岸的游客群体形成鲜明对比。
+
+[下载480](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_800x480.jpg&rf=LaDigue_800x480.jpg "瓦朗索勒高原的薰衣草田，法国")
+[下载720](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓦朗索勒高原的薰衣草田，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦朗索勒高原的薰衣草田，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_UHD.jpg&rf=LaDigue_UHD.jpg "瓦朗索勒高原的薰衣草田，法国")
