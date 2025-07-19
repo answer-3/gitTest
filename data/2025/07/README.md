@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_1024x768.jpg&rf=LaDigue_1024x768.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_UHD.jpg&rf=LaDigue_UHD.jpg "幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大")
+
+
+---
+### 2025 7月 20：在月光下起舞
+#### 望远镜下的月球表面照片（© Sergey Kuznetsov/Getty Images）
+![在月光下起舞](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_800x480.jpg&rf=LaDigue_800x480.jpg "在月光下起舞")
+每年7月20日是国家月球日，纪念1969年尼尔·阿姆斯特朗首次踏上月球这一具有历史意义的时刻。他的那句宣言：“这是我个人的一小步，却是人类的一大步”，也随之载入史册。紧随其后的是巴兹·奥尔德林，成为第二位登上月球的人。
+
+月球也会发生地震，这类震动被称为“月震”。部分月震可能在月球表面形成裂缝，导致气体逸出。对当年的阿波罗宇航员而言，那无疑是一片既陌生又神秘的着陆景观。
+
+[下载480](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_800x480.jpg&rf=LaDigue_800x480.jpg "望远镜下的月球表面照片")
+[下载720](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_1024x768.jpg&rf=LaDigue_1024x768.jpg "望远镜下的月球表面照片")
+[下载1080](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "望远镜下的月球表面照片")
+[下载UHD](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_UHD.jpg&rf=LaDigue_UHD.jpg "望远镜下的月球表面照片")
