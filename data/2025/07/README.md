@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_1024x768.jpg&rf=LaDigue_1024x768.jpg "望远镜下的月球表面照片")
 [下载1080](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "望远镜下的月球表面照片")
 [下载UHD](https://cn.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_UHD.jpg&rf=LaDigue_UHD.jpg "望远镜下的月球表面照片")
+
+
+---
+### 2025 7月 21：海洋中的热带雨林
+#### 浅海中的鹿角珊瑚（© blue-sea.cz/Shutterstock）
+![海洋中的热带雨林](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_800x480.jpg&rf=LaDigue_800x480.jpg "海洋中的热带雨林")
+每年七月的第三周被定为珊瑚礁意识周，旨在提醒人们：在广袤海洋的表层之下，存在一个生态复杂度堪比热带雨林的系统。尽管珊瑚礁仅覆盖不到1%的海底面积，却孕育了约25%的海洋生物。以今日图片中的鹿角珊瑚为例，这类珊瑚构成了关键的生态基底，为众多海洋物种提供庇护和栖息空间。这些生态系统不仅维系着海洋生物多样性，也在缓冲海岸侵蚀方面发挥重要作用，并通过旅游业与渔业促进沿海地区经济发展。
+
+珊瑚斑斓的色彩来源于其体内共生的微小藻类。这些藻类不仅赋予珊瑚颜色，还通过光合作用为其提供所需的营养物质。
+
+[下载480](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_800x480.jpg&rf=LaDigue_800x480.jpg "浅海中的鹿角珊瑚")
+[下载720](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1024x768.jpg&rf=LaDigue_1024x768.jpg "浅海中的鹿角珊瑚")
+[下载1080](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "浅海中的鹿角珊瑚")
+[下载UHD](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_UHD.jpg&rf=LaDigue_UHD.jpg "浅海中的鹿角珊瑚")
