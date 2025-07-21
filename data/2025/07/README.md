@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1024x768.jpg&rf=LaDigue_1024x768.jpg "浅海中的鹿角珊瑚")
 [下载1080](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "浅海中的鹿角珊瑚")
 [下载UHD](https://cn.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_UHD.jpg&rf=LaDigue_UHD.jpg "浅海中的鹿角珊瑚")
+
+
+---
+### 2025 7月 22：天山上的蓝宝石
+#### 夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区（© Feng Wei Photography/Getty Images）
+![天山上的蓝宝石](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_800x480.jpg&rf=LaDigue_800x480.jpg "天山上的蓝宝石")
+大暑是中国传统农历的第十二个节气，也是夏季的最后一个节气，象征着“暑气逼人”——一年中阳光最强烈、气温最热、湿度最高的时期。炎炎夏日来临，何不逃离尘嚣，前往新疆天山附近赛里木湖畔的绝美风景区呢？
+
+赛里木湖原本没有鱼，1998年从俄罗斯引进高白鲑、凹目白鲑等冷水鱼养殖，2000年首次捕捞成品鱼，结束了赛里木湖不产鱼的历史，经过十年的发展，已成为新疆重要的冷水鱼生产基地。
+
+[下载480](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_800x480.jpg&rf=LaDigue_800x480.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
+[下载720](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1024x768.jpg&rf=LaDigue_1024x768.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
+[下载1080](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_UHD.jpg&rf=LaDigue_UHD.jpg "夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区")
