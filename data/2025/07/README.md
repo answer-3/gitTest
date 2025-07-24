@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_1024x768.jpg&rf=LaDigue_1024x768.jpg "栖息在树枝上的灰燕鵙家族")
 [下载1080](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "栖息在树枝上的灰燕鵙家族")
 [下载UHD](https://cn.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_UHD.jpg&rf=LaDigue_UHD.jpg "栖息在树枝上的灰燕鵙家族")
+
+
+---
+### 2025 7月 25：生活的画卷
+#### 大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙（© Marco Bottigelli/Getty Images）
+![生活的画卷](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_800x480.jpg&rf=LaDigue_800x480.jpg "生活的画卷")
+如果你渴望在这个夏天探索一片遥远的风景，不妨跟随我们的步伐，走进拉斯帕尔马斯。这座充满活力的城市是加那利群岛的两大首府之一，同时也是群岛中人口最多的城市。加那利群岛隶属于西班牙，位于大西洋之上，而拉斯帕尔马斯坐落于大加那利岛东北海岸，拥有超过38万居民，是该地区重要的港口及商业中心。从空中俯瞰，这座城市色彩斑斓的建筑为像圣胡安山这样的社区增添了鲜明的层次感，这里的房屋依山而建。拉斯帕尔马斯建于1478年，历史底蕴深厚，曾受到西班牙殖民、海上贸易与移民潮的多重影响。如今，它以典型的亚热带沙漠气候闻名，冬季平均气温约16摄氏度，夏季则在27摄氏度左右。同时，这里还拥有被誉为欧洲最佳城市海滩之一的拉斯坎特拉斯海滩。
+
+拉斯帕尔马斯狂欢节是吸引游客的主要看点之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_800x480.jpg&rf=LaDigue_800x480.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1024x768.jpg&rf=LaDigue_1024x768.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_UHD.jpg&rf=LaDigue_UHD.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
