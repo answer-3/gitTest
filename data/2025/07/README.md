@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1024x768.jpg&rf=LaDigue_1024x768.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_UHD.jpg&rf=LaDigue_UHD.jpg "大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙")
+
+
+---
+### 2025 7月 26：潮汐的守护者
+#### 黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚（© Boonchet Ch./Getty Images）
+![潮汐的守护者](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐的守护者")
+当暮色降临印度尼西亚松巴岛的瓦拉基里海滩时，红树林的剪影宛如潮汐中的哨兵般矗立，既优雅又坚韧，充满生命力。今天是国际红树林生态系统保护日，让我们向这些在维系地球生命中发挥至关重要作用的非凡树木致以敬意。
+
+目前，据估计，在过去40年间，全球红树林的覆盖面积已减少了一半。
+
+[下载480](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_800x480.jpg&rf=LaDigue_800x480.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
