@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_UHD.jpg&rf=LaDigue_UHD.jpg "黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚")
+
+
+---
+### 2025 7月 27：同步闪耀
+#### 黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及（© Alex Mustard/Nature Picture Library）
+![同步闪耀](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_800x480.jpg&rf=LaDigue_800x480.jpg "同步闪耀")
+在埃及拉斯穆罕默德国家公园的鲨鱼礁，当你遇见一群黑鳍梭鱼时，就仿佛被一圈银色的漩涡所环绕。这些体型流畅、带有明显V形条纹的鱼类，几乎以完美的同步移动。它们缓慢而有序地盘旋，并非随意而为，而是进化出的行为策略，既可保障群体安全，也能在捕猎时占据优势。黑鳍梭鱼广泛分布于热带海域，从红海一直延伸至中太平洋。白天，它们在珊瑚礁附近紧密集结成群，黄昏时才会分散，追逐猎物。
+
+拉斯穆罕默德国家公园栖息着超过1,000种鱼类、40种海星、25种海胆、100多种软体动物以及150种甲壳类动物。
+
+[下载480](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_800x480.jpg&rf=LaDigue_800x480.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
+[下载720](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_1024x768.jpg&rf=LaDigue_1024x768.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
+[下载1080](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg&rf=LaDigue_UHD.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
