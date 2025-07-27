@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_1024x768.jpg&rf=LaDigue_1024x768.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
 [下载1080](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg&rf=LaDigue_UHD.jpg "黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及")
+
+
+---
+### 2025 7月 28：领先一步
+#### 蒙古草原上的蒙古包（© Michel Arnault/Shutterstock）
+![领先一步](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_800x480.jpg&rf=LaDigue_800x480.jpg "领先一步")
+每年7月28日的世界自然保护日提醒我们，保护自然不是可有可无的选择，而是一种必要的责任。今日图片所介绍的蒙古广袤草原正是这一理念的有力证明。这些生态系统是地球上最大且保持相对完整的温带草原之一，绵延数百万英亩的开阔土地。它们不仅养育了大约20万游牧牧民家庭，也为蒙古黄羊、雪豹等珍稀物种提供了重要的栖息地。
+
+冬季，草原上的草变得干燥且极易燃烧，使得野火更加频繁。草在火灾后通常能迅速恢复，但树木却无法如此，这在一定程度上解释了该地区树木稀少的原因。
+
+[下载480](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_800x480.jpg&rf=LaDigue_800x480.jpg "蒙古草原上的蒙古包")
+[下载720](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒙古草原上的蒙古包")
+[下载1080](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙古草原上的蒙古包")
+[下载UHD](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_UHD.jpg&rf=LaDigue_UHD.jpg "蒙古草原上的蒙古包")
