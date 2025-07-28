@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒙古草原上的蒙古包")
 [下载1080](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙古草原上的蒙古包")
 [下载UHD](https://cn.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_UHD.jpg&rf=LaDigue_UHD.jpg "蒙古草原上的蒙古包")
+
+
+---
+### 2025 7月 29：丛林女王
+#### 雌性孟加拉虎，坎哈国家公园，印度（© Axel Gomille/Nature Picture Library）
+![丛林女王](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_800x480.jpg&rf=LaDigue_800x480.jpg "丛林女王")
+你觉得自己能听到寂静吗？试着坐在印度心脏地带的坎哈国家公园的吉普车里，静静等待一只孟加拉虎现身。每年的国际老虎日都会引发人们对这种强大却濒危的大型猫科动物的关注。孟加拉虎不仅因其醒目的橙色皮毛和黑色条纹而闻名，更是顶级掠食者，对其所栖息生态系统的健康与平衡至关重要。通过控制鹿和野猪等猎物的数量，老虎帮助维护植被格局，并支撑其环境的整体生物多样性。
+
+老虎是印度河流域文明帕苏帕提印章上的动物之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_800x480.jpg&rf=LaDigue_800x480.jpg "雌性孟加拉虎，坎哈国家公园，印度")
+[下载720](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_1024x768.jpg&rf=LaDigue_1024x768.jpg "雌性孟加拉虎，坎哈国家公园，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雌性孟加拉虎，坎哈国家公园，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_UHD.jpg&rf=LaDigue_UHD.jpg "雌性孟加拉虎，坎哈国家公园，印度")
