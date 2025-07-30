@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_1024x768.jpg&rf=LaDigue_1024x768.jpg "里瓦德塞利亚，阿斯图里亚斯，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里瓦德塞利亚，阿斯图里亚斯，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_UHD.jpg&rf=LaDigue_UHD.jpg "里瓦德塞利亚，阿斯图里亚斯，西班牙")
+
+
+---
+### 2025 7月 31：远离尘嚣
+#### 纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国（© Russ Bishop/DanitaDelimont.com）
+![远离尘嚣](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_800x480.jpg&rf=LaDigue_800x480.jpg "远离尘嚣")
+这里没有路标，也没有纪念品摊位，只有一条长达11英里的泥泞小径、险峻的峭壁以及开阔的视野，通向夏威夷最为偏远的海滩之一。卡拉劳海滩位于考艾岛卡拉劳步道的尽头，是所有辛苦徒步者最终踏上沙滩的奖赏。唯一的陆路就是这条小径，它穿越山谷，沿着海岸峭壁蜿蜒前行。夏季，一些游客会选择划皮划艇抵达，但无论采用哪种方式，所有在此停留的人都需要提前获得许可。
+
+卡拉劳海滩及其周边栖息着多样的野生动物，包括夏威夷本地鸟类、野山羊以及色彩斑斓的热带植物。
+
+[下载480](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_800x480.jpg&rf=LaDigue_800x480.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_1024x768.jpg&rf=LaDigue_1024x768.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_UHD.jpg&rf=LaDigue_UHD.jpg "纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国")
