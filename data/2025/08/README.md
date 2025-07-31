@@ -1,0 +1,14 @@
+## 必应今日图片
+
+---
+### 2025 8月 1：惊喜随时上演
+#### 皇家英里大道, 爱丁堡, 苏格兰（© MEDITERRANEAN/Getty Images）
+![惊喜随时上演](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_800x480.jpg&rf=LaDigue_800x480.jpg "惊喜随时上演")
+每年八月，爱丁堡就不再仅仅是一座城市，而是彻底活跃起来，几乎可以说是字面意义上的活跃。从酒吧地下室到公园长椅，舞台会在最意想不到的地方冒出来，表演也会在宁静的街道上突然出现。欢迎来到爱丁堡艺穗节。这个节日的故事始于1947年，当时有八个剧团在未受邀请的情况下出现在爱丁堡国际艺术节上，但他们依然坚持演出。这种叛逆的精神从此延续下来，艺穗节由此诞生。
+
+爱丁堡艺穗节完全向所有人开放，任何有故事想讲，并能找到愿意接纳他们的场地的人，都可以登上这个舞台。
+
+[下载480](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_800x480.jpg&rf=LaDigue_800x480.jpg "皇家英里大道, 爱丁堡, 苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1024x768.jpg&rf=LaDigue_1024x768.jpg "皇家英里大道, 爱丁堡, 苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皇家英里大道, 爱丁堡, 苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg&rf=LaDigue_UHD.jpg "皇家英里大道, 爱丁堡, 苏格兰")
