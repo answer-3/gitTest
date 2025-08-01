@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1024x768.jpg&rf=LaDigue_1024x768.jpg "皇家英里大道, 爱丁堡, 苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皇家英里大道, 爱丁堡, 苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg&rf=LaDigue_UHD.jpg "皇家英里大道, 爱丁堡, 苏格兰")
+
+
+---
+### 2025 8月 2：古老的岩画
+#### 圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国（© Nicolas VINCENT/Adobe Stock）
+![古老的岩画](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_800x480.jpg&rf=LaDigue_800x480.jpg "古老的岩画")
+圆顶礁国家公园拥有一种亘古不变的魅力。在这里，红色的岩石峭壁、蜿蜒的峡谷与古老的故事，在犹他州沙漠的天空下彼此交织。1971年，这里被正式指定为国家公园。它不仅因鲜明的地质景观而引人驻足，更因那刻印在大地上的古老叙事与文化遗产而让人驻足沉思。
+
+圆顶礁国家公园被认为是美国所有国家公园中夜空最黑暗的地方之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_800x480.jpg&rf=LaDigue_800x480.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1024x768.jpg&rf=LaDigue_1024x768.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
