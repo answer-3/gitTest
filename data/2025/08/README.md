@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1024x768.jpg&rf=LaDigue_1024x768.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg&rf=LaDigue_UHD.jpg "圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国")
+
+
+---
+### 2025 8月 3：你好，黄色！
+#### 夏天田野里盛开的向日葵（© Arsgera/Shutterstock）
+![你好，黄色！](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_800x480.jpg&rf=LaDigue_800x480.jpg "你好，黄色！")
+向日葵色彩鲜艳、姿态大胆，深受蜜蜂、鸟类以及几乎所有人的喜爱。它们的属名“Helianthus”源自希腊语，意为“太阳之花”。这些一年生植物因其硕大、形似雏菊的花朵和迷人的魅力而广受赞誉。虽然向日葵也有红色、橙色和深红色等不同品种，但最常见的仍是那些带有棕色花心的经典黄色花朵。
+
+向日葵是一种生长在开阔地带的植物，通常扎根于潮湿的土壤中。它常见于大草原及其他草地、荒地、道路两旁、铁路沿线、稀树草原以及森林边缘。
+
+[下载480](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_800x480.jpg&rf=LaDigue_800x480.jpg "夏天田野里盛开的向日葵")
+[下载720](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1024x768.jpg&rf=LaDigue_1024x768.jpg "夏天田野里盛开的向日葵")
+[下载1080](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏天田野里盛开的向日葵")
+[下载UHD](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg&rf=LaDigue_UHD.jpg "夏天田野里盛开的向日葵")
