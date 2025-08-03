@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1024x768.jpg&rf=LaDigue_1024x768.jpg "夏天田野里盛开的向日葵")
 [下载1080](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夏天田野里盛开的向日葵")
 [下载UHD](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg&rf=LaDigue_UHD.jpg "夏天田野里盛开的向日葵")
+
+
+---
+### 2025 8月 4：这是谁的家？
+#### 巢中的乌林鸮, 芬兰（© imageBROKER.com/Alamy Stock Photo）
+![这是谁的家？](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_800x480.jpg&rf=LaDigue_800x480.jpg "这是谁的家？")
+作为夜空中的无声猎手，猫头鹰是动物王国中最迷人的动物之一。它们能够将头部旋转多达270度，再加上无声的飞行和卓越的夜视能力，充分展现了其非凡的适应性。全球已知有200多种猫头鹰，它们在维护生态平衡中发挥着关键作用，并深深融入人类的文化传统。每年的8月4日是国际猫头鹰意识日，这一天不仅是对它们在自然界中重要角色的致敬，也是提醒人们关注它们所面临威胁的重要时刻。
+
+乌林鸮体型庞大，因而需要定期进食，在冬季，它们每天要捕食多达7只田鼠大小的小型哺乳动物。
+
+[下载480](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_800x480.jpg&rf=LaDigue_800x480.jpg "巢中的乌林鸮, 芬兰")
+[下载720](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_1024x768.jpg&rf=LaDigue_1024x768.jpg "巢中的乌林鸮, 芬兰")
+[下载1080](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巢中的乌林鸮, 芬兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_UHD.jpg&rf=LaDigue_UHD.jpg "巢中的乌林鸮, 芬兰")
