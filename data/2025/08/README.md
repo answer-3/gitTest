@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_1024x768.jpg&rf=LaDigue_1024x768.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg&rf=LaDigue_UHD.jpg "拉霍亚的潮汐池‌, 加利福尼亚州, 美国")
+
+
+---
+### 2025 8月 6：马达加斯加原住民
+#### 环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加（© Andy Rouse/Nature Picture Library）
+![马达加斯加原住民](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_800x480.jpg&rf=LaDigue_800x480.jpg "马达加斯加原住民")
+看起来这只小家伙像是在玩耍，对吗？其实，当一只幼年环尾狐猴缠绕或拉扯自己的尾巴时，它正在练习一些至关重要的技能。环尾狐猴的幼崽在生命最初的几周会紧紧依附在母亲身上，起初趴在母亲的腹部，随后转移到背上。随着它们逐渐长大、开始离开母亲，追逐尾巴成为学习平衡、协调以及融入群体玩耍的重要一环。这些灵长类动物还会利用它们长长的尾巴进行交流。当它们集体移动时，会将尾巴像旗帜一样高高举起，以便在开阔地带保持队形。此外，响亮而有节奏的叫声、气味标记以及雄性之间的“臭味大战”，都让它们的社会生活显得格外丰富有趣。
+
+环尾狐猴是最擅长发声的灵长类动物之一，它们会用多样的叫声来保持群体联系或发出捕食者警报。
+
+[下载480](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_800x480.jpg&rf=LaDigue_800x480.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
+[下载720](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1024x768.jpg&rf=LaDigue_1024x768.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
+[下载1080](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
+[下载UHD](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg&rf=LaDigue_UHD.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
