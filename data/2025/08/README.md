@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1024x768.jpg&rf=LaDigue_1024x768.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
 [下载1080](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
 [下载UHD](https://cn.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg&rf=LaDigue_UHD.jpg "环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加")
+
+
+---
+### 2025 8月 7：海岸的密码
+#### 加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国（© Wiltser/Getty Images）
+![海岸的密码](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_800x480.jpg&rf=LaDigue_800x480.jpg "海岸的密码")
+在GPS尚未为船只导航之前，灯塔就是航海者的重要领航标。每座灯塔都拥有独特的闪光模式，即使在漆黑的夜晚，水手们也能凭此确定自身所处的位置。今天是美国国家灯塔日，正是向这些沿海守护者致敬的良机。1789年，美国国会通过法案，规定所有灯塔由联邦政府统一维护。不论你是历史爱好者、海岸探险者，还是单纯钟爱经典工程建筑的人，这一天都值得你去深入了解灯塔的故事，或与亲朋好友一同参观灯塔。
+
+最初，灯塔使用燃烧的煤炭甚至是篝火作为“灯”或光源。后来，灯塔改用燃油灯，直到1875年最终采用电灯。
+
+[下载480](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_800x480.jpg&rf=LaDigue_800x480.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_1024x768.jpg&rf=LaDigue_1024x768.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg&rf=LaDigue_UHD.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
