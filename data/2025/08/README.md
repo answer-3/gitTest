@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_1024x768.jpg&rf=LaDigue_1024x768.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg&rf=LaDigue_UHD.jpg "加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国")
+
+
+---
+### 2025 8月 8：奔流不息，为你为我
+#### 伊瓜苏瀑布的三火枪瀑布, 阿根廷（© Mark Meredith/Getty Images）
+![奔流不息，为你为我](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_800x480.jpg&rf=LaDigue_800x480.jpg "奔流不息，为你为我")
+没有任何声音能盖过伊瓜苏瀑布的轰鸣。但令人震撼的不仅是那轰鸣的声浪。这座横跨阿根廷与巴西边境的自然奇观，以其磅礴气势令人无法抗拒。广阔的瀑布群绵延近两英里，汇聚了270多道独立瀑布，每一处都展现出独特的水流奔腾和水雾蒸腾之景。
+
+“伊瓜苏”这个名字源自瓜拉尼语或图皮语，其中“y”意为“水”，“uasu”意为“巨大”，合起来即“巨大的水”。
+
+[下载480](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_800x480.jpg&rf=LaDigue_800x480.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
+[下载720](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_1024x768.jpg&rf=LaDigue_1024x768.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
+[下载1080](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
+[下载UHD](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg&rf=LaDigue_UHD.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
