@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_1024x768.jpg&rf=LaDigue_1024x768.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
 [下载1080](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
 [下载UHD](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg&rf=LaDigue_UHD.jpg "伊瓜苏瀑布的三火枪瀑布, 阿根廷")
+
+
+---
+### 2025 8月 9：致敬原住民之声
+#### 陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰（© Joppi/Getty Images）
+![致敬原住民之声](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_800x480.jpg&rf=LaDigue_800x480.jpg "致敬原住民之声")
+每年8月9日，联合国都会庆祝“世界土著人民国际日”，这一日是纪念原住民社区坚韧精神、智慧和丰富文化的时刻。在美国，这一天也成为反思美洲原住民部落历史与贡献的契机，同时鼓励人们与全球各地的土著人民携手共进。
+
+在陶波湖深水之上的悬崖峭壁上，高达14米的石刻由艺术家马塔希·布赖特韦尔创作，已成为新西兰北岛最受欢迎的旅游景点之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_800x480.jpg&rf=LaDigue_800x480.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
+[下载720](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_1024x768.jpg&rf=LaDigue_1024x768.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
+[下载1080](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg&rf=LaDigue_UHD.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
