@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_1024x768.jpg&rf=LaDigue_1024x768.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
 [下载1080](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg&rf=LaDigue_UHD.jpg "陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰")
+
+
+---
+### 2025 8月 10：为正义怒吼
+#### 马赛马拉国家保护区的雌狮,肯尼亚（© Tandem Stock/Adobe Stock）
+![为正义怒吼](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_800x480.jpg&rf=LaDigue_800x480.jpg "为正义怒吼")
+狮子的怒吼在非洲大草原上回荡，千百年来激发着人类的想象力。每年的8月10日是世界狮子日，这一天邀请我们共同庆祝这些具有象征意义的猛兽，同时唤起人们对它们数量日益减少以及保护工作的紧迫性的关注。
+
+和许多动物一样，狮子能够通过解谜来获取食物。与众不同的是，它们还能通过观察其他狮子如何解开谜题，从而学会应对同样的挑战。
+
+[下载480](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_1024x768.jpg&rf=LaDigue_1024x768.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉国家保护区的雌狮,肯尼亚")
