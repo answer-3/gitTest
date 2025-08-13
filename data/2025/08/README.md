@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_1024x768.jpg&rf=LaDigue_1024x768.jpg "一名男子从摩押附近的科罗纳拱门索降, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一名男子从摩押附近的科罗纳拱门索降, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&rf=LaDigue_UHD.jpg "一名男子从摩押附近的科罗纳拱门索降, 美国")
+
+
+---
+### 2025 8月 14：从山顶俯瞰
+#### 皮兹奈尔山缆车站, 格劳宾登州, 瑞士（© Roberto Moiola/Alamy）
+![从山顶俯瞰](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_800x480.jpg&rf=LaDigue_800x480.jpg "从山顶俯瞰")
+瑞士有一座山，它总是在俯瞰着你，但别太在意。皮茨奈尔峰坐落于阿尔布拉阿尔卑斯山脉，海拔高达10,026英尺，俯视着格劳宾登州的恩加丁山谷。从圣莫里茨出发，先乘坐缆索铁路抵达科尔维利亚，再换乘缆车直达山顶。登顶后，等待你的是观景平台、著名的阿尔卑斯野山羊雕像，以及一间独具特色的玻璃立方体餐厅，在这里可享受 360 度全景用餐体验。
+
+无论是冬季还是夏季，在海拔 3,000 多米的高处，都可以欣赏到皮茨奈尔峰日出的壮丽景观。
+
+[下载480](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_800x480.jpg&rf=LaDigue_800x480.jpg "皮兹奈尔山缆车站, 格劳宾登州, 瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_1024x768.jpg&rf=LaDigue_1024x768.jpg "皮兹奈尔山缆车站, 格劳宾登州, 瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皮兹奈尔山缆车站, 格劳宾登州, 瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg&rf=LaDigue_UHD.jpg "皮兹奈尔山缆车站, 格劳宾登州, 瑞士")
