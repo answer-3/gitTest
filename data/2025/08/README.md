@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1024x768.jpg&rf=LaDigue_1024x768.jpg "色彩斑斓的蜂巢, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "色彩斑斓的蜂巢, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg&rf=LaDigue_UHD.jpg "色彩斑斓的蜂巢, 意大利")
+
+
+---
+### 2025 8月 17：眺望大海的高塔
+#### 灵维格灯塔，维泽桑讷，丹麦（© Caroline Brundle Bugge/Getty Images）
+![眺望大海的高塔](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_800x480.jpg&rf=LaDigue_800x480.jpg "眺望大海的高塔")
+为抵御风暴并引导船只安全靠岸，灯塔最初应运而生。如今，它们不仅是导航工具，更成为文化遗产、建筑奇迹和人类与海洋之间深厚联结的象征。每年 8 月的第三个周末，世界各地都会迎来“国际灯塔灯船周”活动，让人们齐聚一堂，共同庆祝这些海岸地标。该活动由苏格兰艾尔业余无线电小组成员约翰·福赛思和迈克·达尔里姆普尔于 1998年发起，旨在提高对灯塔与灯船保护的意识，同时推广业余无线电通信，并促进国际友好交流。
+
+灯船的使用有着悠久的历史。早在 1311 年，中国就在江苏太仓刘家港西岸的沙嘴上设立了两艘标志船，并竖起旗帜，为粮船导航。这些装置可视为灯船的早期雏形。
+
+[下载480](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_800x480.jpg&rf=LaDigue_800x480.jpg "灵维格灯塔，维泽桑讷，丹麦")
+[下载720](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_1024x768.jpg&rf=LaDigue_1024x768.jpg "灵维格灯塔，维泽桑讷，丹麦")
+[下载1080](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灵维格灯塔，维泽桑讷，丹麦")
+[下载UHD](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg&rf=LaDigue_UHD.jpg "灵维格灯塔，维泽桑讷，丹麦")
