@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg&rf=LaDigue_UHD.jpg "雪崩湖步道，阿迪朗达克高峰区，纽约州，美国")
+
+
+---
+### 2025 8月 19：随海而流的岩石！
+#### 祖马亚的复理层，巴斯克地区，西班牙（© Eloi_Omella/Getty Images）
+![随海而流的岩石！](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_800x480.jpg&rf=LaDigue_800x480.jpg "随海而流的岩石！")
+这些壮观的岩层坐落于西班牙北部的祖马亚海岸，面向坎塔布连海。对于喜爱徒步的人来说，这里设有沿悬崖而建的远足路线，可通往邻近的德巴和穆特里库等小镇，沿途风光令人叹为观止。你知道吗？这里还是《权力的游戏》部分场景的取景地。它如同电影画面般的美景不仅吸引了无数好奇的旅行者，也吸引了众多地质学家前来考察。祖马亚是探索地球历史与自然之美的理想之地，一旦踏足，定会被它的奇岩异石与丰富地貌深深吸引。
+
+飞来石通常由砂岩和页岩交替组成，是地质学中典型的深海浊流沉积序列；祖马亚地区因其独特的飞来石地貌而被列为联合国教科文组织世界遗产地。
+
+[下载480](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_800x480.jpg&rf=LaDigue_800x480.jpg "祖马亚的复理层，巴斯克地区，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_1024x768.jpg&rf=LaDigue_1024x768.jpg "祖马亚的复理层，巴斯克地区，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "祖马亚的复理层，巴斯克地区，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg&rf=LaDigue_UHD.jpg "祖马亚的复理层，巴斯克地区，西班牙")
