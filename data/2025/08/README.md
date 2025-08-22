@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg&rf=LaDigue_UHD.jpg "帕卢斯连绵起伏的丘陵，华盛顿州，美国")
+
+
+---
+### 2025 8月 23：彩林叠翠间的瀑布
+#### 秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国（© tawatchaiprakobkit/Getty images）
+![彩林叠翠间的瀑布](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_800x480.jpg&rf=LaDigue_800x480.jpg "彩林叠翠间的瀑布")
+立秋是秋季的第二个节气。这意味着夏季的炎热将从此消失。不过，天气依然闷热，不像秋天。人们称这种天气为 “秋老虎”，通常从8月22日左右开始，到8月24日左右结束。
+
+诺日朗瀑布高20 米（66 英尺），宽 270 米（66 英尺），是中国最宽的瀑布。对面建有观景平台，可将糯日朗瀑布尽收眼底。许多中国电影和电视剧（如《西游记》）的场景都是在这里拍摄的。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_800x480.jpg&rf=LaDigue_800x480.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
+[下载720](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_UHD.jpg&rf=LaDigue_UHD.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
