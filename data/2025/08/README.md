@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
 [下载1080](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_UHD.jpg&rf=LaDigue_UHD.jpg "秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国")
+
+
+---
+### 2025 8月 24：“跟我来”
+#### 欧洲黇鹿‌，英格兰（© Enrique Aguirre Aves/Getty Images）
+![“跟我来”](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_800x480.jpg&rf=LaDigue_800x480.jpg "“跟我来”")
+扁平的鹿角？没错。斑点的皮毛？没错。灌木丛里的斜眼？也没错。跟欧洲黇鹿打个招呼吧。几个世纪以来，这些中等体型的鹿一直昂首阔步地穿梭于英国的林地和公园之中。虽然它们看起来很像家，但它们并非土生土长的。罗马人很可能把它们带到了这里，后来诺曼人又使它们在狩猎公园里变得常见。如今，它们已成为从苏塞克斯郡到苏格兰各地风景的常客。
+
+2024年的一项研究表明，土耳其黇鹿种群是欧洲大部分黇鹿以及世界各地引进种群的祖先。
+
+[下载480](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_800x480.jpg&rf=LaDigue_800x480.jpg "欧洲黇鹿‌，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_1024x768.jpg&rf=LaDigue_1024x768.jpg "欧洲黇鹿‌，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧洲黇鹿‌，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_UHD.jpg&rf=LaDigue_UHD.jpg "欧洲黇鹿‌，英格兰")
