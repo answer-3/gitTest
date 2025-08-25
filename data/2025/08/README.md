@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1024x768.jpg&rf=LaDigue_1024x768.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg&rf=LaDigue_UHD.jpg "方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国")
+
+
+---
+### 2025 8月 26：一座非凡的特鲁洛小镇
+#### 阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利（© Feng Wei Photography/Getty Images）
+![一座非凡的特鲁洛小镇](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_800x480.jpg&rf=LaDigue_800x480.jpg "一座非凡的特鲁洛小镇")
+如果童话故事里有建筑师，他们或许能创造出像意大利阿尔贝罗贝洛那样的景象。但这座小镇的标志性建筑——特鲁利（trulli，单数为trullo），并非靠魔杖，而是石灰岩、无砂浆砌筑，以及——根据某些理论——一些逃税手段——才得以建成。这些粉刷过的石屋顶部是干砌的石灰岩屋顶，形状像倒置的冰淇淋蛋筒。这是一种古老的建筑技术，在阿尔贝罗贝洛，更是巧妙之举。据说早在14世纪，当地人就试图通过建造房屋来逃避房产税，因为国王的税务官来袭时，这些房屋很容易被拆除。
+
+阿尔贝罗贝洛字面意思是“美丽的树”；是意大利南部普利亚大区巴里大都会区的一个小镇和市镇。
+
+[下载480](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
