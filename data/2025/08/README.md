@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利")
+
+
+---
+### 2025 8月 27：海洋上方的湖泊
+#### 瑟沃格湖，瓦加尔岛，法罗群岛（© Anton Petrus/Getty Images）
+![海洋上方的湖泊](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_800x480.jpg&rf=LaDigue_800x480.jpg "海洋上方的湖泊")
+大自然自有其奇妙之处，瑟沃格湖（Sørvágsvatn）便是其中最精彩的之一。世界湖泊日是探索法罗群岛（丹麦王国的一个自治行政区）这片视错觉的绝佳时机。这座位于沃格岛上的湖泊也被称为莱蒂斯湖（Leitisvatn），看似漂浮在海平面之上。实际上，它的海拔不到100英尺。索尔瓦格斯湖是法罗群岛最大的湖泊，面积约1.3平方英里，为Bøsdalafossur瀑布Bøsdalafossur提供水源，瀑布的湖水在那里奔腾而下，最终倾泻而入大海。
+
+该湖位于瓦加尔岛南部，通过Bøsdalafossur瀑布与大西洋相连，形成了壮丽的“悬湖”景观。
+
+[下载480](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_800x480.jpg&rf=LaDigue_800x480.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
+[下载720](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1024x768.jpg&rf=LaDigue_1024x768.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
+[下载1080](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg&rf=LaDigue_UHD.jpg "瑟沃格湖，瓦加尔岛，法罗群岛")
