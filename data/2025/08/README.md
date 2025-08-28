@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1024x768.jpg&rf=LaDigue_1024x768.jpg "大白鹭，匈牙利")
 [下载1080](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大白鹭，匈牙利")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg&rf=LaDigue_UHD.jpg "大白鹭，匈牙利")
+
+
+---
+### 2025 8月 29：网格的心脏
+#### 马约尔广场鸟瞰图, 马德里, 西班牙（© AirPano LLC/Amazing Aerial Agency）
+![网格的心脏](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_800x480.jpg&rf=LaDigue_800x480.jpg "网格的心脏")
+从高处俯瞰，马德里（西班牙首都）的马约尔广场（Plaza Mayor）上，整齐的拱廊与瓦片屋顶交织成一幅令人着迷的建筑和谐画卷。这片历史悠久的空间曾是热闹的集市广场“阿拉巴尔广场”（Plaza del Arrabal）的所在地，见证了这座城市数百年来的变迁。这一转变始于1561年，当时皇家法院从托莱多迁至马德里，广场随之归入马德里管辖。受秩序与宏伟愿景的启发，菲利普二世重新构想了这片广场——尽管实际施工直至菲利普三世统治时期的1617年才正式展开。
+
+经过一系列火灾后，马约尔广场在历史上曾多次重建。要到达那里，你可以选择其中一个入口，每个入口都别具特色。
+
+[下载480](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_800x480.jpg&rf=LaDigue_800x480.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1024x768.jpg&rf=LaDigue_1024x768.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_UHD.jpg&rf=LaDigue_UHD.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
