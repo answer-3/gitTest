@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1024x768.jpg&rf=LaDigue_1024x768.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_UHD.jpg&rf=LaDigue_UHD.jpg "马约尔广场鸟瞰图, 马德里, 西班牙")
+
+
+---
+### 2025 8月 30：有鳍且惊艳
+#### 阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫（© Bachir Moukarzel/Amazing Aerial Agency）
+![有鳍且惊艳](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_800x480.jpg&rf=LaDigue_800x480.jpg "有鳍且惊艳")
+如果你从未见过一条近40英尺长、身上布满斑点的鲸鲨在珊瑚礁间优雅游弋，那你可就错过了精彩的一幕。今天是国际鲸鲨日，提醒我们这些行动缓慢的巨型生物需要我们的关注。自2008年首次设立以来，这一天被研究人员和海洋保护倡导者用来聚焦保护工作，并警示船只撞击、塑料污染和无序旅游等威胁。
+
+自2016年以来，鲸鲨已被国际自然保护联盟列为濒危物种。
+
+[下载480](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_800x480.jpg&rf=LaDigue_800x480.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
+[下载720](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
+[下载1080](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_UHD.jpg&rf=LaDigue_UHD.jpg "阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫")
