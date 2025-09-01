@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_1024x768.jpg&rf=LaDigue_1024x768.jpg "凯撒施图尔，巴登-符腾堡，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "凯撒施图尔，巴登-符腾堡，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg&rf=LaDigue_UHD.jpg "凯撒施图尔，巴登-符腾堡，德国")
+
+
+---
+### 2025 9月 2：死谷的幽灵
+#### 骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚（© Inge Johnsson/Alamy Stock Photo）
+![死谷的幽灵](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_800x480.jpg&rf=LaDigue_800x480.jpg "死谷的幽灵")
+乍一看，这仿佛是一件超现实的艺术装置：黑暗的树木凝固在黏土平原上，背后是沙丘和闪烁的天空。但这幅来自纳米比亚纳米布-诺克卢夫国家公园的德阿夫莱（Deadvlei）的景象，完全是自然形成的。德阿夫莱（Deadvlei）这个名字意为“死沼泽”——这是曾经填满这个盆地的湿地的遗迹。
+
+纳米比亚的鸟类、啮齿类动物和人类都以骆驼刺树为食。该树的种子可以研磨成细粉，用作咖啡替代品，而树上分泌的树胶也可食用。
+
+[下载480](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_800x480.jpg&rf=LaDigue_800x480.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1024x768.jpg&rf=LaDigue_1024x768.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg&rf=LaDigue_UHD.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
