@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1024x768.jpg&rf=LaDigue_1024x768.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg&rf=LaDigue_UHD.jpg "骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚")
+
+
+---
+### 2025 9月 3：享受宁静
+#### 边界水域独木舟区荒野区, 明尼苏达州, 美国（© s.tomas/Shutterstock）
+![享受宁静](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_800x480.jpg&rf=LaDigue_800x480.jpg "享受宁静")
+这里是位于明尼苏达州东北部的边界水域独木舟荒野区。该区域跨越超过100万英亩，由相互连接的湖泊、河流和针叶林组成。这里的地貌由冰川雕琢的水道、岩石露头和茂密林地交织而成，为驼鹿、狼、鸥鸟及无数其他物种提供了理想栖息地。该地区拥有超过1200英里的皮划艇航线和2000多个露营地，为人们提供了难得的与自然亲密接触、享受宁静的机会。
+
+边境水域独木舟荒野区（BWCAW）被美国国家地理旅游杂志评为人生50个必游景点之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_800x480.jpg&rf=LaDigue_800x480.jpg "边界水域独木舟区荒野区, 明尼苏达州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_1024x768.jpg&rf=LaDigue_1024x768.jpg "边界水域独木舟区荒野区, 明尼苏达州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "边界水域独木舟区荒野区, 明尼苏达州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg&rf=LaDigue_UHD.jpg "边界水域独木舟区荒野区, 明尼苏达州, 美国")
