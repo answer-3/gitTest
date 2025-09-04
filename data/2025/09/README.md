@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_1024x768.jpg&rf=LaDigue_1024x768.jpg "灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_UHD.jpg&rf=LaDigue_UHD.jpg "灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国")
+
+
+---
+### 2025 9月 5：完美的夜晚
+#### 太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国（© EXTREME-PHOTOGRAPHER/Getty Images）
+![完美的夜晚](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_800x480.jpg&rf=LaDigue_800x480.jpg "完美的夜晚")
+当夕阳西下，洒下橙色、粉色和紫色的光芒时，圣莫尼卡从悠闲的氛围中转为灯火通明。真的！这片海滩拥有超过3英里的沙滩、一座历史悠久的码头，以及风景如画的太平洋海岸公路，不仅仅是一条美丽的海岸线。让我们先从沙滩说起。宽阔、洁净，无论是打排球还是悠闲地读一本好书，这里都是日光浴爱好者和沙堡建造者的理想之地。
+
+2028年夏季奥运会期间，该海滩将举办沙滩排球和冲浪比赛。
+
+[下载480](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_800x480.jpg&rf=LaDigue_800x480.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_1024x768.jpg&rf=LaDigue_1024x768.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_UHD.jpg&rf=LaDigue_UHD.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
