@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_1024x768.jpg&rf=LaDigue_1024x768.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_UHD.jpg&rf=LaDigue_UHD.jpg "太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国")
+
+
+---
+### 2025 9月 6：忙碌的一天
+#### 棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国（© jeremyborkat/Getty Images）
+![忙碌的一天](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_800x480.jpg&rf=LaDigue_800x480.jpg "忙碌的一天")
+它们飞向后方，俯冲轰炸对手，飞行距离比大多数公路旅行者更远。让我们来认识一下这只棕红蜂鸟——这张照片拍摄于加州旧金山的金门公园。棕红蜂鸟是塞拉斯福鲁斯属（Selasphorus）九个物种之一，因其锈红色的红橙色羽毛而得名。雄蜂鸟背部泛着铜色光泽，喉部红色斑块在阳光下闪闪发光。雌蜂鸟则较为温顺，但身体两侧和尾部仍带有棕红条纹。
+
+一项使用数字成像测速技术观察翅膀运动的研究发现，红蜂鸟在悬停时主要通过翅膀向下拍打（75% 的升力）而不是向上拍打（25% 的升力）来支撑其体重。
+
+[下载480](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_800x480.jpg&rf=LaDigue_800x480.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1024x768.jpg&rf=LaDigue_1024x768.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg&rf=LaDigue_UHD.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
