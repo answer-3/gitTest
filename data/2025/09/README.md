@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1024x768.jpg&rf=LaDigue_1024x768.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg&rf=LaDigue_UHD.jpg "棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国")
+
+
+---
+### 2025 9月 7：淡彩的梦境和静水
+#### 位于莫特拉瓦河河畔的格但斯克市，波兰（© Oscar Dominguez/TANDEM Stills + Motion）
+![淡彩的梦境和静水](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_800x480.jpg&rf=LaDigue_800x480.jpg "淡彩的梦境和静水")
+格但斯克是波兰滨海省一座充满活力的城市，鹅卵石铺就的魅力与清凉的海岸交相辉映。它是格但斯克湾沿岸的三联城（Tricity）的一部分，该区域包括邻近的沿海城市索波特和格丁尼亚市以及周边城镇。这座城市的名字很可能源于“Gdania”，这是流经该市的莫特拉瓦河（Motława）的早期名称。
+
+格但斯克港是波兰最大的港口，也是波罗的海沿岸最大的港口之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_800x480.jpg&rf=LaDigue_800x480.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
+[下载720](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_1024x768.jpg&rf=LaDigue_1024x768.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_UHD.jpg&rf=LaDigue_UHD.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
