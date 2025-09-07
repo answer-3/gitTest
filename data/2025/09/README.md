@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_1024x768.jpg&rf=LaDigue_1024x768.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_UHD.jpg&rf=LaDigue_UHD.jpg "位于莫特拉瓦河河畔的格但斯克市，波兰")
+
+
+---
+### 2025 9月 8：当天预订
+#### 乌节图书馆，新加坡（© Darwin Fan/Getty Images）
+![当天预订](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_800x480.jpg&rf=LaDigue_800x480.jpg "当天预订")
+读一读，就相信它——读写能力改变一切。作为一项基本人权，读写能力是一个强大的工具，它开启了通往更大自由和积极全球公民身份的大门。国际扫盲日（自1967年以来，每年的9月8日）认识到其深远的影响，提醒人们读写能力在为所有人建设更美好、更可持续的未来方面至关重要。今年的主题探讨了数字时代的读写能力，科技正在不断重塑人们学习、交流和参与社会的方式。因此，数字化参与既是挑战，也是机遇。
+
+识字能力对于培养批判性思维、辨别可靠信息以及应对复杂的信息环境也至关重要。
+
+[下载480](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_800x480.jpg&rf=LaDigue_800x480.jpg "乌节图书馆，新加坡")
+[下载720](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌节图书馆，新加坡")
+[下载1080](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌节图书馆，新加坡")
+[下载UHD](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_UHD.jpg&rf=LaDigue_UHD.jpg "乌节图书馆，新加坡")
