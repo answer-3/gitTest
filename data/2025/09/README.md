@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌节图书馆，新加坡")
 [下载1080](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌节图书馆，新加坡")
 [下载UHD](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_UHD.jpg&rf=LaDigue_UHD.jpg "乌节图书馆，新加坡")
+
+
+---
+### 2025 9月 9：她一根一根地准备着
+#### 一只雌性欧亚红松鼠正在搬运苔藓，瑞士（© Jean-Luc and Francoise Ziegler/Minden Pictures）
+![她一根一根地准备着](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_800x480.jpg&rf=LaDigue_800x480.jpg "她一根一根地准备着")
+敏捷、聪明、总是四处奔波——来认识一下欧亚红松鼠吧。这种栖息于树梢的绿叶动物遍布欧洲和亚洲的大部分地区。虽然它们更喜欢森林的庇护，但这种敏捷的生物也能轻松适应花园和公园的环境。它们用树枝在高高的树杈上筑巢，称为“drey”（巢穴），形成一个约25到30厘米宽的圆顶结构。图中的雌性欧亚红松鼠正在采集苔藓——苔藓是几种柔软材料中的一种，它们与树皮、树叶和草一起构成巢穴，使巢穴成为一个舒适、隔热的避难所。这些啮齿动物也可能占据树洞或啄木鸟遗弃的洞穴（如果有的话）。
+
+红松鼠的皮毛颜色随季节和地区而变化，从黑色到红色不等。红色在英国最为常见，而欧洲和亚洲各地则呈现出各种不同的颜色。
+
+[下载480](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_800x480.jpg&rf=LaDigue_800x480.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg&rf=LaDigue_UHD.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
