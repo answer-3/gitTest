@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg&rf=LaDigue_UHD.jpg "一只雌性欧亚红松鼠正在搬运苔藓，瑞士")
+
+
+---
+### 2025 9月 10：阳光明媚，赶紧打草
+#### 干草捆，北约克郡，英格兰（© Nick Brundle Photography/Getty Images）
+![阳光明媚，赶紧打草](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_800x480.jpg&rf=LaDigue_800x480.jpg "阳光明媚，赶紧打草")
+“趁着阳光明媚，赶紧打草”这句谚语听起来可能有些陈旧，但在农业领域，它却是实实在在的真理。打草捆在全球农业中扮演着至关重要的角色。这一过程包括割草、晾干和包装草料，以便在寒冷季节喂养牲畜。整个流程高度依赖天气条件：草料必须在打捆前完全干燥，否则容易发霉。农民必须在干旱天气来临时迅速行动，因此这成为了一场季节性的赛跑。
+
+干草捆主要用于保存和储存干草、豆科植物或其他牧草作物，作为牲畜饲料。
+
+[下载480](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_800x480.jpg&rf=LaDigue_800x480.jpg "干草捆，北约克郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_1024x768.jpg&rf=LaDigue_1024x768.jpg "干草捆，北约克郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "干草捆，北约克郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg&rf=LaDigue_UHD.jpg "干草捆，北约克郡，英格兰")
