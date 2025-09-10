@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_1024x768.jpg&rf=LaDigue_1024x768.jpg "干草捆，北约克郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "干草捆，北约克郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg&rf=LaDigue_UHD.jpg "干草捆，北约克郡，英格兰")
+
+
+---
+### 2025 9月 11：准备仰望天空吧！
+#### 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙（© Daniel Viñé Garcia/Getty Images）
+![准备仰望天空吧！](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_800x480.jpg&rf=LaDigue_800x480.jpg "准备仰望天空吧！")
+探索蒙弗拉圭国家公园，这座位于埃斯特雷马杜拉自治区心脏地带的自然瑰宝。从卡塞雷斯市的萨尔托德尔吉塔诺观景台，您可以欣赏到西班牙最壮丽的日落之一，四周环绕着嶙峋的悬崖，天空被金色的光辉染成一片金黄。两条河流——塔霍河和蒂埃塔尔河——横贯公园，塑造了其崎岖的地形，并滋养了丰富多样的野生动植物和地中海植被。这片天堂是自然爱好者和观鸟者的理想之地。秃鹫在公园上空自由翱翔——这里是欧洲最大的秃鹫群落所在地——与西班牙帝国鹰和埃及秃鹫共同栖息，使这里成为真正的生物多样性热点。
+
+黑美洲鹫并非蒙弗拉圭唯一的明星：这里还有数量可观的西班牙白肩雕。观赏这些雄伟的鸟类，或者像雕鸮和兀鹫这样的其他鸟类，都是一次难忘的体验。
+
+[下载480](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_800x480.jpg&rf=LaDigue_800x480.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg&rf=LaDigue_UHD.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
