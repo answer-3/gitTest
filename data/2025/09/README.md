@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg&rf=LaDigue_UHD.jpg "蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙")
+
+
+---
+### 2025 9月 12：野性畅游，自在徜徉
+#### 红海中的飞旋海豚群, 阿拉姆港, 埃及（© Franco Banfi/Nature Picture Library）
+![野性畅游，自在徜徉](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_800x480.jpg&rf=LaDigue_800x480.jpg "野性畅游，自在徜徉")
+凭借终身伴侣关系、独特的鸣叫声和回声定位能力，海豚远不止是聪明的游泳者。自2022年首次被观察到以来，世界海豚日旨在关注这些聪明的海洋哺乳动物及其赖以生存的海洋环境。这一天鼓励人们了解它们的行为以及所面临的威胁。超过40种海豚在我们的海洋中游弋，从毛伊海豚到伊洛瓦底海豚。它们是卓越的导航者、问题解决者和团队合作者。有些甚至会形成超级群落——数百或数千只海豚在近海共同迁徙的临时聚集。
+
+2021年的这一天，超过一千四百头海豚被杀害。这是有记录以来最严重的集体海豚屠杀事件之一。世界海豚日旨在纪念这些生命，并提醒我们保护海豚为何如此重要。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_800x480.jpg&rf=LaDigue_800x480.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
+[下载720](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1024x768.jpg&rf=LaDigue_1024x768.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
+[下载1080](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg&rf=LaDigue_UHD.jpg "红海中的飞旋海豚群, 阿拉姆港, 埃及")
