@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1024x768.jpg&rf=LaDigue_1024x768.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg&rf=LaDigue_UHD.jpg "烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国")
+
+
+---
+### 2025 9月 14：苔藓与薄雾
+#### 奥林匹克国家公园的瀑布, 华盛顿, 美国（© Chris Moore/TANDEM Stills + Motion）
+![苔藓与薄雾](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_800x480.jpg&rf=LaDigue_800x480.jpg "苔藓与薄雾")
+奥林匹克国家公园拥有罕见的多元地形——这正是其独特魅力所在。这里汇聚了高山脊岭、宁静的森林，以及美国本土48州中最长的未开发海岸线之一。这片占地近1400平方英里的华盛顿州区域，作为联合国教科文组织世界遗产地，在2024年吸引了超过370万名游客。该地区最初于1909年由西奥多·罗斯福总统以“奥林匹斯山国家纪念碑”之名设立为保护区，并于1938年正式成为国家公园。
+
+奥林匹克半岛以多雨著称，而雨水也带来了汹涌的河流，这些河流最终形成美丽的瀑布。其中一些瀑布可供轮椅通行，还有少数瀑布可通过船只或皮划艇抵达。
+
+[下载480](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_800x480.jpg&rf=LaDigue_800x480.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
