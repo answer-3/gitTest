@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&rf=LaDigue_UHD.jpg "奥林匹克国家公园的瀑布, 华盛顿, 美国")
+
+
+---
+### 2025 9月 15：涉水寻迹
+#### 黑翅长脚鹬, 法国（© Antonio Sementa/500px/Getty Images）
+![涉水寻迹](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_800x480.jpg&rf=LaDigue_800x480.jpg "涉水寻迹")
+在非洲闪烁的泻湖、亚洲蜿蜒的三角洲以及南欧的盐沼之间，一个优雅的身影悄然浮现，轻盈地徘徊于水天之间。黑翅长脚鹬以其修长纤细的红色双腿，在浅滩间悄然移动，举止间透着宁静的优雅。它们的存在有时会带来一种宁静的亲密感——两只鸟儿贴近漂浮，动作如同一场 delicate 的舞蹈，仿佛在分享一个只有湿地才能听到的秘密。它们以安静的精准度狩猎，轻轻地从水面拾取昆虫、幼虫和小型甲壳类动物。每一个动作都展现出对环境的微妙掌控，这种掌控力源于耐心与本能的结合。
+
+黑翅长脚鹬对自己的巢穴和幼鸟非常保护。它们会群起攻击并驱赶体型更大的鸟类。
+
+[下载480](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_800x480.jpg&rf=LaDigue_800x480.jpg "黑翅长脚鹬, 法国")
+[下载720](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_1024x768.jpg&rf=LaDigue_1024x768.jpg "黑翅长脚鹬, 法国")
+[下载1080](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑翅长脚鹬, 法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg&rf=LaDigue_UHD.jpg "黑翅长脚鹬, 法国")
