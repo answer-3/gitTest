@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_1024x768.jpg&rf=LaDigue_1024x768.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
 [下载1080](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
 [下载UHD](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_UHD.jpg&rf=LaDigue_UHD.jpg "从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象")
+
+
+---
+### 2025 9月 17：成长中的冠冕
+#### 迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国（© Grant Ordelheide/TANDEM Stills + Motion）
+![成长中的冠冕](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_800x480.jpg&rf=LaDigue_800x480.jpg "成长中的冠冕")
+他虽年轻，但这副鹿角已预示着未来的征战。在阿拉斯加的丹纳利国家公园，一只年轻的雄性驯鹿将头颅高高扬起，超越灌木丛的高度。此时，它的鹿角更像是冠冕而非武器——仍覆盖着绒毛。但即便如此，它们已隐约透露出一种由本能、较量与支配欲望悄然塑造的生命轨迹。
+
+驯鹿每年都会沿着相同的迁徙路线迁徙，常常在相同的树木上觅食。阿拉斯加驯鹿每天需要摄入9770千卡（32公斤）的热量。
+
+[下载480](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_800x480.jpg&rf=LaDigue_800x480.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1024x768.jpg&rf=LaDigue_1024x768.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg&rf=LaDigue_UHD.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
