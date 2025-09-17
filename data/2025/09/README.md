@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1024x768.jpg&rf=LaDigue_1024x768.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg&rf=LaDigue_UHD.jpg "迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国")
+
+
+---
+### 2025 9月 18：爱尔兰岛的西端
+#### 邓金码头的蛇形楼梯, 凯里郡, 爱尔兰（© Hugh O'Connor/Getty Images）
+![爱尔兰岛的西端](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_800x480.jpg&rf=LaDigue_800x480.jpg "爱尔兰岛的西端")
+这片令人惊叹的景色——天空与大西洋的浩瀚水域相接之处——只能徒步抵达。位于爱尔兰荒野而美丽的丁格尔半岛上，邓金码头是凯里郡最适合拍照的景点之一。这座小型码头以蜿蜒曲折的盘山小径闻名，小径如丝带般在悬崖边剧烈蜿蜒而下。这些陡峭的弯道不仅带来刺激感，更是通往下方码头的唯一路径，从这里出发的船只将驶向偏远的布拉斯凯特群岛。
+
+码头风景如画，是爱尔兰的标志性景点之一，这在一定程度上要归功于那些沿着狭窄小路从码头走向大陆的羊群！
+
+[下载480](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_800x480.jpg&rf=LaDigue_800x480.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_1024x768.jpg&rf=LaDigue_1024x768.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg&rf=LaDigue_UHD.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
