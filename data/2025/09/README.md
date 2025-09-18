@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_1024x768.jpg&rf=LaDigue_1024x768.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg&rf=LaDigue_UHD.jpg "邓金码头的蛇形楼梯, 凯里郡, 爱尔兰")
+
+
+---
+### 2025 9月 19：千般理由，邀您探索
+#### 千岛群岛地区，圣劳伦斯河，美加边境（© benedek/Getty Images）
+![千般理由，邀您探索](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_800x480.jpg&rf=LaDigue_800x480.jpg "千般理由，邀您探索")
+听到“千岛”这个词，你可能会想到一罐沙拉酱，但在这浓郁的酱汁背后，是北美最迷人的地区之一。千岛群岛是圣劳伦斯河上的一个群岛，横跨美国纽约州和加拿大安大略省。它由1800多个岛屿组成。有些岛屿上矗立着童话般的城堡，有些岛屿则狭小得几乎容不下一张吊床。此外，还有一座名为“刚好够住的岛”（Just Room Enough Island），岛上只有一栋房子和一棵孤树，名副其实。
+
+该地区于2002年被联合国教科文组织指定为世界生物圈保护区。
+
+[下载480](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_800x480.jpg&rf=LaDigue_800x480.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
+[下载720](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_1024x768.jpg&rf=LaDigue_1024x768.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
+[下载1080](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_UHD.jpg&rf=LaDigue_UHD.jpg "千岛群岛地区，圣劳伦斯河，美加边境")
