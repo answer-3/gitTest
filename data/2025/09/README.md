@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_1024x768.jpg&rf=LaDigue_1024x768.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，威廉王子湾，阿拉斯加州，美国")
+
+
+---
+### 2025 9月 22：到冬天的中途
+#### 秋日的白杨树，鱼湖国家森林，犹他州，美国（© Danita Delimont/Getty Images）
+![到冬天的中途](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_800x480.jpg&rf=LaDigue_800x480.jpg "到冬天的中途")
+随着九月的到来，今天图片中看到的白杨树开始了一年一度的变迁，呈现出鲜艳的黄色，在山丘上荡漾开来。这片森林覆盖了超过2300平方英里的湖泊、小径和山脉，秋天的色彩闪耀着光芒。看着季节与有着比我们遵循的公历更古老的事物同步变化，让人感到一种踏实的感觉。
+
+一些白杨克隆树，例如犹他州的潘多树林，是地球上最大、最古老的生物之一，其单一根系支撑着数千个基因相同的茎。
+
+[下载480](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_800x480.jpg&rf=LaDigue_800x480.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_UHD.jpg&rf=LaDigue_UHD.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
