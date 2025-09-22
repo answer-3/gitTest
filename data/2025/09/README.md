@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_UHD.jpg&rf=LaDigue_UHD.jpg "秋日的白杨树，鱼湖国家森林，犹他州，美国")
+
+
+---
+### 2025 9月 23：树树皆秋色
+#### 航拍中国江苏省常州翠竹公园（© Xu Changyu/Getty images）
+![树树皆秋色](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_800x480.jpg&rf=LaDigue_800x480.jpg "树树皆秋色")
+又是一年的秋分时节，众所周知，在这一天，全球各地昼夜的时间几乎是相等的。在幅员辽阔的中国，自南向北开始，秋季在每个地区有着不同颜色和不同的温度。大部分地区雨季在此时刚刚结束，秋天的凉意才刚刚开始，此时正是碧空万里，风和日丽的时节。中国的秋季颜色是叠翠鎏金的，许多植物的颜色由此时节开始，由苍翠的绿转为金黄或者橙红色。
+
+秋分曾是传统的“祭月节”，中秋节由“秋夕祭月”演变而来。
+
+[下载480](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_800x480.jpg&rf=LaDigue_800x480.jpg "航拍中国江苏省常州翠竹公园")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1024x768.jpg&rf=LaDigue_1024x768.jpg "航拍中国江苏省常州翠竹公园")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "航拍中国江苏省常州翠竹公园")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg&rf=LaDigue_UHD.jpg "航拍中国江苏省常州翠竹公园")
