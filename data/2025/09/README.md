@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1024x768.jpg&rf=LaDigue_1024x768.jpg "航拍中国江苏省常州翠竹公园")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "航拍中国江苏省常州翠竹公园")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg&rf=LaDigue_UHD.jpg "航拍中国江苏省常州翠竹公园")
+
+
+---
+### 2025 9月 24：孤独的巨人
+#### 魔鬼塔国家纪念碑, 怀俄明州，美国（© Laura Hedien/Getty Images）
+![孤独的巨人](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_800x480.jpg&rf=LaDigue_800x480.jpg "孤独的巨人")
+在怀俄明州东北部辽阔的草原上，矗立着魔鬼塔——一座从开阔平原拔地而起的岩石地貌。这座山丘原名熊屋，在1875年理查德·欧文·道奇上校率领的探险队中获得现名，据推测可能源于一名翻译将原住民的表述误译为“恶神之塔”。其官方名称省略的撇号符合标准地理命名惯例——因此路标均标注为“魔鬼塔”。1906年，西奥多·罗斯福总统将其指定为美国首个国家纪念碑，这一里程碑事件的周年纪念日正值今日。
+
+这块巨石的土著名称包括“熊屋”或“熊屋”。而魔鬼塔这个名字则是起源一位探险队翻译将一个土著名称误解为“恶神之塔”，后来被延用了。
+
+[下载480](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_800x480.jpg&rf=LaDigue_800x480.jpg "魔鬼塔国家纪念碑, 怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_1024x768.jpg&rf=LaDigue_1024x768.jpg "魔鬼塔国家纪念碑, 怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "魔鬼塔国家纪念碑, 怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_UHD.jpg&rf=LaDigue_UHD.jpg "魔鬼塔国家纪念碑, 怀俄明州，美国")
