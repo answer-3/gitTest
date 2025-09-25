@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1024x768.jpg&rf=LaDigue_1024x768.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
 [下载1080](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&rf=LaDigue_UHD.jpg "奇陶尔加尔堡, 拉贾斯坦邦, 印度")
+
+
+---
+### 2025 9月 26：速度与毛茸茸
+#### 最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国（© Donald M. Jones/Minden Pictures）
+![速度与毛茸茸](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_800x480.jpg&rf=LaDigue_800x480.jpg "速度与毛茸茸")
+在林地动物的世界里，体型最小的花栗鼠或许看起来像是“小松鼠”——但别小看它。凭借着敏锐的生存智慧和迅捷的双足，这种小型啮齿动物证明了“体型最小”并不意味着放弃你的潜力。它的体重还不到一副扑克牌，从鼻子到尾巴的长度不到10英寸（约25厘米），是北美体型最小的花栗鼠。
+
+一旦某个区域没有更多的食物可供觅食，最小的花栗鼠就会用尿液标记该区域，并且不会再回到该区域，直到重新供应为止。
+
+[下载480](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_800x480.jpg&rf=LaDigue_800x480.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_1024x768.jpg&rf=LaDigue_1024x768.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&rf=LaDigue_UHD.jpg "最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国")
