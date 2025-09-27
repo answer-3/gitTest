@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_1024x768.jpg&rf=LaDigue_1024x768.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg&rf=LaDigue_UHD.jpg "坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国")
+
+
+---
+### 2025 9月 28：品味皮恩扎
+#### 托斯卡纳的皮恩扎镇, 意大利（© zpagistock/Getty Images）
+![品味皮恩扎](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_800x480.jpg&rf=LaDigue_800x480.jpg "品味皮恩扎")
+有些城镇历经数个世纪缓慢演变。皮恩扎？15世纪，一位教皇为了证明某种观点——或许也为了炫耀——彻底重塑了它。这座意大利小镇坐落在奥尔恰山谷之上，周围环绕着连绵起伏的群山，其景象与你想象中的托斯卡纳一模一样：柏树成荫，蜿蜒的土路，偶尔还能看到几只绵羊。它宁静祥和。而当你踏入城墙，它便会变得灵动起来。
+
+皮恩扎历史中心作为文艺复兴人文主义城市设计理念的首次应用，在意大利乃至全球的后续城市发展中发挥了重要作用。
+
+[下载480](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_800x480.jpg&rf=LaDigue_800x480.jpg "托斯卡纳的皮恩扎镇, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1024x768.jpg&rf=LaDigue_1024x768.jpg "托斯卡纳的皮恩扎镇, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "托斯卡纳的皮恩扎镇, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg&rf=LaDigue_UHD.jpg "托斯卡纳的皮恩扎镇, 意大利")
