@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1024x768.jpg&rf=LaDigue_1024x768.jpg "托斯卡纳的皮恩扎镇, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "托斯卡纳的皮恩扎镇, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg&rf=LaDigue_UHD.jpg "托斯卡纳的皮恩扎镇, 意大利")
+
+
+---
+### 2025 9月 29：彩虹骑行与宁静氛围
+#### 豪滕镇的彩虹屋, 荷兰（© George Pachantouris/Getty Images）
+![彩虹骑行与宁静氛围](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_800x480.jpg&rf=LaDigue_800x480.jpg "彩虹骑行与宁静氛围")
+你不会找到纪念品商店或旅游地图指引方向——但沿着豪滕的里特普拉斯湖畔，你会偶然发现荷兰最令人意想不到的上镜景点之一。虽然许多人涌向阿姆斯特丹的运河或鹿特丹的方块屋，但这座宁静的通勤小镇却拥有独特的建筑风格。彩虹屋如海市蜃楼般鳞次栉比，闪耀着大胆的绘画色彩——一个住宅区变成了一个低调的文化地标。
+
+豪滕是一座通勤城市，其居民非常重视在家乡使用自行车。继2008年荣获“自行车之城”称号后，该市去年再次荣获该称号。
+
+[下载480](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_800x480.jpg&rf=LaDigue_800x480.jpg "豪滕镇的彩虹屋, 荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1024x768.jpg&rf=LaDigue_1024x768.jpg "豪滕镇的彩虹屋, 荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "豪滕镇的彩虹屋, 荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&rf=LaDigue_UHD.jpg "豪滕镇的彩虹屋, 荷兰")
