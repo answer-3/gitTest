@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1024x768.jpg&rf=LaDigue_1024x768.jpg "豪滕镇的彩虹屋, 荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "豪滕镇的彩虹屋, 荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&rf=LaDigue_UHD.jpg "豪滕镇的彩虹屋, 荷兰")
+
+
+---
+### 2025 9月 30：坚持重要的事情
+#### 桉树上的考拉, 大奥特维国家公园, 澳大利亚（© Jamie Lamb - elusive-images.co.uk/Getty Images）
+![坚持重要的事情](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_800x480.jpg&rf=LaDigue_800x480.jpg "坚持重要的事情")
+在大奥特维国家公园茂密的桉树林中，考拉如同沉睡的哨兵，守护着澳大利亚的野性灵魂。这些有袋动物常被误称为“考拉熊”，但实际上它们与袋熊的体型更接近，它们结实的无尾身躯、毛茸茸的耳朵和柔软的黑色鼻子很容易辨认。
+
+1998年，考拉为澳大利亚旅游业带来了超过10亿美元的收益，此后，考拉的国际知名度不断提升。
+
+[下载480](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_800x480.jpg&rf=LaDigue_800x480.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1024x768.jpg&rf=LaDigue_1024x768.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_UHD.jpg&rf=LaDigue_UHD.jpg "桉树上的考拉, 大奥特维国家公园, 澳大利亚")
