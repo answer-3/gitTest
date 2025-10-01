@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_1024x768.jpg&rf=LaDigue_1024x768.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_UHD.jpg&rf=LaDigue_UHD.jpg "克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国")
+
+
+---
+### 2025 10月 2：法定自然区
+#### 蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国（© DanitaDelimont.com/AWL Images/SuperStock）
+![法定自然区](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_800x480.jpg&rf=LaDigue_800x480.jpg "法定自然区")
+除了水，河流还承载着生命、历史和故事。它们是大自然对我们景观的永恒贡献，流淌过大地，跨越时间。蜿蜒流经怀俄明州大提顿国家公园的蛇河便是其中一颗瑰宝。这条河上一个尤为令人惊叹的景点是牛轭湖湾——今天这张照片中就出现了——平静的水面倒映着巍峨的提顿山脉，驼鹿和白头鹰等野生动物在这里繁衍生息。在这里，河水自由流淌，不受混凝土或商业的束缚，受到1968年今天签署的《野生与风景河流法案》的保护。
+
+在牛轭湖湾，莫兰山巍峨耸立，蛇河蜿蜒流淌，仿佛要流向提顿山脉（或从提顿山脉流出）。不难理解，这里为何成为“四大名胜”之一，并成为大提顿国家公园的标志性照片。
+
+[下载480](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_800x480.jpg&rf=LaDigue_800x480.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_1024x768.jpg&rf=LaDigue_1024x768.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
