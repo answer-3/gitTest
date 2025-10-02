@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_1024x768.jpg&rf=LaDigue_1024x768.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg "蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国")
+
+
+---
+### 2025 10月 3：雾中遐想
+#### 布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰（© Adam Mowery/TANDEM Stills + Motion）
+![雾中遐想](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_800x480.jpg&rf=LaDigue_800x480.jpg "雾中遐想")
+雾气袅袅，水波粼粼，传说萦绕——欢迎来到格伦·布里特尔。在苏格兰传说中的“雾岛”斯凯岛上，峡谷绵延展开，紫色石楠花如地毯般铺满崎岖山坡。这片土地回荡着历史的低语：远在八千年前新石器时代猎人循溪而行之前，恐龙的足迹早已镌刻于峭壁之上。九世纪时，航海的北欧维京人在此定居。数百年后，强大的麦克劳德与麦克唐纳氏族相继占据这片疆土，他们的城堡见证了无数战役与同盟的兴衰。
+
+2024年，格伦布里特尔地区的森林清理作业中，发现了一处名为布伦内尔的农耕聚落遗迹，该遗址可追溯至17或18世纪。
+
+[下载480](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_800x480.jpg&rf=LaDigue_800x480.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_1024x768.jpg&rf=LaDigue_1024x768.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
