@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_1024x768.jpg&rf=LaDigue_1024x768.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg "布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰")
+
+
+---
+### 2025 10月 4：使命必达
+#### 从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列（© NASA）
+![使命必达](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_800x480.jpg&rf=LaDigue_800x480.jpg "使命必达")
+10月4日至10日，世界空间周邀我们一同超越地球的界限，追逐星辰。这一盛事源于1957年苏联发射的"斯普特尼克1号"卫星，以及1967年签署的《外层空间条约》——这份开创性的国际承诺标志着人类和平探索宇宙的崭新篇章。在这一周里，教室里充满实验的热闹，天文馆里惊叹声不绝于耳，望远镜将人类与遥远星系相连。这些瞬间共同编织出科学探索的宇宙篇章，见证人类不断突破边界的执着追求。本年度主题明确：点燃新一代探索者、工程师和梦想家的热情，让他们准备好改写宇宙的篇章。
+
+2016年，国际空间站上培育出第一朵太空花——百日菊，为之后的太空农业开辟了道路。
+
+[下载480](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_800x480.jpg&rf=LaDigue_800x480.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
+[下载720](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_1024x768.jpg&rf=LaDigue_1024x768.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
+[下载1080](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
+[下载UHD](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_UHD.jpg&rf=LaDigue_UHD.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
