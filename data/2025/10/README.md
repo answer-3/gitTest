@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_1024x768.jpg&rf=LaDigue_1024x768.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
 [下载1080](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
 [下载UHD](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_UHD.jpg&rf=LaDigue_UHD.jpg "从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列")
+
+
+---
+### 2025 10月 5：庆祝智慧！
+#### 中欧森林里的鬼鸮（© Ondrej Prosicky/Alamy）
+![庆祝智慧！](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_800x480.jpg&rf=LaDigue_800x480.jpg "庆祝智慧！")
+教书育人的传统在整个人类历史中根深蒂固。今天，我们向那些倾注心血传播知识、塑造思想的教育者致敬。祝所有老师世界教师节快乐，感谢你们帮助我们成为更好的自己。
+
+北方鸮分布于北美洲北部和欧洲地区，它们栖息于茂密的针叶林和混交林之中。
+
+[下载480](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_800x480.jpg&rf=LaDigue_800x480.jpg "中欧森林里的鬼鸮")
+[下载720](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1024x768.jpg&rf=LaDigue_1024x768.jpg "中欧森林里的鬼鸮")
+[下载1080](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中欧森林里的鬼鸮")
+[下载UHD](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg&rf=LaDigue_UHD.jpg "中欧森林里的鬼鸮")
