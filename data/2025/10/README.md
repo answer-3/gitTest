@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1024x768.jpg&rf=LaDigue_1024x768.jpg "中欧森林里的鬼鸮")
 [下载1080](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中欧森林里的鬼鸮")
 [下载UHD](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg&rf=LaDigue_UHD.jpg "中欧森林里的鬼鸮")
+
+
+---
+### 2025 10月 6：千里共婵娟
+#### 安顺桥中秋灯展，成都，中国（© Philippe LEJEANVRE/Getty Images）
+![千里共婵娟](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_800x480.jpg&rf=LaDigue_800x480.jpg "千里共婵娟")
+当秋月当空，空气中已透出冬日的气息，那份战栗感总会在记忆中久久萦绕。中秋节——亦称月节——作为中国最珍视的节日之一，为丰收时节的尾声增添了又一抹神话色彩。它在农历八月十五日庆祝，今年恰逢10月6日。相传此夜，月神嫦娥正俯瞰人间。
+
+中秋节时还有一些地方特色型习俗，例如：广东等地的舞火龙、湖南湘西等地象征性的“偷南瓜”等等。
+
+[下载480](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_800x480.jpg&rf=LaDigue_800x480.jpg "安顺桥中秋灯展，成都，中国")
+[下载720](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_1024x768.jpg&rf=LaDigue_1024x768.jpg "安顺桥中秋灯展，成都，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安顺桥中秋灯展，成都，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg&rf=LaDigue_UHD.jpg "安顺桥中秋灯展，成都，中国")
