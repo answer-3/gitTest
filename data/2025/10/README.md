@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_1024x768.jpg&rf=LaDigue_1024x768.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_UHD.jpg&rf=LaDigue_UHD.jpg "里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国")
+
+
+---
+### 2025 10月 8：动态伪装
+#### 白日章鱼, 毛伊岛, 夏威夷, 美国（© Dave Fleetham/plainpicture）
+![动态伪装](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_800x480.jpg&rf=LaDigue_800x480.jpg "动态伪装")
+八只触手，魅力十足，今天的主角是章鱼！值此世界章鱼日，当我们赞叹它们的智慧时，更要意识到：即便是这些海洋天才，也无法逃避气候变化和污染威胁。守护它们的家园，就是守护海洋的未来。
+
+章鱼能大幅改变身体形状，从而穿过极其狭窄的缝隙。
+
+[下载480](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_800x480.jpg&rf=LaDigue_800x480.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_1024x768.jpg&rf=LaDigue_1024x768.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_UHD.jpg&rf=LaDigue_UHD.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
