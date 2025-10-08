@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_1024x768.jpg&rf=LaDigue_1024x768.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_UHD.jpg&rf=LaDigue_UHD.jpg "白日章鱼, 毛伊岛, 夏威夷, 美国")
+
+
+---
+### 2025 10月 9：宇宙在绽放
+#### ‌詹姆斯·韦伯太空望远镜观测的创生之柱（© NASA）
+![宇宙在绽放](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_800x480.jpg&rf=LaDigue_800x480.jpg "宇宙在绽放")
+随着世界空间周接近尾声，宇宙依然不断给予我们仰望的理由。想象一下云朵——不是在天空中飘动，而是在浩瀚星海中延展，孕育着新星的诞生。这正是NASA的詹姆斯·韦布太空望远镜所捕捉到的“创生之柱”景象。如图所示，色彩与细节前所未见，令人震撼。
+
+NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真1857年的布道，象征着神圣的宇宙根基。
+
+[下载480](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_800x480.jpg&rf=LaDigue_800x480.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
+[下载720](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_1024x768.jpg&rf=LaDigue_1024x768.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
+[下载1080](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
+[下载UHD](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_UHD.jpg&rf=LaDigue_UHD.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
