@@ -124,3 +124,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_1024x768.jpg&rf=LaDigue_1024x768.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
 [下载1080](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
 [下载UHD](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_UHD.jpg&rf=LaDigue_UHD.jpg "‌詹姆斯·韦伯太空望远镜观测的创生之柱")
+
+
+---
+### 2025 10月 10：思绪之礁
+#### 莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济（© David Wall/SuperStock）
+![思绪之礁](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_800x480.jpg&rf=LaDigue_800x480.jpg "思绪之礁")
+有些日子只标志着一个里程碑，而斐济的10月10日却见证了两个。1874年的这一天，斐济群岛正式成为英国殖民地。近一个世纪后的1970年，同一天，斐济升起了自己的国旗，宣布独立。斐济日是一个独特的全国性节日——既是反思的时刻，也是庆祝的日子。庆典从庄重的仪式开始，国旗冉冉升起，领导人发表演讲。学校和社区团体常常会举行历史重现或表演活动。街道上挤满了游行队伍，村庄里上演着传统舞蹈“梅克”，橄榄球场上热火朝天。家家户户则准备传统菜肴，比如将肉和根茎类作物埋在地下烤制的“洛沃”，以及用柑橘汁腌制的鱼“科科达”。
+
+莫努里基岛在2000年罗伯特·泽米吉斯执导、汤姆·汉克斯主演的电影《荒岛余生》中作为无名小岛的取景地而闻名。
+
+[下载480](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_800x480.jpg&rf=LaDigue_800x480.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
+[下载720](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1024x768.jpg&rf=LaDigue_1024x768.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
+[下载1080](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
+[下载UHD](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg&rf=LaDigue_UHD.jpg "莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济")
