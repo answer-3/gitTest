@@ -152,3 +152,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_1024x768.jpg&rf=LaDigue_1024x768.jpg "林鸳鸯，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林鸳鸯，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_UHD.jpg&rf=LaDigue_UHD.jpg "林鸳鸯，美国")
+
+
+---
+### 2025 10月 12：爱上萨拉纳克
+#### 萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国（© DenisTangneyJr/Getty Images）
+![爱上萨拉纳克](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_800x480.jpg&rf=LaDigue_800x480.jpg "爱上萨拉纳克")
+有些地方只是地图上的一个点，但萨拉纳克湖却是一年四季都吸引游客的热门目的地。尽管名字里带“湖”，这个小镇并不直接坐落在萨拉纳克湖群边，而是位于萨拉纳克河的一段宽阔水域——弗劳尔湖畔。几个世纪以来，这片被称为“阿迪朗达克之都”的地方，一直是原住民狩猎和迁徙的要地。到19世纪末，这里因成为疗养胜地而声名鹊起，爱德华·李文斯顿·特鲁多医生在此开创了肺结核的新鲜空气疗法。那一时期的“疗养小屋”至今依然保存完好。
+
+在纽约阿迪朗达克山脉附近，分布着200多个有名字的湖泊，以及超过3,000个小型湖泊、池塘和其他水域。
+
+[下载480](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_800x480.jpg&rf=LaDigue_800x480.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg&rf=LaDigue_UHD.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
