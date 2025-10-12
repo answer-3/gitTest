@@ -166,3 +166,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg&rf=LaDigue_UHD.jpg "萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国")
+
+
+---
+### 2025 10月 13：水声低语
+#### 温巴赫峡谷瀑布，巴伐利亚州，德国（© EyeEm Mobile GmbH/Getty Images）
+![水声低语](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_800x480.jpg&rf=LaDigue_800x480.jpg "水声低语")
+陡峭的岩石峡谷，湍急的水流，还有如画般的风景：位于贝希特斯加登国家公园拉姆绍附近的温巴赫峡谷，是巴伐利亚最壮观的峡谷之一。在今日图片中，温巴赫溪在约200米长的狭窄岩层间奔流而下，形成层层小瀑布，并在长年累月中于岩石上雕刻出令人惊叹的纹理。色彩斑斓的岩层揭示了数千年前的地质过程。
+
+国王湖碧绿如翡翠，坐落在贝希特斯加登国家公园中心，雄伟的瓦茨曼山东壁脚下。这里被誉为大自然最瑰丽的杰作之一
+
+[下载480](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_800x480.jpg&rf=LaDigue_800x480.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1024x768.jpg&rf=LaDigue_1024x768.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg&rf=LaDigue_UHD.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
