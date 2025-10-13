@@ -180,3 +180,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1024x768.jpg&rf=LaDigue_1024x768.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg&rf=LaDigue_UHD.jpg "温巴赫峡谷瀑布，巴伐利亚州，德国")
+
+
+---
+### 2025 10月 14：蓝与白的梦境
+#### 伊亚镇，圣托里尼岛，希腊（© f9photos/Getty Images）
+![蓝与白的梦境](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_800x480.jpg&rf=LaDigue_800x480.jpg "蓝与白的梦境")
+你是否曾想过生活在电影布景中是什么感觉？在希腊圣托里尼群岛的伊亚村，这种体验几乎成真。这里曾出现在《牛仔裤的夏天》和《古墓丽影》等影片中。标志性的基克拉迪式建筑——立方体造型、平顶的白色房屋——与悬崖边的壮丽景色，仿佛不属于现实世界。它独特的建筑风格起源于19世纪末，当时的水手和商人直接在火山悬崖上凿建房屋，夏季清凉、冬季温暖。而蓝白相间的粉刷，也不仅仅是为了美观：石灰涂层能让雨水顺流而下并被收集利用。如今，游客可以漫步在鹅卵石铺就的小巷中，参观海军海事博物馆，或登上圣尼古拉斯城堡遗址，欣赏那令人难忘的落日。
+
+伊亚镇的日落之美举世无双，绝非浪得虚名。观赏日落的最佳地点当属位于村尾的圣尼古拉城堡遗址，那里视野开阔，海景与地平线一览无余。
+
+[下载480](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_800x480.jpg&rf=LaDigue_800x480.jpg "伊亚镇，圣托里尼岛，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1024x768.jpg&rf=LaDigue_1024x768.jpg "伊亚镇，圣托里尼岛，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊亚镇，圣托里尼岛，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg&rf=LaDigue_UHD.jpg "伊亚镇，圣托里尼岛，希腊")
