@@ -194,3 +194,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1024x768.jpg&rf=LaDigue_1024x768.jpg "伊亚镇，圣托里尼岛，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊亚镇，圣托里尼岛，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg&rf=LaDigue_UHD.jpg "伊亚镇，圣托里尼岛，希腊")
+
+
+---
+### 2025 10月 15：孢子奇遇记
+#### 紫蜡蘑，西贝克，华盛顿州，美国（© Danita Delimont/Shutterstock）
+![孢子奇遇记](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_800x480.jpg&rf=LaDigue_800x480.jpg "孢子奇遇记")
+你知道吗？蘑菇也有属于自己的节日。每年的10月15日是“全国蘑菇日”，这一天邀请我们走进它们奇妙的世界。比如图中的紫蜡蘑，又称“紫晶欺骗菇”。它在幼年时紫色明艳、光彩夺目，但随着时间和环境的变化，颜色逐渐褪去，辨认起来就不那么容易了。尽管外表娇嫩而多变，这种宝石般的真菌不仅可以食用，还在生态系统中发挥着重要作用。
+
+因为它那鲜艳的紫水晶色会随着年龄增长和风吹雨打逐渐褪去，从而难以辨认，所以有了“欺骗者”这个俗名。
+
+[下载480](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_800x480.jpg&rf=LaDigue_800x480.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_1024x768.jpg&rf=LaDigue_1024x768.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&rf=LaDigue_UHD.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
