@@ -208,3 +208,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_1024x768.jpg&rf=LaDigue_1024x768.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&rf=LaDigue_UHD.jpg "紫蜡蘑，西贝克，华盛顿州，美国")
+
+
+---
+### 2025 10月 16：幽灵之猫
+#### 欧亚猞猁，西伯利亚（© Mario Plechaty Photograph/Shutterstock）
+![幽灵之猫](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_800x480.jpg&rf=LaDigue_800x480.jpg "幽灵之猫")
+想象一只能在森林中悄然隐去的猫科动物——这就是欧亚猞猁。它耳尖上的簇毛和锐利的目光令人过目难忘。作为四种猞猁中体型最大的一种，它体长可达42 英寸，肩高可达30英寸，身形矫健，兼具力量与敏捷。厚实的脚掌不仅能帮助它悄无声息地移动，还像雪鞋一样分散体重，使其能在厚厚的积雪中追逐猎物。它大多在夜间出没，白天则隐匿在灌木丛或岩石洞穴中，夜幕降临才悄然出击，捕猎鹿、野兔和松鼠。
+
+在一些文化中认为猞猁拥有超自然的视力，甚至能看穿坚实的物体。
+
+[下载480](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚猞猁，西伯利亚")
+[下载720](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1024x768.jpg&rf=LaDigue_1024x768.jpg "欧亚猞猁，西伯利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚猞猁，西伯利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚猞猁，西伯利亚")
