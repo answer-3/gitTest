@@ -222,3 +222,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1024x768.jpg&rf=LaDigue_1024x768.jpg "欧亚猞猁，西伯利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚猞猁，西伯利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚猞猁，西伯利亚")
+
+
+---
+### 2025 10月 17：爱上密歇根
+#### 罗克河瀑布，上半岛，密歇根州，美国（© Matt Anderson Photography/Getty Images）
+![爱上密歇根](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_800x480.jpg&rf=LaDigue_800x480.jpg "爱上密歇根")
+密歇根州罗克河峡谷深处，罗克河瀑布在冰川雕琢的景观中悄然显现，周遭密林环绕，层层历史沉淀。在上半岛这片土地上，人类足迹绵延数千年：原住民阿尔冈昆语族之后，法国与英国探险者接踵而至；19世纪采矿与伐木业繁荣时期，芬兰、瑞典及法裔加拿大移民在此定居。如今这片人烟稀少的区域仅容纳着密歇根州3%的居民，森林与瀑布依旧保留着近乎原始的宁静。
+
+该森林拥有超过100英里（160公里）的海岸线。两个区域均毗邻苏必利尔湖和密歇根湖。
+
+[下载480](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_800x480.jpg&rf=LaDigue_800x480.jpg "罗克河瀑布，上半岛，密歇根州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗克河瀑布，上半岛，密歇根州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗克河瀑布，上半岛，密歇根州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg&rf=LaDigue_UHD.jpg "罗克河瀑布，上半岛，密歇根州，美国")
