@@ -236,3 +236,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗克河瀑布，上半岛，密歇根州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗克河瀑布，上半岛，密歇根州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg&rf=LaDigue_UHD.jpg "罗克河瀑布，上半岛，密歇根州，美国")
+
+
+---
+### 2025 10月 18：那座铭记往昔的山丘
+#### 西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国（© dbstockphotoa/Getty Images）
+![那座铭记往昔的山丘](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_800x480.jpg&rf=LaDigue_800x480.jpg "那座铭记往昔的山丘")
+每年十月的第三个星期六是国际考古日，它鼓励我们“深入地表”，探索尘封的历史与文明的根源。该纪念日由美国考古学会（AIA）于2011年设立，如今世界各地通过举办活动、组织参观和亲身体验挖掘等方式来庆祝。
+
+这座山丘的用途至今仍是谜团，尽管已有多种推测被提出。
+
+[下载480](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_800x480.jpg&rf=LaDigue_800x480.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
+[下载720](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_1024x768.jpg&rf=LaDigue_1024x768.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg&rf=LaDigue_UHD.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
