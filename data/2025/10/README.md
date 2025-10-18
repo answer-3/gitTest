@@ -250,3 +250,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_1024x768.jpg&rf=LaDigue_1024x768.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg&rf=LaDigue_UHD.jpg "西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国")
+
+
+---
+### 2025 10月 19：痴迷科学
+#### 即将收获的苹果，明尼苏达州，美国（© Tammi Mild/Getty Images）
+![痴迷科学](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_800x480.jpg&rf=LaDigue_800x480.jpg "痴迷科学")
+在明尼苏达州，秋天不仅是红叶纷飞的季节，更是苹果飘香的时节。从八月中旬到十月下旬，全州各地的果园都敞开大门，迎接前来采摘的游客，园里种满了蜜脆、哈拉尔森等数十种苹果，每一品种都因风味、耐寒性和口感而闻名。今日图片定格了这一瞬间：枝头挂满成熟的果实，静待采收。
+
+苹果通过丝绸之路等早期贸易路线从中亚传播开来，先抵达古代中国，继而传入波斯，最终影响了古希腊和古罗马。
+
+[下载480](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_800x480.jpg&rf=LaDigue_800x480.jpg "即将收获的苹果，明尼苏达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_1024x768.jpg&rf=LaDigue_1024x768.jpg "即将收获的苹果，明尼苏达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "即将收获的苹果，明尼苏达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg&rf=LaDigue_UHD.jpg "即将收获的苹果，明尼苏达州，美国")
