@@ -278,3 +278,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1024x768.jpg&rf=LaDigue_1024x768.jpg "霍氏树懒，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "霍氏树懒，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg&rf=LaDigue_UHD.jpg "霍氏树懒，厄瓜多尔")
+
+
+---
+### 2025 10月 21：鸟喙的故事
+#### 哥斯达黎加的厚嘴巨嘴鸟（© Juan Carlos Vindas/Getty Images）
+![鸟喙的故事](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_800x480.jpg&rf=LaDigue_800x480.jpg "鸟喙的故事")
+胸前闪着一抹亮黄，喙部宛如艺术家手绘——这就是厚嘴巨嘴鸟。它隶属于巨嘴鸟科，与巨嘴啄木鸟同属一个大家族，是40多种巨嘴鸟中的一种。厚嘴巨嘴鸟分布于墨西哥南部至哥伦比亚北部的热带地区，日常大部分时间都在用彩虹般的鸟喙采摘水果，偶尔也会捕食昆虫、鸟蛋和小爬行动物。它的鸟喙长度约占身体总长的三分之一，不仅用于觅食，还能通过内部血管散发多余热量。厚嘴巨嘴鸟性格活泼，常结伴活动，在树冠之间滑翔、鸣叫，它们的翅膀长达7至8英寸，每年仅换羽一次。
+
+这些鸟常以喙相互"决斗"，并将果实抛入对方口中。它们还会"玩球"，一只鸟将果实抛向空中，另一只随即接住。
+
+[下载480](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_800x480.jpg&rf=LaDigue_800x480.jpg "哥斯达黎加的厚嘴巨嘴鸟")
+[下载720](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1024x768.jpg&rf=LaDigue_1024x768.jpg "哥斯达黎加的厚嘴巨嘴鸟")
+[下载1080](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥斯达黎加的厚嘴巨嘴鸟")
+[下载UHD](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg&rf=LaDigue_UHD.jpg "哥斯达黎加的厚嘴巨嘴鸟")
