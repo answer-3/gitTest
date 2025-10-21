@@ -292,3 +292,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1024x768.jpg&rf=LaDigue_1024x768.jpg "哥斯达黎加的厚嘴巨嘴鸟")
 [下载1080](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥斯达黎加的厚嘴巨嘴鸟")
 [下载UHD](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg&rf=LaDigue_UHD.jpg "哥斯达黎加的厚嘴巨嘴鸟")
+
+
+---
+### 2025 10月 22：刻在石头上
+#### 贝洛格拉齐克石林，保加利亚（© EvaL Miko/Shutterstock）
+![刻在石头上](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_800x480.jpg&rf=LaDigue_800x480.jpg "刻在石头上")
+在保加利亚巴尔干山脉西麓，贝洛格拉奇克石林如同一座天然画廊，每一块岩石都诉说着独特的故事。这些砂岩与石灰岩柱经过数百万年的风化与侵蚀，形成了千姿百态的奇特造型，当地人坚信其中有些轮廓酷似人物、动物，甚至完整的场景。因此，这些岩石也被赋予了富有想象力的名字，如"骑手岩"、"女学生岩"、"僧侣岩"等。在这片土地上，辨认岩石形状就像在玩一场大自然版的猜谜游戏，既有趣又充满惊喜。
+
+2009年1月，贝洛格拉奇克石林被提名为保加利亚参与"新七大自然奇观"评选活动的候选地。
+
+[下载480](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_800x480.jpg&rf=LaDigue_800x480.jpg "贝洛格拉齐克石林，保加利亚")
+[下载720](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1024x768.jpg&rf=LaDigue_1024x768.jpg "贝洛格拉齐克石林，保加利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贝洛格拉齐克石林，保加利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg "贝洛格拉齐克石林，保加利亚")
