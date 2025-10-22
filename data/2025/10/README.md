@@ -306,3 +306,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1024x768.jpg&rf=LaDigue_1024x768.jpg "贝洛格拉齐克石林，保加利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贝洛格拉齐克石林，保加利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg "贝洛格拉齐克石林，保加利亚")
+
+
+---
+### 2025 10月 23：雪中深情
+#### 雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度（© Oriol Alamany/naturepl.com）
+![雪中深情](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_800x480.jpg&rf=LaDigue_800x480.jpg "雪中深情")
+你可曾尝试在野外寻找雪豹的踪迹？它被称为"山中幽灵"绝非空穴来风——你更可能看到它的爪印，而不是它本尊的身影。但每年10月23日，这位神秘的高原猎手会走到聚光灯下，因为这一天是专为它设立的“国际雪豹日”，旨在呼吁保护这种难得一见的掠食者及其崎岖的栖息地。
+
+2021年，该物种被列入中国《国家重点保护野生动物名录》，属于国家一级保护野生动物。
+
+[下载480](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_800x480.jpg&rf=LaDigue_800x480.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
+[下载720](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
+[下载1080](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
