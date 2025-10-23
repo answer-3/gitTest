@@ -320,3 +320,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
 [下载1080](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg "雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度")
+
+
+---
+### 2025 10月 24：从“灰色幽灵”到幽灵传说
+#### 玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国（© Kit Leong/Shutterstock）
+![从“灰色幽灵”到幽灵传说](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_800x480.jpg&rf=LaDigue_800x480.jpg "从“灰色幽灵”到幽灵传说")
+她注定不会被遗忘。1936年，“玛丽女王号” 首次横渡大西洋时，便夺尽风采。这艘装饰艺术风格的巨轮打破了航速纪录，承载过无数名流、皇室成员与政要。二战期间，她的身份从“海上宫殿”骤然转变为“灰色幽灵”，奢华尽数褪去，取而代之的是装载盟军部队的使命。1967年，航行30年后，她退役停泊在加州长滩。如今，她的甲板化身为酒店走廊、导览展区，成为一座活生生的海事历史纪念碑。
+
+尽管在大萧条时期遭遇经济困境，导致建造一度停工数年，但冠达航运公司在建造“玛丽女王号”（最初被称为 534 号工程）时依旧不惜工本。
+
+[下载480](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_800x480.jpg&rf=LaDigue_800x480.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1024x768.jpg&rf=LaDigue_1024x768.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg&rf=LaDigue_UHD.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
