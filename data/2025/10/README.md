@@ -334,3 +334,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1024x768.jpg&rf=LaDigue_1024x768.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg&rf=LaDigue_UHD.jpg "玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国")
+
+
+---
+### 2025 10月 25：芬兰的活泥炭地
+#### 马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰（© romikatarina/Shutterstock）
+![芬兰的活泥炭地](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_800x480.jpg&rf=LaDigue_800x480.jpg "芬兰的活泥炭地")
+芬兰的沼泽大多是由泥炭地组成，它们源自大约 12,000 年前上一个冰河时期结束后，沉积物与苔藓不断堆积、分解而成。
+
+芬兰的沼泽大多是由泥炭地组成，它们源自大约 12,000 年前上一个冰河时期结束后，沉积物与苔藓不断堆积、分解而成。
+
+[下载480](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_800x480.jpg&rf=LaDigue_800x480.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
+[下载720](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1024x768.jpg&rf=LaDigue_1024x768.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
+[下载1080](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg&rf=LaDigue_UHD.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
