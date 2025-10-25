@@ -348,3 +348,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1024x768.jpg&rf=LaDigue_1024x768.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
 [下载1080](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg&rf=LaDigue_UHD.jpg "马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰")
+
+
+---
+### 2025 10月 26：南瓜日，今日登场！
+#### 北卡罗来纳州的南瓜农场, 美国（© Matthew H Irvin/Getty Images）
+![南瓜日，今日登场！](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_800x480.jpg&rf=LaDigue_800x480.jpg "南瓜日，今日登场！")
+没有什么比一片等待采摘的南瓜田更能代表秋天了。这些圆滚滚的南瓜出现在南瓜派、门廊装饰、拿铁和游行中。美国一些地方更是把对南瓜的喜爱推向极致——伊利诺伊州莫顿镇自称为“世界南瓜之都”，因为其产量高且与罐装南瓜产业联系紧密。新罕布什尔州则紧随其后，将南瓜定为州水果。
+
+2020 年，美国人均南瓜消费量为 6.44 磅。
+
+[下载480](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_800x480.jpg&rf=LaDigue_800x480.jpg "北卡罗来纳州的南瓜农场, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1024x768.jpg&rf=LaDigue_1024x768.jpg "北卡罗来纳州的南瓜农场, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北卡罗来纳州的南瓜农场, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&rf=LaDigue_UHD.jpg "北卡罗来纳州的南瓜农场, 美国")
