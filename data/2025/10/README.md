@@ -362,3 +362,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1024x768.jpg&rf=LaDigue_1024x768.jpg "北卡罗来纳州的南瓜农场, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北卡罗来纳州的南瓜农场, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&rf=LaDigue_UHD.jpg "北卡罗来纳州的南瓜农场, 美国")
+
+
+---
+### 2025 10月 27：千年秘境
+#### 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国（© Feng Wei Photography/Getty images）
+![千年秘境](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_800x480.jpg&rf=LaDigue_800x480.jpg "千年秘境")
+金塔沙漠胡杨林风景区位于甘肃省酒泉市金塔县西部巢湖林场，占地八万余亩，拥有西北地区最大的人工胡杨林。这些古老、耐寒耐旱的胡杨树，是第三纪遗留下来的，创造了“三千年古树”的生态奇观。金波湖水与胡杨林相映成趣，沙枣、柽柳等植物构成了多样的生态系统。
+
+胡杨林是一种神奇的群体，它们耐寒、耐热、耐碱、耐涝、耐干旱。
+
+[下载480](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_800x480.jpg&rf=LaDigue_800x480.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1024x768.jpg&rf=LaDigue_1024x768.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg&rf=LaDigue_UHD.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
