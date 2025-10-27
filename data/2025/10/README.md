@@ -376,3 +376,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1024x768.jpg&rf=LaDigue_1024x768.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg&rf=LaDigue_UHD.jpg "被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国")
+
+
+---
+### 2025 10月 28：通往石之奇境的大门
+#### 安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克（© Kseniya_Milner/Getty Images）
+![通往石之奇境的大门](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_800x480.jpg&rf=LaDigue_800x480.jpg "通往石之奇境的大门")
+从18世纪的最早来访者，到大火烧出小径的故事，这座“岩石之城”一直在诉说着生存的传奇。阿德尔什帕赫–特普利采岩石群位于捷克赫拉德茨–克拉洛韦州，是中欧最大的砂岩迷宫。几个世纪以来，这片悬崖与通道一直被森林覆盖，直到一场大火将树林烧尽，岩石的拱门、塔楼和蜿蜒的廊道才从灰烬中显露出来。最初的徒步小径由此开辟。不久之后，探险家和诗人用石刻铭文留下了他们的印记，描绘出一个既狂野又迷人的目的地。
+
+受中世纪神学的影响，哥特式建筑常给人神秘而幽暗的氛围，甚至带来一种浪漫的“死亡气息”，让人沉浸在其独特的魅力之中，不断追随、改进，最终形成了庞大的体系。
+
+[下载480](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_800x480.jpg&rf=LaDigue_800x480.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
+[下载720](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1024x768.jpg&rf=LaDigue_1024x768.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
+[下载1080](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
+[下载UHD](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg&rf=LaDigue_UHD.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
