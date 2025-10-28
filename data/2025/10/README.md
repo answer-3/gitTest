@@ -390,3 +390,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1024x768.jpg&rf=LaDigue_1024x768.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
 [下载1080](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
 [下载UHD](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg&rf=LaDigue_UHD.jpg "安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克")
+
+
+---
+### 2025 10月 29：时光扎根
+#### 法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙（© Lukas Jonaitis/Shutterstock）
+![时光扎根](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_800x480.jpg&rf=LaDigue_800x480.jpg "时光扎根")
+葡萄牙的马德拉岛位于本土西南约600英里处，这里隐藏着一片与众不同的森林。在岛的北坡上坐落着法纳尔森林，薄雾在古老的月桂树间飘荡。这些树是马德拉岛亚热带常绿林的一部分，亚热带常绿林是曾经广泛分布的月桂树林的杰出遗迹。它是现存规模最大的同类森林，其中约90%被认定为原始林。这里孕育着独特的动植物群，包括马德拉长趾鸽等特有物种，堪称一座活着的自然历史博物馆。
+
+这是马德拉岛和加那利群岛月桂林中的常见树种，富含精油，刚砍伐时木材会散发出刺鼻气味。
+
+[下载480](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_800x480.jpg&rf=LaDigue_800x480.jpg "法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_1024x768.jpg&rf=LaDigue_1024x768.jpg "法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg&rf=LaDigue_UHD.jpg "法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙")
