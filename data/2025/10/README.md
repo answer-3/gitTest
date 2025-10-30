@@ -418,3 +418,17 @@ NASA"创生之柱"的命名可追溯至英国浸信会牧师查尔斯·司布真
 [下载720](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_1024x768.jpg&rf=LaDigue_1024x768.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
 [下载1080](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg&rf=LaDigue_UHD.jpg "杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度")
+
+
+---
+### 2025 10月 31：在万圣节的魔咒之下
+#### 布兰城堡入口, 布拉索夫, 罗马尼亚（© blue sky in my pocket/Getty Images）
+![在万圣节的魔咒之下](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_800x480.jpg&rf=LaDigue_800x480.jpg "在万圣节的魔咒之下")
+今夜，万圣节的魔咒笼罩大地——而地球上仅有少数地方能与罗马尼亚的布兰城堡比肩，承载着如此深邃的谜团。这座建于14世纪的堡垒历经战火洗礼，见证君王更迭与帝国兴衰。但在此地，传说比历史更响亮。这座城堡坐落于以阴森传说闻名的特兰西瓦尼亚与昔日由弗拉德三世·德古拉统治的瓦拉几亚之间，散发着令人心悸的遗迹气息。弗拉德的残暴名声启发了布拉姆·斯托克1897年创作的小说《德古拉》。尽管故事背景并非布兰城堡，但它巍峨的轮廓与关于弗拉德幽灵出没的传闻，让真实与传说交织模糊，永远将这座城堡与人类最持久的传说之一紧密相连。
+
+第二次世界大战期间，伊莱安娜公主将布兰城堡改造成了伤兵医院，她本人曾接受过护士培训。
+
+[下载480](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_800x480.jpg&rf=LaDigue_800x480.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1024x768.jpg&rf=LaDigue_1024x768.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_UHD.jpg&rf=LaDigue_UHD.jpg "布兰城堡入口, 布拉索夫, 罗马尼亚")
