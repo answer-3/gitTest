@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1024x768.jpg&rf=LaDigue_1024x768.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_UHD.jpg&rf=LaDigue_UHD.jpg "野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国")
+
+
+---
+### 2025 11月 2：竹林吐纳清气，枫叶绚烂如火
+#### 岚山缤纷的枫叶与竹林, 京都, 日本（© DoctorEgg/Getty Images）
+![竹林吐纳清气，枫叶绚烂如火](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_800x480.jpg&rf=LaDigue_800x480.jpg "竹林吐纳清气，枫叶绚烂如火")
+今日，我们前往京都岚山地区，这里以迷人的四季风光闻名于世。此处，鲜艳的日本红枫与静谧的竹林交织出色彩与宁静的和谐画卷。这些以纤细深裂叶片著称的枫树，每逢秋日便幻化成炽烈的红、橙、金三色，吸引着全球游客纷至沓来。它们不仅因绝美姿态备受推崇，更承载着象征优雅、平和与生命无常的文化意蕴。
+
+岚山在四月初和十一月下半月最有吸引力（也最繁忙），此时樱花和秋色通常达到顶峰。
+
+[下载480](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_800x480.jpg&rf=LaDigue_800x480.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
+[下载720](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1024x768.jpg&rf=LaDigue_1024x768.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
+[下载1080](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
