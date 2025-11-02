@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1024x768.jpg&rf=LaDigue_1024x768.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
 [下载1080](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
 [下载UHD](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg "岚山缤纷的枫叶与竹林, 京都, 日本")
+
+
+---
+### 2025 11月 3：随波轻舞
+#### 在太平洋中游泳的水母, 格雷罗, 墨西哥（© Christian Vizl/TANDEM Stills + Motion）
+![随波轻舞](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_800x480.jpg&rf=LaDigue_800x480.jpg "随波轻舞")
+它们没有大脑、骨骼，甚至没有心脏，却已在地球海洋中游弋了五亿年。今天，世界水母日，这些摇曳生姿的奇妙生物终于迎来了属于它们的高光时刻——至少在海底世界如此。这一节日旨在推动保护水母栖息地，抵御污染、富营养化径流和海洋酸化等威胁。
+
+水母至少存在了5亿年，甚至可能有 7 亿年甚至更久，这使它们成为最古老的多器官动物群。
+
+[下载480](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_800x480.jpg&rf=LaDigue_800x480.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
+[下载720](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1024x768.jpg&rf=LaDigue_1024x768.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
+[下载1080](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg&rf=LaDigue_UHD.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
