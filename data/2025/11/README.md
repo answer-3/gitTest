@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1024x768.jpg&rf=LaDigue_1024x768.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg&rf=LaDigue_UHD.jpg "在太平洋中游泳的水母, 格雷罗, 墨西哥")
+
+
+---
+### 2025 11月 4：小心空隙，桥面将开启！
+#### 塔桥, 伦敦, 英格兰（© Nick Brundle Photography/Getty Images）
+![小心空隙，桥面将开启！](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_800x480.jpg&rf=LaDigue_800x480.jpg "小心空隙，桥面将开启！")
+有些桥梁只是连接两岸，而伦敦塔桥则连接着历史、工程与戏剧张力。自1894年起，这座伦敦地标矗立于伦敦塔旁，横跨泰晤士河，既能振奋人心，又能疏导交通。双塔矗立，蓝白相间的漆面，以及能像巨型吊桥般开启的活动桥面，塔桥不仅是交通解决方案，更像是一位舞台表演者。
+
+塔桥上拥有令人惊叹的高层步道，步道连接南北塔，从泰晤士河上方42米处，从东到西，可欣赏伦敦令人叹为观止的全景。
+
+[下载480](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_800x480.jpg&rf=LaDigue_800x480.jpg "塔桥, 伦敦, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1024x768.jpg&rf=LaDigue_1024x768.jpg "塔桥, 伦敦, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔桥, 伦敦, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg&rf=LaDigue_UHD.jpg "塔桥, 伦敦, 英格兰")
