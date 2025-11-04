@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1024x768.jpg&rf=LaDigue_1024x768.jpg "塔桥, 伦敦, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔桥, 伦敦, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg&rf=LaDigue_UHD.jpg "塔桥, 伦敦, 英格兰")
+
+
+---
+### 2025 11月 5：秋天来了，你开心吗？
+#### 佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙（© David Santiago Garcia/DEEPOL by plainpicture）
+![秋天来了，你开心吗？](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_800x480.jpg&rf=LaDigue_800x480.jpg "秋天来了，你开心吗？")
+西班牙的阿拉贡地区，一般让人想到的是阳光和灌木，而不是森林的阴凉与静谧。然而，当你沿着蒙卡约山坡向上攀登，故事会出现意想不到的转折：一片浓密、低语的山毛榉林悄然迎面而来。这座山犹如气候过山车：山脚是地中海灌木，半山腰是橡树和松林，再往上，霎时间你便置身佩尼亚罗亚，这片山毛榉仙境仿佛在宣告："由我来演绎秋天吧！"
+
+对于游客、徒步旅行者和好奇的游客来说，公园的一大亮点是它所拥有的真菌世界。
+
+[下载480](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_800x480.jpg&rf=LaDigue_800x480.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_1024x768.jpg&rf=LaDigue_1024x768.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_UHD.jpg&rf=LaDigue_UHD.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
