@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_1024x768.jpg&rf=LaDigue_1024x768.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_UHD.jpg&rf=LaDigue_UHD.jpg "佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙")
+
+
+---
+### 2025 11月 6：满天心愿
+#### 哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国（© MR. ANUJAK JAIMOOK/Getty Images）
+![满天心愿](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_800x480.jpg&rf=LaDigue_800x480.jpg "满天心愿")
+如果一盏天灯能承载你的心愿，你会许下什么？今晚，在泰国北部，义蓬节为你带来这样的机会。这个延续数百年的兰纳传统，在农历十二月举行，人们点亮孔明灯以纪念佛陀。相传每一盏灯都能带走厄运，照亮通往美好未来的道路。孩子们扶稳灯架，长者低声祈福，成百上千的灯火缓缓升起，越过树梢，点亮夜空。同一轮满月下，南方的水灯节也在进行，烛光点点的花船在水面缓缓漂流。
+
+天灯这个名字来源于中国，又可以叫孔明灯。它是一种古老的汉族手工艺品，属于高空明火飞行物。
+
+[下载480](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_800x480.jpg&rf=LaDigue_800x480.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
+[下载720](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1024x768.jpg&rf=LaDigue_1024x768.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
+[下载1080](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_UHD.jpg&rf=LaDigue_UHD.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
