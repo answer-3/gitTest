@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1024x768.jpg&rf=LaDigue_1024x768.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
 [下载1080](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_UHD.jpg&rf=LaDigue_UHD.jpg "哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国")
+
+
+---
+### 2025 11月 7：魅力十足的巨型动物
+#### 丘吉尔的北极熊，曼尼托巴省，加拿大（© karen crewe/Getty Images）
+![魅力十足的巨型动物](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_800x480.jpg&rf=LaDigue_800x480.jpg "魅力十足的巨型动物")
+北极熊是一种大型熊类，原产于北极及其附近地区。加拿大曼尼托巴省的丘吉尔是一个北极熊出没的地方。每年秋天，数百只北极熊聚集在这里，等待海湾结冰，以便再次捕猎海豹——它们的主要食物来源。有没有想过它们是如何保暖的？厚厚的脂肪层和浓密的底毛可以锁住热量。它们游过后，不易缠结的毛发会被甩干，天然油脂可以防止皮毛结冻。遗憾的是，气温升高会延缓结冰过程，迫使北极熊禁食更长时间。为了应对延迟，它们会休息、保存能量，有时还会在附近游荡。科学家们追踪它们的行踪，以了解迁徙模式每年的变化。北极熊周在纪念这些哺乳动物的同时，也提醒我们，它们的未来取决于我们如何应对全球变暖。
+
+北极熊的眼睛靠近头顶，这可以使它们在水面游泳时眼睛露出水面。
+
+[下载480](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_800x480.jpg&rf=LaDigue_800x480.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1024x768.jpg&rf=LaDigue_1024x768.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_UHD.jpg&rf=LaDigue_UHD.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
