@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1024x768.jpg&rf=LaDigue_1024x768.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_UHD.jpg&rf=LaDigue_UHD.jpg "丘吉尔的北极熊，曼尼托巴省，加拿大")
+
+
+---
+### 2025 11月 8：班登的明星岩石
+#### 班登海滩的海蚀柱，俄勒冈州，美国（© Grant Ordelheide/TANDEM Stills + Motion）
+![班登的明星岩石](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_800x480.jpg&rf=LaDigue_800x480.jpg "班登的明星岩石")
+驶出101号公路，俄勒冈州的班登便迎来了来访者，这里弥漫着咸咸的空气和轻柔的港口钟声。这座小镇始建于19世纪50年代，最初只是个小聚居地，后来发展成为木材和鲑鱼捕捞中心。蔓越莓成为当地的主要作物，至今仍是每年九月蔓越莓节的庆祝活动。老城区的木板路咖啡馆和画廊反映了那段历史，而科基尔河灯塔则矗立在布拉兹海滩，经过修复，依然屹立在那里，提醒着人们当年它曾指引船只的航向。
+
+海蚀柱在中国的沿海地区常可见到。大连的黑石礁、北戴河的鹰角石、山东青岛的石老人,以及东南的部分沿海地区亦有分布．
+
+[下载480](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_800x480.jpg&rf=LaDigue_800x480.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1024x768.jpg&rf=LaDigue_1024x768.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg&rf=LaDigue_UHD.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
