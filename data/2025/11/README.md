@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1024x768.jpg&rf=LaDigue_1024x768.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg&rf=LaDigue_UHD.jpg "班登海滩的海蚀柱，俄勒冈州，美国")
+
+
+---
+### 2025 11月 9：从前有一颗星星
+#### 礁湖星云中的星际云，由哈勃太空望远镜拍摄（© ESA/NASA）
+![从前有一颗星星](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_800x480.jpg&rf=LaDigue_800x480.jpg "从前有一颗星星")
+宇宙生机勃勃，生生不息。图中的礁湖星云中，一个名为NGC 6530的星团正在孕育新生恒星，这光芒提醒着我们，宇宙的起源早已交织其中。它距离我们约4350光年，已有数百万年历史，目前仍处于恒星形成的早期阶段。
+
+礁湖星云中存在着一些被称为“博克球状体（Bok globules）（Burnham）的暗星云，成为最值得注意的特征之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_800x480.jpg&rf=LaDigue_800x480.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
+[下载720](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1024x768.jpg&rf=LaDigue_1024x768.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
+[下载1080](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
+[下载UHD](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg&rf=LaDigue_UHD.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
