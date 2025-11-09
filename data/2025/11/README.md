@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1024x768.jpg&rf=LaDigue_1024x768.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
 [下载1080](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
 [下载UHD](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg&rf=LaDigue_UHD.jpg "礁湖星云中的星际云，由哈勃太空望远镜拍摄")
+
+
+---
+### 2025 11月 10：草原之下的生命
+#### 土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国（© Greg Vaughn/Getty Images）
+![草原之下的生命](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_800x480.jpg&rf=LaDigue_800x480.jpg "草原之下的生命")
+47年前的11月10日，南达科他州一片荒凉的草原被正式列入美国自然遗产名录。由风与水共同雕琢而成的劣地国家公园于 1978 年从国家纪念地升级为国家公园，获得更强的保护级别。公园内的悬崖与尖塔矗立在化石层之上，那些化石揭示了远古时代的犀牛、骆驼以及曾覆盖此地的亚热带海洋。然而，这座公园不仅是通往过去的窗口，它也守护着美国现存最大、最完整的混生草原生态系统之一。
+
+白河劣地作为重要的古生物学资源，其历史可追溯至当地原住民对这片土地的传统认知。
+
+[下载480](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_800x480.jpg&rf=LaDigue_800x480.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1024x768.jpg&rf=LaDigue_1024x768.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg&rf=LaDigue_UHD.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
