@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1024x768.jpg&rf=LaDigue_1024x768.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg&rf=LaDigue_UHD.jpg "土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国")
+
+
+---
+### 2025 11月 11：传奇之地
+#### 条顿堡森林的伊克斯坦岩石层，德国（© Michael Sroka/Getty Images）
+![传奇之地](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_800x480.jpg&rf=LaDigue_800x480.jpg "传奇之地")
+在德国北莱茵-威斯特法伦州的霍恩-巴特迈因贝格附近，条顿堡森林的腹地矗立着壮丽的埃克斯特恩岩石群。这些砂岩石柱形成于约7,000万年前，是德国最重要的自然与文化地标之一。高达35米的岩柱以其独特的形态与深厚的历史底蕴吸引着无数游客。早在中世纪，这里就被用作宗教祭祀之地，这一点从12世纪刻在岩石上的下十字架像浮雕中可见一斑，这是阿尔卑斯山以北最古老的此类浮雕。
+
+直到17世纪，这座山脊的官方名称仍是奥斯宁。1616 年，人们为了纪念公元9年的条顿堡森林战役，将其改名为“条顿堡森林”。不过，学者普遍认为这场战役很可能实际发生在卡尔克里泽。
+
+[下载480](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_800x480.jpg&rf=LaDigue_800x480.jpg "条顿堡森林的伊克斯坦岩石层，德国")
+[下载720](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_1024x768.jpg&rf=LaDigue_1024x768.jpg "条顿堡森林的伊克斯坦岩石层，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "条顿堡森林的伊克斯坦岩石层，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&rf=LaDigue_UHD.jpg "条顿堡森林的伊克斯坦岩石层，德国")
