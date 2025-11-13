@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1024x768.jpg&rf=LaDigue_1024x768.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_UHD.jpg&rf=LaDigue_UHD.jpg "夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚")
+
+
+---
+### 2025 11月 14：快节奏时代，别忘了慢下来
+#### 海牛妈妈和幼崽，水晶河，佛罗里达州，美国（© Gregory Sweeney/Getty Images）
+![快节奏时代，别忘了慢下来](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_800x480.jpg&rf=LaDigue_800x480.jpg "快节奏时代，别忘了慢下来")
+11月不仅是火鸡大餐和南瓜派的季节，它还有一个特别的主题——海牛保护宣传月。相比翻腾的海豚和抢镜的鲨鱼，海牛凭借“什么都不做”赢得了人们的喜爱，这就是它们的独特魅力。
+
+海牛科目前仅存三种物种，分别是亚马逊海牛、西印度海牛和西非海牛，它们是海牛目仅存的四种物种中的三种。
+
+[下载480](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_800x480.jpg&rf=LaDigue_800x480.jpg "海牛妈妈和幼崽，水晶河，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_1024x768.jpg&rf=LaDigue_1024x768.jpg "海牛妈妈和幼崽，水晶河，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海牛妈妈和幼崽，水晶河，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg "海牛妈妈和幼崽，水晶河，佛罗里达州，美国")
