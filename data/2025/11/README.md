@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_1024x768.jpg&rf=LaDigue_1024x768.jpg "里昂的一条穿廊，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "里昂的一条穿廊，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg&rf=LaDigue_UHD.jpg "里昂的一条穿廊，法国")
+
+
+---
+### 2025 11月 17：小径在召唤
+#### 谢南多厄国家公园的秋色，弗吉尼亚州，美国（© Michael Ver Sprill/Getty Images）
+![小径在召唤](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_800x480.jpg&rf=LaDigue_800x480.jpg "小径在召唤")
+谢南多厄国家公园，弗吉尼亚州的山间瑰宝。蓝岭山脉在此披上最华美的盛装：金黄的山核桃树、绯红的枫树，以及镀上青铜色的橡树。十一月的空气愈发清冽，秋日的余晖低声细语，悄悄停留在山坡上。沿着天际线公路缓缓前行，105英里的蜿蜒公路带你俯瞰云海翻涌，云影在山谷间轻轻流动，像思绪在天空漂移。这里还有超过500 英里的步道，沿着小径，你会走进瀑布奔流的深谷，登上触碰天际的高峰。石人峰、鹰嘴峰、暗谷瀑布——每处皆是石与叶谱写的诗篇，静待游人的脚步与风声共鸣。
+
+该公园最著名的景点当属天际线公路，这条全长105英里（169公里）的道路沿着山脊贯穿整个公园，风景壮丽，四季皆宜。此外，阿巴拉契亚步道中长达101英里（163公里）的路段也位于此公园内。
+
+[下载480](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_800x480.jpg&rf=LaDigue_800x480.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1024x768.jpg&rf=LaDigue_1024x768.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg&rf=LaDigue_UHD.jpg "谢南多厄国家公园的秋色，弗吉尼亚州，美国")
