@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_1024x768.jpg&rf=LaDigue_1024x768.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg&rf=LaDigue_UHD.jpg "雄性棕胁秋沙鸭，俄勒冈州，美国")
+
+
+---
+### 2025 11月 19：石头与符号，诉说一个民族的故事
+#### 匈牙利国会大厦，布达佩斯，匈牙利（© Alexander Spatari/Getty Images）
+![石头与符号，诉说一个民族的故事](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_800x480.jpg&rf=LaDigue_800x480.jpg "石头与符号，诉说一个民族的故事")
+走近一点，细节便开始诉说——每一块石头、每一座尖塔、每一尊雕像都仿佛藏着自己的故事。匈牙利议会大厦诞生于19世纪末，设计初衷是展现国家的雄心，将哥特复兴的典雅与独具匈牙利特色的元素巧妙融合。建筑师伊姆雷·施泰因德尔的构想历经二十余年，由逾千名工匠共同完成。中央穹顶高达315英尺（约96米），寓意1896年匈牙利建国千年纪念。整座建筑于1904年竣工，至今仍以恢宏之姿矗立在布达佩斯天际线，成为匈牙利力量的象征。
+
+匈牙利议会大厦融合多种风格，哥特式设计源自维也纳市政厅，穹顶等文艺复兴元素则取材于维也纳的胜利圣母教堂。
+
+[下载480](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_800x480.jpg&rf=LaDigue_800x480.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
+[下载720](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_1024x768.jpg&rf=LaDigue_1024x768.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
+[下载1080](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
+[下载UHD](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg&rf=LaDigue_UHD.jpg "匈牙利国会大厦，布达佩斯，匈牙利")
