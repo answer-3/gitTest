@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_1024x768.jpg&rf=LaDigue_1024x768.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg&rf=LaDigue_UHD.jpg "查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西")
+
+
+---
+### 2025 11月 21：带着“你好”的问候
+#### 罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国（© Vicki Jauron, Babylon and Beyond Photography/Getty Images）
+![带着“你好”的问候](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_800x480.jpg&rf=LaDigue_800x480.jpg "带着“你好”的问候")
+每只港海豹身上都有独一无二的斑点花纹：浅色背景上点缀深色斑，或深色底上布满浅色斑。它们的体色从棕黑到浅褐、灰色不等，腹部通常颜色较浅。这只拍摄于纽约长岛罗伯特·摩西州立公园的港海豹，似乎正在用自己的方式传递友好，一次挥动，一份好心情。这正是每年11月21日 “世界问候日” 所倡导的精神。这个充满善意的节日诞生于1973年，由两位美国兄弟布莱恩和迈克尔·麦考马克发起，作为对全球紧张局势的和平回应。那一年，他们用七种语言向世界各国领导人寄出1360封信，邀请他们参与首次庆祝活动。两人的信念简单却有力：沟通能够守护和平。 如今，已有180多个国家的人们参与其中。
+
+每只港海豹身上都有独一无二的斑点花纹：浅色背景上点缀深色斑，或深色底上布满浅色斑。它们的体色从棕黑到浅褐、灰色不等，腹部通常颜色较浅。
+
+[下载480](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_800x480.jpg&rf=LaDigue_800x480.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg&rf=LaDigue_UHD.jpg "罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国")
