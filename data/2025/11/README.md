@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1024x768.jpg&rf=LaDigue_1024x768.jpg "乐山大佛, 四川, 中国")
 [下载1080](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乐山大佛, 四川, 中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg&rf=LaDigue_UHD.jpg "乐山大佛, 四川, 中国")
+
+
+---
+### 2025 11月 23：大自然的秘密代码
+#### 马达加斯加菊石化石（© ThomasLENNE/Shutterstock）
+![大自然的秘密代码](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的秘密代码")
+仔细观察这块菊石化石。它那优雅盘旋的螺壳，曾是史前海洋生物的家，如今却蕴藏着一个数学的秘密：螺旋结构。每一个新的壳室都比前一个按比例增大，保持着恒定的生长比，这种规律常被认为与斐波那契数列密切相关。
+
+意大利数学家莱昂纳多·波纳奇，即人们熟知的斐波那契，于1202年在著作《算盘书》中首次将斐波那契数列的概念引入西欧。
+
+[下载480](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_800x480.jpg&rf=LaDigue_800x480.jpg "马达加斯加菊石化石")
+[下载720](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1024x768.jpg&rf=LaDigue_1024x768.jpg "马达加斯加菊石化石")
+[下载1080](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加菊石化石")
+[下载UHD](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加菊石化石")
