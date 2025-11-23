@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1024x768.jpg&rf=LaDigue_1024x768.jpg "马达加斯加菊石化石")
 [下载1080](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马达加斯加菊石化石")
 [下载UHD](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg "马达加斯加菊石化石")
+
+
+---
+### 2025 11月 24：岩石中的秘密
+#### 瓜廖尔堡, ‌中央邦, 印度（© ImagesofIndia/Shutterstock）
+![岩石中的秘密](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_800x480.jpg&rf=LaDigue_800x480.jpg "岩石中的秘密")
+位于印度中央邦的瓜廖尔，不仅是一座城市，更是印度历史篇章中浓墨重彩的一页。高耸入云的瓜廖尔堡建于公元6世纪是一座历经无数王朝兴衰、充满传奇色彩的山地堡垒。凭借其坚固与宏伟，这座堡垒被誉为“印度的直布罗陀”，并曾获莫卧儿皇帝巴布尔盛赞，称其为“印度所有堡垒中的明珠”。从托马尔王朝到莫卧儿王朝，瓜廖尔堡见证了无数权力更迭、战争纷争与宫廷秘事，也流传着关于隐藏宝藏的神秘传说。
+
+堡垒内部还坐落着多处历史建筑，其中包括由马多·拉奥·辛迪亚于1897年创办的辛迪亚学校，最初仅面向印度诸侯和贵族之子开放的精英学府。
+
+[下载480](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_800x480.jpg&rf=LaDigue_800x480.jpg "瓜廖尔堡, ‌中央邦, 印度")
+[下载720](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓜廖尔堡, ‌中央邦, 印度")
+[下载1080](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜廖尔堡, ‌中央邦, 印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg "瓜廖尔堡, ‌中央邦, 印度")
