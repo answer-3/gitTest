@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1024x768.jpg&rf=LaDigue_1024x768.jpg "罗马的特雷维喷泉, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "罗马的特雷维喷泉, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg "罗马的特雷维喷泉, 意大利")
+
+
+---
+### 2025 11月 26：让树叶诉说历史
+#### 特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙（© cinoby/Getty Images）
+![让树叶诉说历史](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_800x480.jpg&rf=LaDigue_800x480.jpg "让树叶诉说历史")
+古老而充满生机，扭曲却坚韧不拔，橄榄树可以存活超过一千年。即便树干伤痕累累、内部中空，它们依然年复一年抽出新叶，成为记录风霜、旱灾与烈火的生命见证。2019年，联合国教科文组织将11月26日定为世界橄榄树日，以纪念这种自约公元前6000年起就被人类栽培的树种。橄榄自古以来不仅承载着实用价值，也蕴含着深刻的象征意义：橄榄油被用于涂抹仪式、医药与日常食用；橄榄叶编织的花环曾加冕奥运冠军；而橄榄枝，更成为延续至今的和平象征。
+
+每棵成年的橄榄树根据其健康状况和特性，每年可产橄榄15至45公斤。为了维持产量，通常建议每隔三到四年进行一次修剪，保留更健康、年轻的枝条，让生命力得以延续。
+
+[下载480](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_800x480.jpg&rf=LaDigue_800x480.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_1024x768.jpg&rf=LaDigue_1024x768.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
