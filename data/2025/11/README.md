@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_1024x768.jpg&rf=LaDigue_1024x768.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg "特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙")
+
+
+---
+### 2025 11月 27：潮起潮落的坚守
+#### 伊斯特本码头, 东萨塞克斯郡, 英格兰（© Tolga_TEZCAN/Getty Images）
+![潮起潮落的坚守](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_800x480.jpg&rf=LaDigue_800x480.jpg "潮起潮落的坚守")
+作为英国海滨的地标之一，伊斯特本码头不仅掀起浪花，更在浪潮中屹立了150余年。它于 1870年正式开放，这座维多利亚时代的奇迹经历了风暴、火灾，甚至战争的洗礼。码头优雅地伸向英吉利海峡，最初作为蒸汽船的停靠点，后来随着时间的推移，逐渐演变为一处可以漫步于海面之上，在游戏机前投入几枚硬币，收获几段美好回忆的休闲胜地。
+
+第二次世界大战期间，伊斯特本码头的尽头安装了机枪平台，这座原本轻松欢快的海滨游乐地一度化身为抵御敌军登陆的防御工事。
+
+[下载480](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_800x480.jpg&rf=LaDigue_800x480.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_1024x768.jpg&rf=LaDigue_1024x768.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_UHD.jpg&rf=LaDigue_UHD.jpg "伊斯特本码头, 东萨塞克斯郡, 英格兰")
