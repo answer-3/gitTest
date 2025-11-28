@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_UHD.jpg&rf=LaDigue_UHD.jpg "瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利")
+
+
+---
+### 2025 11月 29：哎呀，好冷啊！
+#### 荷兰梵高国家森林公园的马鹿雄鹿, 荷兰（© CreativeNature_nl/Getty Images）
+![哎呀，好冷啊！](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_800x480.jpg&rf=LaDigue_800x480.jpg "哎呀，好冷啊！")
+想象一下，在一片21平方英里的开阔土地，野生动物自由穿梭，一头雄鹿昂首炫耀着它的鹿角王冠。1909年，安东·克勒勒与海伦娜·克勒勒·穆勒在荷兰海尔德兰开启了一个梦想：建造一座私人庄园，后来成为了梵高国家森林公园。他们的理念是让艺术融入自然，于是将雕塑与景观相结合——亨利·摩尔的《三种直立动机》伫立在潘佩尔瑟沙地，比利时建筑师亨利·范德维尔德设计的总统斯泰恩石凳静静守候，众多艺术作品点缀其间。
+
+荷兰梵高国家森林公园建立的初衷，是为了保护分布在荒原和林地上的500种植物。同时，这里也是红鹿、狍子以及众多野生动物的栖息地，公园致力于守护它们的家园。
+
+[下载480](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_800x480.jpg&rf=LaDigue_800x480.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_1024x768.jpg&rf=LaDigue_1024x768.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_UHD.jpg&rf=LaDigue_UHD.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
