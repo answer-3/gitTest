@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_1024x768.jpg&rf=LaDigue_1024x768.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_UHD.jpg&rf=LaDigue_UHD.jpg "荷兰梵高国家森林公园的马鹿雄鹿, 荷兰")
+
+
+---
+### 2025 11月 30：一路闪耀
+#### 莱比锡圣诞集市, 德国（© Krzysztof Baranowski/Getty Images）
+![一路闪耀](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_800x480.jpg&rf=LaDigue_800x480.jpg "一路闪耀")
+你知道567年前的圣诞集市，人们都买些什么吗？不是昂贵的饰品，也不是精致的纪念品，而是蜡烛、香料、本地特产、针织品和玩具。莱比锡的圣诞集市始于1458年，很快成为商人和当地居民最喜爱的去处。如今，这个集市遍布历史老城，约有300个摊位，汇聚文化与美食，是德国规模最大的圣诞集市之一。想象一下，街道上商贩的叫卖声此起彼伏，孩子们追随着蜂蜜姜饼的甜香奔跑。这里是人们聚在一起庆祝冬季、边喝热红酒边聊新闻的地方。圣诞集市从来不仅仅是购物，它更是一种逃离日常的温暖仪式。
+
+除了奥古斯特广场上的童话世界，38米高的摩天轮还能让你俯瞰整座莱比锡，视野独一无二。
+
+[下载480](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_800x480.jpg&rf=LaDigue_800x480.jpg "莱比锡圣诞集市, 德国")
+[下载720](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_1024x768.jpg&rf=LaDigue_1024x768.jpg "莱比锡圣诞集市, 德国")
+[下载1080](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莱比锡圣诞集市, 德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&rf=LaDigue_UHD.jpg "莱比锡圣诞集市, 德国")
