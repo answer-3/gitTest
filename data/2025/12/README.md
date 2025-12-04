@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1024x768.jpg&rf=LaDigue_1024x768.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚")
+
+
+---
+### 2025 12月 5：绘制星图的城市
+#### 科潘的玛雅遗址，洪都拉斯（© diegograndi/Getty Images）
+![绘制星图的城市](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_800x480.jpg&rf=LaDigue_800x480.jpg "绘制星图的城市")
+在洪都拉斯西部一片静谧山谷中，坐落着科潘古城的遗址，这座城市曾是古代玛雅文明的璀璨明珠。在这座城市里，天空既是罗盘，又是日历，指引着天象，塑造了庙宇的方向、仪式的时间与人们的生活节奏。公元426年左右，来自玛雅腹地的勇士基尼奇·亚什·库克·莫建立了科潘，并开创了王室王朝。此后，科潘成为玛雅艺术、天文学与政治权力的中心。
+
+自2010年以来，考古学家在科潘遗址持续开展发掘与研究。这些发现共同揭示出，科潘是古典玛雅文明中政治上灵活、象征意义深远的中心，其历史叙事也在每一次新发现中不断延伸。
+
+[下载480](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_800x480.jpg&rf=LaDigue_800x480.jpg "科潘的玛雅遗址，洪都拉斯")
+[下载720](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1024x768.jpg&rf=LaDigue_1024x768.jpg "科潘的玛雅遗址，洪都拉斯")
+[下载1080](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科潘的玛雅遗址，洪都拉斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_UHD.jpg&rf=LaDigue_UHD.jpg "科潘的玛雅遗址，洪都拉斯")
