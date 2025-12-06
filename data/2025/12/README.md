@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_1024x768.jpg&rf=LaDigue_1024x768.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_UHD.jpg&rf=LaDigue_UHD.jpg "大沼泽地国家公园的蜘蛛网，佛罗里达州，美国")
+
+
+---
+### 2025 12月 7：雪落下的声音
+#### 雪中的故宫，中国北京（© Ian.CuiYi/Getty Images）
+![雪落下的声音](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_800x480.jpg&rf=LaDigue_800x480.jpg "雪落下的声音")
+今天是中国传统二十四节气中的大雪节气。大雪的到来预示着气温将逐渐降低，冬季降水量也将增加。大雪期间，中国大部分地区已进入严冬，北方部分地区的气温甚至会降至零度以下。北方大地呈现出“万里冰封”的壮丽景象，而南方则展现出“雪花飘舞，万物银装素裹”的迷人景色。
+
+紫禁城是世界上规模最大、保存最完好的古代木构建筑群之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_800x480.jpg&rf=LaDigue_800x480.jpg "雪中的故宫，中国北京")
+[下载720](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪中的故宫，中国北京")
+[下载1080](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中的故宫，中国北京")
+[下载UHD](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg&rf=LaDigue_UHD.jpg "雪中的故宫，中国北京")
