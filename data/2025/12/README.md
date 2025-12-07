@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪中的故宫，中国北京")
 [下载1080](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中的故宫，中国北京")
 [下载UHD](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg&rf=LaDigue_UHD.jpg "雪中的故宫，中国北京")
+
+
+---
+### 2025 12月 8：一切安详，一切明亮
+#### 多马索的建筑上的圣诞彩灯，科莫湖，意大利（© Roberto Moiola/Getty Images）
+![一切安详，一切明亮](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_800x480.jpg&rf=LaDigue_800x480.jpg "一切安详，一切明亮")
+当意大利科莫湖上闪烁的灯光比星辰更耀眼时，你就会知道，圣诞节已在多马索登场。这个昔日的渔村，如今每到冬季便化身为闪亮的节日舞台：粉彩色的房屋、古老的教堂与湖畔别墅被光带缠绕，交织成一幅梦幻的圣诞画卷。
+
+科莫湖，又名拉里奥湖，是意大利伦巴第大区的一座冰川湖。它是意大利第三大湖，仅次于加尔达湖和马焦雷湖。湖深超过400米，是欧洲最深的湖泊之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_800x480.jpg&rf=LaDigue_800x480.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_1024x768.jpg&rf=LaDigue_1024x768.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg&rf=LaDigue_UHD.jpg "多马索的建筑上的圣诞彩灯，科莫湖，意大利")
