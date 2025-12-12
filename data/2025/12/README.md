@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_1024x768.jpg&rf=LaDigue_1024x768.jpg "有斑点的一品红")
 [下载1080](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "有斑点的一品红")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_UHD.jpg&rf=LaDigue_UHD.jpg "有斑点的一品红")
+
+
+---
+### 2025 12月 13：冰封的倒影
+#### 默塞德河, 优胜美地国家公园, 加利福尼亚, 美国（© Ron and Patty Thomas/Getty Images）
+![冰封的倒影](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_800x480.jpg&rf=LaDigue_800x480.jpg "冰封的倒影")
+每一幅杰作都需要点睛之笔。而优胜美地的点睛之笔便是默塞德河。作为美国国家级“野生与风景河流”之一，这条水系起源于内华达山脉高处，汇集雪水，蜿蜒145英里，穿过优胜美地山谷，流入加州中央谷地。
+
+默塞德河的主支流是夏季休闲的好去处，这里可以游泳、徒步、钓鱼、漂流、淘金、露营，享受各种户外乐趣。由于海拔较低，冬季也非常适合来一场轻松的日间徒步。
+
+[下载480](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_800x480.jpg&rf=LaDigue_800x480.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1024x768.jpg&rf=LaDigue_1024x768.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_UHD.jpg&rf=LaDigue_UHD.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
