@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1024x768.jpg&rf=LaDigue_1024x768.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_UHD.jpg&rf=LaDigue_UHD.jpg "默塞德河, 优胜美地国家公园, 加利福尼亚, 美国")
+
+
+---
+### 2025 12月 14：假日鸟类大比拼
+#### 簇山雀栖息在松枝上, 马萨诸塞州, 美国（© Tim Laman/NPL/Minden Pictures）
+![假日鸟类大比拼](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_800x480.jpg&rf=LaDigue_800x480.jpg "假日鸟类大比拼")
+每年十二月，成千上万的人放下包装纸，拿起望远镜，走向户外，参与一项别样的节日传统：奥杜邦圣诞观鸟活动。人们不再追逐折扣商品，而是用铅笔代替铅弹，踏上寻鸟之旅。这个传统始于1900年，由鸟类学家弗兰克·M·查普曼发起，为圣诞节期间盛行的"狩猎赛"提供了和平替代方案。当时人们比拼射杀动物的数量，而查普曼提出更美好的构想：不如数一数它们。一个多世纪后，这个简单的转变已发展成全球历史最悠久的公民科学项目。
+
+簇山雀性格活跃，叫声不断，还会对其他鸟类的警觉声作出反应。它们常结成小群，称作“鸟群”或“盗鸟群”，觅食时常与山雀及其他雀形鸟类同行。
+
+[下载480](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_800x480.jpg&rf=LaDigue_800x480.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1024x768.jpg&rf=LaDigue_1024x768.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_UHD.jpg&rf=LaDigue_UHD.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
