@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1024x768.jpg&rf=LaDigue_1024x768.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_UHD.jpg&rf=LaDigue_UHD.jpg "簇山雀栖息在松枝上, 马萨诸塞州, 美国")
+
+
+---
+### 2025 12月 15：静谧水波，闪耀灯影
+#### 斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰（© Amith Nag Photography/Getty Images）
+![静谧水波，闪耀灯影](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_800x480.jpg&rf=LaDigue_800x480.jpg "静谧水波，闪耀灯影")
+你有没有想过，运河如何影响城市的演变？几千年来，人们修筑运河，用于运输、控水和连接各地。从古代美索不达米亚和埃及，到中世纪的欧洲，运河让威尼斯、布鲁日等城市成为繁荣的贸易枢纽。到了17世纪，荷兰更进一步，规划出影响城市格局的水道，阿姆斯特丹便是其中的典范。
+
+阿姆斯特丹市政府计划在2030年前实现完全零排放，并致力于在2050年前成为循环利用、气候中和且具备气候适应能力的城市。
+
+[下载480](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_800x480.jpg&rf=LaDigue_800x480.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg&rf=LaDigue_UHD.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
