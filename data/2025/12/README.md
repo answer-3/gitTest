@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg&rf=LaDigue_UHD.jpg "斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰")
+
+
+---
+### 2025 12月 16：小帽子，大能量
+#### 圣诞市场上的手工小矮人（© Veronika Seppanen/Shutterstock）
+![小帽子，大能量](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_800x480.jpg&rf=LaDigue_800x480.jpg "小帽子，大能量")
+长胡子、红帽子，每年圣诞都要分走圣诞老人的一点光彩。来认识一下圣诞地精吧——瑞典叫‘tomte’，挪威称‘nisse’，各地习俗各不相同。源于北欧传说，这些小精灵守护家园与农场，陪伴人们度过漫长黑夜。但有个前提：待他们友善些，否则他们会恶作剧。圣诞夜一碗热腾腾的粥，是地精最爱的礼物。据说他们能带来好运与笑声，甚至可能和你花园里的小矮人打成一片，因为他们长得很像。
+
+圣诞袜的起源可追溯至圣尼古拉斯将礼物放入鞋中的传说，后来逐渐演变为炉边传统。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞市场上的手工小矮人")
+[下载720](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣诞市场上的手工小矮人")
+[下载1080](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞市场上的手工小矮人")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞市场上的手工小矮人")
