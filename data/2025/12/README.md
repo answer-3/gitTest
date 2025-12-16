@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣诞市场上的手工小矮人")
 [下载1080](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞市场上的手工小矮人")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞市场上的手工小矮人")
+
+
+---
+### 2025 12月 17：皮毛、霜冻和盛宴
+#### 在诺森伯兰郡的欧亚红松鼠, 英格兰（© Michael_Conrad/Getty Images）
+![皮毛、霜冻和盛宴](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_800x480.jpg&rf=LaDigue_800x480.jpg "皮毛、霜冻和盛宴")
+谁能抗拒这张软乎乎的小脸？一只欧亚红松鼠栖息在积雪覆盖的松枝上，前爪紧紧抓着松果，仿佛那是世上最后的美食。这些灵巧的小家伙全年忙碌：夏季采集坚果、种子和菌类，冬季则靠储存的松果维持生活。
+
+红松鼠只要挺过第一个寒冬，通常能活3年左右。有的能活到7岁，而在圈养状态下，其寿命可延长至10年。
+
+[下载480](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_800x480.jpg&rf=LaDigue_800x480.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_1024x768.jpg&rf=LaDigue_1024x768.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg&rf=LaDigue_UHD.jpg "在诺森伯兰郡的欧亚红松鼠, 英格兰")
