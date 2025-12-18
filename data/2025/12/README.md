@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1024x768.jpg&rf=LaDigue_1024x768.jpg "太阳神庙，圆顶礁国家公园, 犹他州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太阳神庙，圆顶礁国家公园, 犹他州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_UHD.jpg&rf=LaDigue_UHD.jpg "太阳神庙，圆顶礁国家公园, 犹他州, 美国")
+
+
+---
+### 2025 12月 19：高山的悠久历史
+#### 博尔米奥的雪景，伦巴第大区，意大利（© Roberto Moiola/Getty Images）
+![高山的悠久历史](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_800x480.jpg&rf=LaDigue_800x480.jpg "高山的悠久历史")
+博尔米奥位于意大利北部伦巴第大区的阿尔卑斯山中，靠近斯泰尔维奥山口。这片地势险峻的山地数百年来连接着不同山谷中的社区，塑造了当地人生活与迁徙的方式。今日图片中的冬季景观，正映照出这座高山小镇的地理特征与它与群峰之间延续千年的纽带。
+
+博尔米奥保留着独特的中世纪古镇中心，吸引着众多游客。它也将成为2026年冬季奥运会高山滑雪项目的举办地。
+
+[下载480](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_800x480.jpg&rf=LaDigue_800x480.jpg "博尔米奥的雪景，伦巴第大区，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1024x768.jpg&rf=LaDigue_1024x768.jpg "博尔米奥的雪景，伦巴第大区，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尔米奥的雪景，伦巴第大区，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_UHD.jpg&rf=LaDigue_UHD.jpg "博尔米奥的雪景，伦巴第大区，意大利")
