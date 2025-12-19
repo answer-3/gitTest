@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1024x768.jpg&rf=LaDigue_1024x768.jpg "博尔米奥的雪景，伦巴第大区，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尔米奥的雪景，伦巴第大区，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_UHD.jpg&rf=LaDigue_UHD.jpg "博尔米奥的雪景，伦巴第大区，意大利")
+
+
+---
+### 2025 12月 20：闪烁的纸星星
+#### 圣诞星形灯笼，德国（© artas/Getty Images）
+![闪烁的纸星星](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_800x480.jpg&rf=LaDigue_800x480.jpg "闪烁的纸星星")
+随着圣诞临近，星形灯笼开始在各处亮起：闪烁在阳台上，点亮橱窗，照亮集市摊位。它们的光芒穿透漫长的冬夜，为街道和家中带来欢乐、色彩与节日的温暖。然而，这些节日装饰背后，有着一个和它们的光芒一样迷人的故事。
+
+尽管“圣诞之星”已成为节日中最受喜爱的象征之一，但它所代表的“伯利恒之星”在《圣经》中其实只被提及过一次。
+
+[下载480](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_800x480.jpg&rf=LaDigue_800x480.jpg "圣诞星形灯笼，德国")
+[下载720](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣诞星形灯笼，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣诞星形灯笼，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_UHD.jpg&rf=LaDigue_UHD.jpg "圣诞星形灯笼，德国")
