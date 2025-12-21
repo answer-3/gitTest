@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_1024x768.jpg&rf=LaDigue_1024x768.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg&rf=LaDigue_UHD.jpg "美丽的雾凇景色，大庆市，黑龙江省，中国")
+
+
+---
+### 2025 12月 22：历史与现代的交融
+#### 法兰克福老桥，德国（© diegograndi/Getty Images）
+![历史与现代的交融](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_800x480.jpg&rf=LaDigue_800x480.jpg "历史与现代的交融")
+位于德国中心地带的法兰克福是一座以现代天际线与历史古城交织闻名的活力都市。老桥是其中的标志性建筑之一，自中世纪以来便横跨美因河，是这座城市现存最古老的河上通道之一。几个世纪以来，它一直是重要的贸易通道。如今的老桥建于1912至1926年间，将老城区与萨克森豪森区连接起来，从这里能欣赏到壮丽的“美因哈顿”天际线与法兰克福大教堂，这是传统与现代融合的象征。尤其在日落时分，更是格外迷人。
+
+自1222年在官方文件中首次被提及以来，法兰克福的发展一直深受这座桥的影响。几个世纪以来，老桥至少被毁坏和重建了18次。
+
+[下载480](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_800x480.jpg&rf=LaDigue_800x480.jpg "法兰克福老桥，德国")
+[下载720](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_1024x768.jpg&rf=LaDigue_1024x768.jpg "法兰克福老桥，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法兰克福老桥，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg&rf=LaDigue_UHD.jpg "法兰克福老桥，德国")
