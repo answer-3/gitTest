@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_1024x768.jpg&rf=LaDigue_1024x768.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg&rf=LaDigue_UHD.jpg "冬雪中的驯鹿，拉普兰德，芬兰")
+
+
+---
+### 2025 12月 24：流动的传统
+#### 巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国（© mauritius images GmbH/Alamy）
+![流动的传统](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_800x480.jpg&rf=LaDigue_800x480.jpg "流动的传统")
+随着平安夜的到来，数以百万计的人们拥抱那些将我们与根源相连的习俗，或者接触全新的文化。如今日图片中所见的那样，在德国巴伐利亚阿尔卑斯山的雪景中，节日灯光在寒冬中闪耀；而在地球的另一端，比如加勒比海、澳大利亚或巴西，耀眼阳光洒在金色海滩上，圣诞节的画面则截然不同
+
+传统的圣诞节点心包括姜饼、德国圣诞果脯面包、奶油酥饼，以及杏仁软糖。
+
+[下载480](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
+[下载720](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
