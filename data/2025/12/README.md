@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg&rf=LaDigue_UHD.jpg "巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国")
+
+
+---
+### 2025 12月 25：微缩世界，无尽奇想
+#### 海德堡圣诞市场上的雪球，德国（© George Pachantouris/Getty Images）
+![微缩世界，无尽奇想](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_800x480.jpg&rf=LaDigue_800x480.jpg "微缩世界，无尽奇想")
+在德国海德堡的冬日天空下，集市摊位间闪烁着一只只雪花水晶球，每个玻璃球都以微缩世界的形式捕捉着节日的氛围。如今的圣诞节一个关于信仰、光明与团聚的基督教庆典，邀请我们在一年中最寒冷的日子里迎来温暖与欢乐。在世界各地，窗台上的烛光温柔摇曳，花环装点着街巷与家门，常青树装饰一新，枝头挂满饰品，树下的礼物静静等待被打开。
+
+在大多数西方国家，圣诞节是一年中商业活动最为冷清的一天；几乎所有零售店、商铺和公共机构都会关门停业，几乎所有行业也都会暂停运作，无论法律是否有此规定。
+
+[下载480](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_800x480.jpg&rf=LaDigue_800x480.jpg "海德堡圣诞市场上的雪球，德国")
+[下载720](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_1024x768.jpg&rf=LaDigue_1024x768.jpg "海德堡圣诞市场上的雪球，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海德堡圣诞市场上的雪球，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_UHD.jpg&rf=LaDigue_UHD.jpg "海德堡圣诞市场上的雪球，德国")
