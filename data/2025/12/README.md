@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_1024x768.jpg&rf=LaDigue_1024x768.jpg "海德堡圣诞市场上的雪球，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海德堡圣诞市场上的雪球，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_UHD.jpg&rf=LaDigue_UHD.jpg "海德堡圣诞市场上的雪球，德国")
+
+
+---
+### 2025 12月 26：打破盒子的传统
+#### 索尔兹伯里大教堂，威尔特郡，英格兰（© Julian Elliott Photography/Getty Images）
+![打破盒子的传统](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_800x480.jpg&rf=LaDigue_800x480.jpg "打破盒子的传统")
+节礼日的妙处在于，它不需要你费心操劳：没有倒计时的喧嚣，没有拆礼物的惊喜，更不用临时奔波买电池。这是一个罕见的节日，仿佛在轻声说：“坐下来，吃掉剩菜，给自己一点时间。”每年12月26日，英国及部分英联邦国家都会庆祝这个节日，它像是一场圣诞狂欢后的温柔缓冲。节礼日的起源可追溯至维多利亚时代，当时人们会为工人和商贩准备“圣诞礼盒”，作为谢意，礼盒里可能是硬币，也可能是生活用品。教堂也参与其中，开启施舍箱，将捐赠分发给有需要的人。
+
+据《牛津英语词典》记载，这一用法最早出现在1743年的英国，定义为"圣诞节次日"，并说明"传统上，这一天商人、雇员等会……"
+
+[下载480](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_800x480.jpg&rf=LaDigue_800x480.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_1024x768.jpg&rf=LaDigue_1024x768.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg&rf=LaDigue_UHD.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
