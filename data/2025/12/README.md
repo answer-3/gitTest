@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_1024x768.jpg&rf=LaDigue_1024x768.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg&rf=LaDigue_UHD.jpg "索尔兹伯里大教堂，威尔特郡，英格兰")
+
+
+---
+### 2025 12月 27：冬之碎片
+#### 苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国（© wanderluster/Getty Images）
+![冬之碎片](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_800x480.jpg&rf=LaDigue_800x480.jpg "冬之碎片")
+在明尼苏达的苏必利尔湖，冬季来临时，湖岸会出现一种名为“板冰”的奇特景象：薄冰在温度变化下破裂，随风漂移并堆叠，最终形成倾斜的冰片，如同玻璃碎片般闪耀。蓝色与银色交织的半透明冰面在阳光下折射出锐利的光影，使湖边看起来更像艺术雕塑，而非冰封。
+
+苏必利尔湖是全球面积最大的淡水湖，水量则位居第三，仅次于西伯利亚的贝加尔湖和东非的坦噶尼喀湖。
+
+[下载480](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_800x480.jpg&rf=LaDigue_800x480.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_1024x768.jpg&rf=LaDigue_1024x768.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_UHD.jpg&rf=LaDigue_UHD.jpg "苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国")
