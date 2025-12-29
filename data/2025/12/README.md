@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其")
 [下载1080](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其")
 [下载UHD](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_UHD.jpg&rf=LaDigue_UHD.jpg "阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其")
+
+
+---
+### 2025 12月 30：新太阳的诞生
+#### 晨光透过结霜的树木洒下，瑞典（© Schon/Getty Images）
+![新太阳的诞生](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_800x480.jpg&rf=LaDigue_800x480.jpg "新太阳的诞生")
+冬季也总是有一些令人流连忘返的景色，例如瑞典的这片树林，就像踏入了一个银白的童话世界。高大的树木身披厚厚的霜雪外衣，像是忠诚的卫士，静静地伫立。每阳光透过树枝的缝隙洒下，形成一道道金色的光线，与洁白的雪相互交织，营造出一种如梦似幻的氛围。雪花在阳光的照耀下闪烁着晶莹的光芒，像是无数颗细碎的钻石，镶嵌在这银白的世界里。
+
+在瑞典，从10月到次年3月你可挑战凛冽冬夜，回报将是自然界最壮观的景象之一——北极光。这些红，绿，紫色的光幕时常在天空中翩翩起舞起舞。
+
+[下载480](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_800x480.jpg&rf=LaDigue_800x480.jpg "晨光透过结霜的树木洒下，瑞典")
+[下载720](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1024x768.jpg&rf=LaDigue_1024x768.jpg "晨光透过结霜的树木洒下，瑞典")
+[下载1080](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "晨光透过结霜的树木洒下，瑞典")
+[下载UHD](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_UHD.jpg&rf=LaDigue_UHD.jpg "晨光透过结霜的树木洒下，瑞典")
