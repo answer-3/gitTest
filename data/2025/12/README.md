@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1024x768.jpg&rf=LaDigue_1024x768.jpg "晨光透过结霜的树木洒下，瑞典")
 [下载1080](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "晨光透过结霜的树木洒下，瑞典")
 [下载UHD](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_UHD.jpg&rf=LaDigue_UHD.jpg "晨光透过结霜的树木洒下，瑞典")
+
+
+---
+### 2025 12月 31：柏林，新年之桥
+#### 除夕夜，奥伯鲍姆桥，柏林，德国（© spreephoto.de/Getty Images）
+![柏林，新年之桥](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_800x480.jpg&rf=LaDigue_800x480.jpg "柏林，新年之桥")
+三、二、一……等等，先按下暂停键。新年还没到，但柏林的奥伯鲍姆桥仿佛已经提前按下了“庆祝”按钮。今晚，这座桥不再只是河上的通道，而是一条通往新年的跑道：引擎低鸣，烟花预热，人群齐声练习着那句“新年快乐！”
+
+新年的脚步由时区决定。最先跨入新年的，是国际日期变更线以西的太平洋岛屿：基里巴斯的莱恩群岛、萨摩亚，以及汤加。
+
+[下载480](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_800x480.jpg&rf=LaDigue_800x480.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
+[下载720](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_1024x768.jpg&rf=LaDigue_1024x768.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg&rf=LaDigue_UHD.jpg "除夕夜，奥伯鲍姆桥，柏林，德国")
