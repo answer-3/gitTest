@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_1024x768.jpg&rf=LaDigue_1024x768.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg&rf=LaDigue_UHD.jpg "劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士")
+
+
+---
+### 2026 1月 4：王者视野
+#### 国王山, 楚加奇山脉, 阿拉斯加, 美国（© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion）
+![王者视野](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_800x480.jpg&rf=LaDigue_800x480.jpg "王者视野")
+在阿拉斯加楚加奇山脉，国王山不仅仅是远方的轮廓，它的雄浑之美足以让人停下脚步凝视。海拔逾5800英尺，坐落在帕尔默东北约22英里，俯瞰格伦公路第75英里段，这条公路因壮丽景观而闻名。山体的坡面刻满冰川遗痕，沟谷与山脊如同天然的冒险乐园。
+
+国王山的气温可能骤降至极低水平，最低可降至零下4°F（约零下20 °C）。最佳的游览或攀登时节通常在5月至6月，这段时间天气更为宜人。
+
+[下载480](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_800x480.jpg&rf=LaDigue_800x480.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1024x768.jpg&rf=LaDigue_1024x768.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
