@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1024x768.jpg&rf=LaDigue_1024x768.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg "国王山, 楚加奇山脉, 阿拉斯加, 美国")
+
+
+---
+### 2026 1月 5：高角羚群紧急戒备
+#### 一群高角羚, 隆多洛齐野生动物保护区, 南非（© Mint Images/Getty Images）
+![高角羚群紧急戒备](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_800x480.jpg&rf=LaDigue_800x480.jpg "高角羚群紧急戒备")
+隆多洛齐野生动物保护区的独特之处，不仅在于草原上的野生动物，更在于其坚守了近百年的守护。自1926年起，这片58平方英里的土地持续支持着野生动物研究工作，并监测着动物在自然栖息地中的行为。它坐落于萨比桑私人保护区，是非洲五大兽的栖息地，并与克鲁格国家公园相连，构建开放的生态系统，让象群、犀牛、狮子、豹、斑马和众多羚羊物种得以在无围栏阻隔的广袤天地间自由迁徙。
+
+根据国际自然保护联盟（IUCN）的分类，高角羚整体并不处于危险状态，被列为“无危”物种。但黑脸高角羚情况不同，它被认定为“易危”物种，截至2008年，野外数量估计不到1000只。
+
+[下载480](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_800x480.jpg&rf=LaDigue_800x480.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
+[下载720](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1024x768.jpg&rf=LaDigue_1024x768.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
+[下载1080](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
+[下载UHD](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg&rf=LaDigue_UHD.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
