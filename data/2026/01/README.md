@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1024x768.jpg&rf=LaDigue_1024x768.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
 [下载1080](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
 [下载UHD](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg&rf=LaDigue_UHD.jpg "一群高角羚, 隆多洛齐野生动物保护区, 南非")
+
+
+---
+### 2026 1月 6：努克的慵懒时光
+#### 努克, 格陵兰（© nevereverro/Getty Images）
+![努克的慵懒时光](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_800x480.jpg&rf=LaDigue_800x480.jpg "努克的慵懒时光")
+想象一下，日常通勤途中，映入眼底的是峡湾风光、漂移的冰块，以及天际舞动的极光——这不是梦，而是努克的日常。作为格陵兰的首都，这座小而灵动的北极城市，将因纽特文化与北欧现代气息交织融合。它的故事始于1728年，由丹麦-挪威传教士汉斯·埃格德创建，最初的名字叫“Godthaab”，寓意“美好希望”。
+
+努克虽是小镇，却发展了贸易、商业、航运等产业。与格陵兰大部分地区一样，努克高度依赖丹麦的资金支持与整体拨款。
+
+[下载480](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_800x480.jpg&rf=LaDigue_800x480.jpg "努克, 格陵兰")
+[下载720](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1024x768.jpg&rf=LaDigue_1024x768.jpg "努克, 格陵兰")
+[下载1080](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "努克, 格陵兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg&rf=LaDigue_UHD.jpg "努克, 格陵兰")
