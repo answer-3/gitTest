@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1024x768.jpg&rf=LaDigue_1024x768.jpg "努克, 格陵兰")
 [下载1080](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "努克, 格陵兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg&rf=LaDigue_UHD.jpg "努克, 格陵兰")
+
+
+---
+### 2026 1月 7：古老岩石的传奇
+#### 拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国（© Jim Patterson/TANDEM Stills + Motion）
+![古老岩石的传奇](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_800x480.jpg&rf=LaDigue_800x480.jpg "古老岩石的传奇")
+今天，让我们重新审视时间的尺度。古岩石日，揭开地球深藏的秘密：亿万年的风沙、海洋与火焰，塑造了我们脚下的世界。在犹他州拱门国家公园，透过北窗眺望炮塔拱门，仿佛凝视一段漫长的史诗。如今的拱门由恩特拉达砂岩构成，而那些砂岩曾是流动的沙丘和浅海，经过漫长侵蚀才雕刻出如今的拱形。可即便如此，这些地质构造仍算年轻。地壳在板块、侵蚀与火山的轮回中不断重生，唯有古老的大陆地盾守护着真正的远古。加拿大的阿卡斯塔片麻岩，约有40亿年历史，是目前已知最古老、仍扎根原处的岩石。
+
+自2000年以来，拱门国家公园持续开展古生物野外研究，发现了多处新的重要化石点。这里的化石种类丰富，包括脊椎动物、无脊椎动物、植物，以及记录生物活动的痕迹化石。
+
+[下载480](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_800x480.jpg&rf=LaDigue_800x480.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_1024x768.jpg&rf=LaDigue_1024x768.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
