@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_1024x768.jpg&rf=LaDigue_1024x768.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg&rf=LaDigue_UHD.jpg "拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国")
+
+
+---
+### 2026 1月 8：废墟之上，椋鸟群舞
+#### 椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰（© Philip Reeve/Photodisc/Getty Images）
+![废墟之上，椋鸟群舞](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_800x480.jpg&rf=LaDigue_800x480.jpg "废墟之上，椋鸟群舞")
+椋鸟是天生的“舞台明星”，它们深谙抢镜之道：羽毛在阳光下闪烁绿紫光泽，叫声里还夹杂着模仿的趣味。椋鸟原产于欧亚大陆，如今已遍布全球。19世纪，一位痴迷莎士比亚作品的鸟类爱好者，将椋鸟引入纽约中央公园，从此开启了它们的美洲传奇。
+
+椋鸟的鸣声丰富而复杂，它们甚至会把周围的声音融入自己的叫声，从汽车警报到人类的语音节奏，无所不包。更令人惊讶的是，它们能凭叫声辨认特定的同伴。这种能力，使椋鸟成为科学家探索语言起源的重要线索。
+
+[下载480](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_800x480.jpg&rf=LaDigue_800x480.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_1024x768.jpg&rf=LaDigue_1024x768.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg&rf=LaDigue_UHD.jpg "椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰")
