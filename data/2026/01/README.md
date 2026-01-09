@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_1024x768.jpg&rf=LaDigue_1024x768.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg&rf=LaDigue_UHD.jpg "缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国")
+
+
+---
+### 2026 1月 10：纯粹的瑞士魔力
+#### 日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士（© Andy Trowbridge/naturepl.com）
+![纯粹的瑞士魔力](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_800x480.jpg&rf=LaDigue_800x480.jpg "纯粹的瑞士魔力")
+鲜有景致能像马特洪峰倒映在斯特利湖如镜的湖面上那般，完美呈现阿尔卑斯的灵魂。这座传奇山峰耸立在瑞士与意大利边境，海拔高达14,692英尺，象征着大自然的壮美与冒险精神，吸引着世界各地的攀登者、徒步者与追梦人。
+
+马特洪峰的首次攀登发生在 1865 年。当时的队伍中，有四人不幸罹难。但这并未阻止后来者，无数登山者依旧以登顶它为目标。
+
+[下载480](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_800x480.jpg&rf=LaDigue_800x480.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_UHD.jpg&rf=LaDigue_UHD.jpg "日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士")
