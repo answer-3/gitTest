@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_1024x768.jpg&rf=LaDigue_1024x768.jpg "欧亚水獭和幼崽, 爱沙尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚水獭和幼崽, 爱沙尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚水獭和幼崽, 爱沙尼亚")
+
+
+---
+### 2026 1月 13：苹果韵，旧时光
+#### 克卢伊德谷, 威尔士（© Valerie Blencowe/Getty Images）
+![苹果韵，旧时光](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_800x480.jpg&rf=LaDigue_800x480.jpg "苹果韵，旧时光")
+大多数人会在一月的第一周就完成新年计划。然而威尔士有个迷人的传统，人们总会说：“等等，我们还有一场庆祝活动。”于是便有了“Hen Galan”——“旧新年”的庆祝活动，每年1月13日，在威尔士的几处乡地举行，尤其以格温山谷最为知名。这个日子源自古老的儒略历，虽然英国其他地方早就换成格里高利历了，但这里的人依旧沿用老传统。
+
+克卢伊德谷生长的丹比赫李子几乎与威尔士的土地融为一体，这片土地被认为是全英国最富饶、最天然的沃土之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_800x480.jpg&rf=LaDigue_800x480.jpg "克卢伊德谷, 威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_1024x768.jpg&rf=LaDigue_1024x768.jpg "克卢伊德谷, 威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克卢伊德谷, 威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg&rf=LaDigue_UHD.jpg "克卢伊德谷, 威尔士")
