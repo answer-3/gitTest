@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_1024x768.jpg&rf=LaDigue_1024x768.jpg "克卢伊德谷, 威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克卢伊德谷, 威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg&rf=LaDigue_UHD.jpg "克卢伊德谷, 威尔士")
+
+
+---
+### 2026 1月 14：帕拉米蒂的历史之阶
+#### 帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊（© George Pachantouris/Getty Images）
+![帕拉米蒂的历史之阶](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_800x480.jpg&rf=LaDigue_800x480.jpg "帕拉米蒂的历史之阶")
+爬楼梯日定于每年一月的第二个星期三，这个日子鼓励大家在日常里多动一动：少坐电梯，多爬几级楼梯，或者抽空去走走、骑骑车。虽然都是小动作，却能慢慢养成更健康的生活方式。在如今空气污染加重、许多人又有慢性肺病的情况下，这些看似简单的动作显得尤为重要。
+
+这些曾经在威尼斯人与土耳其人统治下改名多次的堡垒，最终又被希腊人重新命名。
+
+[下载480](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_800x480.jpg&rf=LaDigue_800x480.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
+[下载720](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
