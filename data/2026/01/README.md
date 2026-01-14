@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg "帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊")
+
+
+---
+### 2026 1月 15：小村庄，大视野
+#### 雷讷渔村, 挪威（© Roberto Moiola/Cavan Images/SuperStock）
+![小村庄，大视野](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_800x480.jpg&rf=LaDigue_800x480.jpg "小村庄，大视野")
+深藏在挪威北极圈的雷讷，宛如明信片上令人难以置信的梦幻之地，让人第一眼就怀疑它是否真实存在。这个仅有300余名居民的小渔村，因陡峭的山峰、安静的峡湾，以及沿着海岸散落的亮红色渔人小屋（rorbuer）而闻名。尽管渔村规模不大，雷讷每年仍吸引着成千上万的游客前来探访。
+
+如今，小镇已基本从渔业转向旅游业，昔日的渔民小屋被改装成精品酒店客房，特色餐厅也纷纷开业。
+
+[下载480](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_800x480.jpg&rf=LaDigue_800x480.jpg "雷讷渔村, 挪威")
+[下载720](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1024x768.jpg&rf=LaDigue_1024x768.jpg "雷讷渔村, 挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷讷渔村, 挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg&rf=LaDigue_UHD.jpg "雷讷渔村, 挪威")
