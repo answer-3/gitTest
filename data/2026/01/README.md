@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1024x768.jpg&rf=LaDigue_1024x768.jpg "雷讷渔村, 挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷讷渔村, 挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg&rf=LaDigue_UHD.jpg "雷讷渔村, 挪威")
+
+
+---
+### 2026 1月 16：眼神对上了
+#### 埃托沙国家公园的豹子，纳米比亚（© Norbert Achtelik/Cavan Images）
+![眼神对上了](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_800x480.jpg&rf=LaDigue_800x480.jpg "眼神对上了")
+看过野生动物纪录片的人，都记得那一幕：镜头滑过安静的草原，风声微动，下一秒，一只猎豹悄然浮现于草影间，仿佛它原本就是那片风景的一部分。这样无声的登场，就是猎豹的生存之道——精准、隐秘、像影子一样游走于草叶与树枝间。猎豹身形紧实而轻盈，既能攀上树梢，也能在大地上疾驰，而它们身上那独一无二的玫瑰斑纹，从清晨到夜色，都是最完美的伪装。
+
+埃托沙国家公园位于纳米比亚西北部，是非洲面积最大的国家公园之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_800x480.jpg&rf=LaDigue_800x480.jpg "埃托沙国家公园的豹子，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃托沙国家公园的豹子，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃托沙国家公园的豹子，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg "埃托沙国家公园的豹子，纳米比亚")
