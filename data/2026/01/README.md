@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃托沙国家公园的豹子，纳米比亚")
 [下载1080](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃托沙国家公园的豹子，纳米比亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg "埃托沙国家公园的豹子，纳米比亚")
+
+
+---
+### 2026 1月 17：普雷比希托广场上的穹顶
+#### 保罗圣方济圣殿，那不勒斯，意大利（© javarman3/Getty Images）
+![普雷比希托广场上的穹顶](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_800x480.jpg&rf=LaDigue_800x480.jpg "普雷比希托广场上的穹顶")
+走进意大利那不勒斯的任意一座大广场，城市的历史便会在眼前次第展开。拱廊、长长的柱廊、带着古典气息的圆顶争相吸引你的目光。街道风格不断变换——紧凑的巴洛克立面与开阔的新古典主义庭院交替出现。继续向前，你会来到一处宽阔的广场，广场上矗立着一座乍看之下仿佛来自古罗马的建筑。这便是位于普雷比希托广场西侧的保罗圣方济圣殿。
+
+在那不勒斯，保罗圣方济圣殿既是珍贵的城市文化遗产，也是新古典主义建筑中的瑰丽巨作。
+
+[下载480](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_800x480.jpg&rf=LaDigue_800x480.jpg "保罗圣方济圣殿，那不勒斯，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1024x768.jpg&rf=LaDigue_1024x768.jpg "保罗圣方济圣殿，那不勒斯，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "保罗圣方济圣殿，那不勒斯，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg&rf=LaDigue_UHD.jpg "保罗圣方济圣殿，那不勒斯，意大利")
