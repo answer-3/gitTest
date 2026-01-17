@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1024x768.jpg&rf=LaDigue_1024x768.jpg "保罗圣方济圣殿，那不勒斯，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "保罗圣方济圣殿，那不勒斯，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg&rf=LaDigue_UHD.jpg "保罗圣方济圣殿，那不勒斯，意大利")
+
+
+---
+### 2026 1月 18：伪装成沙漠的奇境
+#### 白沙国家公园，新墨西哥州，美国（© Francesco Carucci/Getty Images）
+![伪装成沙漠的奇境](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_800x480.jpg&rf=LaDigue_800x480.jpg "伪装成沙漠的奇境")
+如果把《冰雪奇缘》里的冰换成白沙，画面大概就会像新墨西哥州的白沙国家公园——一望无际的洁白沙丘，乍看之下仿佛仍带着冰雪的凉意。193 年的今天，这里被设立为国家纪念地，用来保护一种罕见的地质奇观：世界最大的石膏沙丘群。这些沙丘由石膏晶体在数千年的风化中逐渐破碎堆积而成，形成了明亮起伏的沙浪，即使在盛夏也依然触手冰凉。
+
+这片石膏沙丘是世界上同类地貌中规模最大的，沙层深度约30英尺（9.1米），沙丘最高可达60英尺（18米），蕴含的石膏砂总量约达45亿短吨（41亿公吨）。
+
+[下载480](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_800x480.jpg&rf=LaDigue_800x480.jpg "白沙国家公园，新墨西哥州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_1024x768.jpg&rf=LaDigue_1024x768.jpg "白沙国家公园，新墨西哥州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "白沙国家公园，新墨西哥州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_UHD.jpg&rf=LaDigue_UHD.jpg "白沙国家公园，新墨西哥州，美国")
