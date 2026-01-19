@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_1024x768.jpg&rf=LaDigue_1024x768.jpg "亚伯拉罕湖冰封景象，艾伯塔省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "亚伯拉罕湖冰封景象，艾伯塔省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_UHD.jpg&rf=LaDigue_UHD.jpg "亚伯拉罕湖冰封景象，艾伯塔省，加拿大")
+
+
+---
+### 2026 1月 20：冬季里的呆萌小可爱
+#### 栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省（© Visual China Group/Getty Images）
+![冬季里的呆萌小可爱](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_800x480.jpg&rf=LaDigue_800x480.jpg "冬季里的呆萌小可爱")
+大寒（Dahan）是二十四节气中的最后一个节气。它意味着一年中最寒冷的时刻。大寒过后，立春开始，标志着新一轮节气的开始。 随着大寒的临近，过年的喜庆气氛也随之浓厚起来。大寒节气往往与年末相吻合，许多相关习俗都蕴含着辞旧迎新的寓意。
+
+它们常在取食时发出细微而尖细的“吇吇”声（sii-sii-sii）。
+
+[下载480](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_800x480.jpg&rf=LaDigue_800x480.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
+[下载720](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_1024x768.jpg&rf=LaDigue_1024x768.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
+[下载1080](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
+[下载UHD](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_UHD.jpg&rf=LaDigue_UHD.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
