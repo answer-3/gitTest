@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_1024x768.jpg&rf=LaDigue_1024x768.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
 [下载1080](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
 [下载UHD](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_UHD.jpg&rf=LaDigue_UHD.jpg "栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省")
+
+
+---
+### 2026 1月 21：冬日白雪中的一抹红
+#### 欧亚红松鼠（© Galina Jacyna/Getty Images）
+![冬日白雪中的一抹红](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_800x480.jpg&rf=LaDigue_800x480.jpg "冬日白雪中的一抹红")
+画面里，一只欧亚红松鼠蹲在雪地上，披着冬日特有的浓密绒毛，耳尖的小簇毛格外惹眼。它们原生于欧洲和亚洲部分地区的森林，主要以种子、坚果和真菌为食，把粮食分散藏在林中各处，并在高高的树洞里垒起巢窝，安度漫长寒冬。
+
+欧亚红松鼠会在高高的树上，用树枝与树叶织出一个圆圆的“drey”巢穴，像个藏在枝丛间的小球窝。
+
+[下载480](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_800x480.jpg&rf=LaDigue_800x480.jpg "欧亚红松鼠")
+[下载720](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1024x768.jpg&rf=LaDigue_1024x768.jpg "欧亚红松鼠")
+[下载1080](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠")
+[下载UHD](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠")
