@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1024x768.jpg&rf=LaDigue_1024x768.jpg "欧亚红松鼠")
 [下载1080](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "欧亚红松鼠")
 [下载UHD](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg&rf=LaDigue_UHD.jpg "欧亚红松鼠")
+
+
+---
+### 2026 1月 22：波西米亚温泉故事
+#### 卡罗维瓦利，波西米亚，捷克共和国（© Henryk Sadura/Getty Images）
+![波西米亚温泉故事](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_800x480.jpg&rf=LaDigue_800x480.jpg "波西米亚温泉故事")
+在今天的图片中，冬意已悄悄落在捷克的卡罗维瓦利，这座坐落于浅色山谷中的城市，因山间温泉而闻名。关于这座城市的起源，可追溯到14世纪：据说当时的波希米亚国王、后来成为神圣罗马帝国皇帝的查理四世路经此地，恰好遇见一池冒着白雾的温热泉水。正是这次邂逅，引领波希米亚这片宁静的山谷走上了温泉疗养圣地的道路。
+
+这座城市以举办卡罗维瓦利国际电影节而闻名，该电影节是世界上历史最悠久的电影节之一，也是欧洲最重要的电影盛事之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_800x480.jpg&rf=LaDigue_800x480.jpg "卡罗维瓦利，波西米亚，捷克共和国")
+[下载720](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡罗维瓦利，波西米亚，捷克共和国")
+[下载1080](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡罗维瓦利，波西米亚，捷克共和国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg&rf=LaDigue_UHD.jpg "卡罗维瓦利，波西米亚，捷克共和国")
