@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_1024x768.jpg&rf=LaDigue_1024x768.jpg "绵羊在雪地里吃草，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绵羊在雪地里吃草，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg&rf=LaDigue_UHD.jpg "绵羊在雪地里吃草，冰岛")
+
+
+---
+### 2026 1月 24：瑞士山间的短逃离
+#### 阿尔卑斯山脉的安德马特小镇，瑞士（© Xantana/Getty Images）
+![瑞士山间的短逃离](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_800x480.jpg&rf=LaDigue_800x480.jpg "瑞士山间的短逃离")
+安德马特坐落于海拔约4,715英尺的乌尔塞伦山谷，被壮丽的阿尔卑斯山脉环绕，是瑞士最迷人的小镇之一。自古以来，它便是交通与文化的交汇点，由圣哥达、福尔卡和奥伯阿尔卑三大山口贯通，使这里成为贯穿南北、连结文化的重要门户。
+
+安德马特的群山因其野雪地形和深雪特性而广受欢迎。
+
+[下载480](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
+[下载720](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
+[下载1080](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
+[下载UHD](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
