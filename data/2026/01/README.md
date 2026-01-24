@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯山脉的安德马特小镇，瑞士")
+
+
+---
+### 2026 1月 25：传统熠熠生辉
+#### 伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰（© Alister Firth/Alamy）
+![传统熠熠生辉](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_800x480.jpg&rf=LaDigue_800x480.jpg "传统熠熠生辉")
+每年1月25日，苏格兰人及世界各地喜爱伯恩斯的人们都会举杯庆祝，纪念这位深受爱戴的民族诗人。伯恩斯之夜的宴席温暖而有趣：主菜是香气浓郁的哈吉斯，搭配芜菁泥和土豆泥；其间穿插伯恩斯诗句的朗诵，再来一口威士忌，这场庆典最终总在《友谊地久天长》的合唱里被推向高潮。即使人在海外，也能轻松延续这份传统：摆盘、诵诗、举杯，让节日的温暖自然蔓延开来。
+
+罗伯特·伯恩斯，这位出身于苏格兰艾尔郡的农夫兼诗人，在英国文学史上留下了深刻印记。他的代表作《友谊地久天长》家喻户晓，而他所写的诗歌以苏格兰民谣的旋律、以及对自由与民主的颂扬而备受推崇。
+
+[下载480](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_800x480.jpg&rf=LaDigue_800x480.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
+[下载720](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_1024x768.jpg&rf=LaDigue_1024x768.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_UHD.jpg&rf=LaDigue_UHD.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
