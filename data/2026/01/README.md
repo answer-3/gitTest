@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_1024x768.jpg&rf=LaDigue_1024x768.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_UHD.jpg&rf=LaDigue_UHD.jpg "伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰")
+
+
+---
+### 2026 1月 26：巴伐利亚的瑰宝
+#### 新天鹅堡，巴伐利亚州，德国（© www.fredconcha.com @ All Rights Reserved/Getty Images）
+![巴伐利亚的瑰宝](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_800x480.jpg&rf=LaDigue_800x480.jpg "巴伐利亚的瑰宝")
+新天鹅堡的诞生源于巴伐利亚国王路德维希二世的浪漫构想——一个由中世纪神话与歌剧场景交织而成的梦境居所。城堡隐身于山林之间，塔尖纤细，精巧的石饰让整座建筑宛如漂浮在山谷之上。虽然建造始于十九世纪，但这座宫殿始终未完全竣工，因此也增添了一层淡淡的神秘。
+
+新天鹅堡不仅是德国的标志性建筑，也是迪士尼城堡的灵感源头，因此又被称为“灰姑娘城堡”。作为德国拍摄次数最多的建筑，它也是最受游客喜爱的景点之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_800x480.jpg&rf=LaDigue_800x480.jpg "新天鹅堡，巴伐利亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_1024x768.jpg&rf=LaDigue_1024x768.jpg "新天鹅堡，巴伐利亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "新天鹅堡，巴伐利亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_UHD.jpg&rf=LaDigue_UHD.jpg "新天鹅堡，巴伐利亚州，德国")
