@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_1024x768.jpg&rf=LaDigue_1024x768.jpg "新天鹅堡，巴伐利亚州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "新天鹅堡，巴伐利亚州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_UHD.jpg&rf=LaDigue_UHD.jpg "新天鹅堡，巴伐利亚州，德国")
+
+
+---
+### 2026 1月 27：羽翼预告：前方有鹈鹕
+#### 卷羽鹈鹕，凯尔基尼湖，希腊（© Guy Edwardes/naturepl.com）
+![羽翼预告：前方有鹈鹕](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_800x480.jpg&rf=LaDigue_800x480.jpg "羽翼预告：前方有鹈鹕")
+在冬日的凯尔基尼湖，你能捕捉到欧洲最震撼的卷羽鹈鹕身影。它们巨大的身形在平静的湖面上成群滑行，沉稳而优雅，令人难以忽视。卷羽鹈鹕翼展超过10英尺，是世界上体型最大的飞行鸟类之一。得益于凯尔基尼湖稳定的冬季气候，你可以近距离欣赏它们的巨大身姿、优雅姿态，以及群体滑行时那种令人着迷的默契。
+
+成年的卷羽鹈鹕羽色呈灰白色，头后方长着一撮卷曲、略显凌乱的冠羽，因此得名“卷羽鹈鹕”。
+
+[下载480](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_800x480.jpg&rf=LaDigue_800x480.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_1024x768.jpg&rf=LaDigue_1024x768.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg&rf=LaDigue_UHD.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
