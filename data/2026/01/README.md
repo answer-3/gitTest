@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_1024x768.jpg&rf=LaDigue_1024x768.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg&rf=LaDigue_UHD.jpg "卷羽鹈鹕，凯尔基尼湖，希腊")
+
+
+---
+### 2026 1月 28：随河而行
+#### 旺格努伊国家公园，雷塔鲁克，新西兰（© Matthew Micah Wright/Getty Images）
+![随河而行](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_800x480.jpg&rf=LaDigue_800x480.jpg "随河而行")
+旺格努伊国家公园呈现了新西兰最具特色的河流景观。自1986年建立起，它便以约286平方英里的面积横跨北岛中部。旺格努伊河在茂密的森林中缓缓弯曲前行，静默而深远。虽然其本身不在公园的正式范围内，但它几乎塑造了周遭的一切，包括“旺格努伊之旅”——新西兰著名的“伟大步道”之一。
+
+河流本身不在国家公园范围内，却因“旺格努伊之旅”而广受欢迎——这是一条备受喜爱的划舟路线，也是新西兰“伟大步道”之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_800x480.jpg&rf=LaDigue_800x480.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
+[下载720](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_1024x768.jpg&rf=LaDigue_1024x768.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_UHD.jpg&rf=LaDigue_UHD.jpg "旺格努伊国家公园，雷塔鲁克，新西兰")
