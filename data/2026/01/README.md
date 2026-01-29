@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_1024x768.jpg&rf=LaDigue_1024x768.jpg "密尔沃基市政厅的八层开放式中庭，威斯康星州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "密尔沃基市政厅的八层开放式中庭，威斯康星州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg&rf=LaDigue_UHD.jpg "密尔沃基市政厅的八层开放式中庭，威斯康星州，美国")
+
+
+---
+### 2026 1月 30：海潮退却之处
+#### 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰（© Baxter Bradford/robertharding/Getty Images）
+![海潮退却之处](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_800x480.jpg&rf=LaDigue_800x480.jpg "海潮退却之处")
+想象一座从康沃尔海面升起的小岛，潮水退去时才会与陆地短暂相连。每天只有几小时，你可以沿着那条被无数朝圣者和渔民磨出的花岗岩堤道走到岛上。这就是位于马拉齐翁外海的圣迈克尔山，由国家信托基金管理，自17世纪起便是圣奥宾家族的住所，融合了传说、中世纪遗迹与壮阔的海岸景色。
+
+矗立在岩石高地上的城堡格外引人注目，内部收藏着盖恩斯伯勒的画作、奇彭代尔家具，以及拿破仑外套碎片等军事纪念物。
+
+[下载480](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_800x480.jpg&rf=LaDigue_800x480.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_1024x768.jpg&rf=LaDigue_1024x768.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg&rf=LaDigue_UHD.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
