@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_1024x768.jpg&rf=LaDigue_1024x768.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg&rf=LaDigue_UHD.jpg "马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰")
+
+
+---
+### 2026 1月 31：一见钟情
+#### 平原斑马, 埃托沙国家公园, 纳米比亚（© Mogens Trolle/Shutterstock）
+![一见钟情](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_800x480.jpg&rf=LaDigue_800x480.jpg "一见钟情")
+有些动物在荒野中悄悄穿行，但斑马不是。它们顶着一身醒目的黑白条纹，仿佛这是世界上最实用的“装备”——实际上也确实如此。每年的1月31日是国际斑马日，让这些黑白相间的主角从群体中走到聚光灯下，迎来属于自己的高光时刻。
+
+平原斑马是博茨瓦纳的国兽，它的条纹也出现在该国国旗上。旗上的黑白条纹同时象征着国家的种族和谐。
+
+[下载480](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_800x480.jpg&rf=LaDigue_800x480.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_1024x768.jpg&rf=LaDigue_1024x768.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&rf=LaDigue_UHD.jpg "平原斑马, 埃托沙国家公园, 纳米比亚")
