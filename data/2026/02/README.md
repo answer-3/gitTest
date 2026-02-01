@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥林达的彩色房子, 巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥林达的彩色房子, 巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg&rf=LaDigue_UHD.jpg "奥林达的彩色房子, 巴西")
+
+
+---
+### 2026 2月 2：影子的承诺
+#### 阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利（© Raimund Linke/Getty Images）
+![影子的承诺](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_800x480.jpg&rf=LaDigue_800x480.jpg "影子的承诺")
+每年2月2日，全世界的目光都会投向那只喜欢从洞里探出头的小毛球——土拨鼠。传说如果这位“小预报员”看见了自己的影子，冬天就会再多待六周；如果没看到，春天就快到了。这项古怪又有趣的传统，让一只小小的啮齿动物摇身一变，成了名副其实的“气象明星”。
+
+土拨鼠靠脸颊上的气味腺来识别同伴，雄性土拨鼠还会利用这些气味腺来标记自己的领地范围。
+
+[下载480](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
+[下载720](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
+[下载1080](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
