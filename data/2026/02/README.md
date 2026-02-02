@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
 [下载1080](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利")
+
+
+---
+### 2026 2月 3：太浩湖视觉盛宴
+#### 翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国（© Bill Stevenson/Cavan Images）
+![太浩湖视觉盛宴](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_800x480.jpg&rf=LaDigue_800x480.jpg "太浩湖视觉盛宴")
+当一个地方同时被地质学家、电影镜头和民间传说反复提及，它必定不只是一处风景。横跨加州与内华达州的太浩湖，正是这样一片承载故事的水域。它诞生于冰河时代，断层活动与冰川雕琢造就了深不见底的湖盆，如今已成为美国最深的淡水湖之一。很久以前，瓦绍族人世代栖居湖畔，随季节更替捕鱼、采集。几个世纪后，矿工的脚步踏入此地，汽船划破湖面，太浩湖也由资源中心，转变为四季皆宜的休闲度假地。
+
+地质学界普遍认为，翡翠湾是数千年前冰川侵蚀形成的地形。至于湾中的岛屿，则很可能是一条抗蚀性极强的花岗岩岩脊，在冰川越过时幸存下来。
+
+[下载480](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_800x480.jpg&rf=LaDigue_800x480.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_1024x768.jpg&rf=LaDigue_1024x768.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
