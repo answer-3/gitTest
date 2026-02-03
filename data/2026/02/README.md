@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_1024x768.jpg&rf=LaDigue_1024x768.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg "翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国")
+
+
+---
+### 2026 2月 4：优雅掠过天际
+#### 雪中​​的红鸢（© Carl Mckie/500px/Getty Images）
+![优雅掠过天际](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_800x480.jpg&rf=LaDigue_800x480.jpg "优雅掠过天际")
+红鸢是一种格外引人注目的猛禽，红褐色的羽毛、浅色的头部，再加上一条修长的叉形尾羽，使它们在飞行中能展现出极高的操控精准度。该物种主要分布于欧洲，在英国、西班牙、法国和德国等地尤为常见。英格兰的奇尔特恩丘陵是红鸢保护工作的经典成功案例：这里的红鸢曾几近消失，直到20世纪80年代末至90年代初，从西班牙引入雏鸟放归自然后，红鸢才重新回到了这片天空。
+
+人们常误以为红鸢会捕食羊羔，但事实上，这些鸟的抓力很弱，连体型稍大的猎物都难以应付，小兔子已经是它们的极限了。
+
+[下载480](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_800x480.jpg&rf=LaDigue_800x480.jpg "雪中​​的红鸢")
+[下载720](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪中​​的红鸢")
+[下载1080](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪中​​的红鸢")
+[下载UHD](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg "雪中​​的红鸢")
