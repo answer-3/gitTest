@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_1024x768.jpg&rf=LaDigue_1024x768.jpg "戈佐岛上的盐田, 马耳他")
 [下载1080](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈佐岛上的盐田, 马耳他")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_UHD.jpg&rf=LaDigue_UHD.jpg "戈佐岛上的盐田, 马耳他")
+
+
+---
+### 2026 2月 6：拉古塞拉——奥运赛季的巅峰
+#### 贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利（© Tomasz Podolski/Getty Images）
+![拉古塞拉——奥运赛季的巅峰](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_800x480.jpg&rf=LaDigue_800x480.jpg "拉古塞拉——奥运赛季的巅峰")
+2026年冬季奥运会于今日正式拉开帷幕，而多洛米蒂山脉几乎完美诠释了这届赛事的精神。在吉奥山口上方陡然拔起的拉古塞拉峰，海拔达8514英尺，呈现出极具冲击力的高山景观，这正是米兰—科尔蒂纳2026冬季奥运会的标志性气质。这届奥运会由米兰与科尔蒂纳丹佩佐联合主办，将都市活力与深厚的阿尔卑斯山地传统融为一体。
+
+棕色的Milo与白色的Tina是一对出生在意大利群山中的白鼬兄妹，后来“决定搬到城市生活”。作为奥运会的主要吉祥物，Tina象征着艺术、音乐，以及美所带来的改变与新生。
+
+[下载480](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_800x480.jpg&rf=LaDigue_800x480.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_1024x768.jpg&rf=LaDigue_1024x768.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_UHD.jpg&rf=LaDigue_UHD.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
