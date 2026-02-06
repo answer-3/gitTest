@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_1024x768.jpg&rf=LaDigue_1024x768.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_UHD.jpg&rf=LaDigue_UHD.jpg "贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利")
+
+
+---
+### 2026 2月 7：在盐沼与天空之间，万物静谧
+#### 玻利维亚乌尤尼盐湖（© Abstract Aerial Art/Getty Images）
+![在盐沼与天空之间，万物静谧](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_800x480.jpg&rf=LaDigue_800x480.jpg "在盐沼与天空之间，万物静谧")
+玻利维亚的乌尤尼盐沼并不会循序渐进地展开视野，它仿佛一道由光线构成的地平线，瞬间闯入眼帘。这里是世界上最大的盐沼，面积约4000平方英里，海拔接近12000英尺。景观会随季节剧烈变化：雨季来临时，地面被薄薄的积水覆盖，化作一面巨大的天然镜子，天空与大地在倒影中融为一片耀眼的光面。
+
+这片盐沼几乎看不到野生动物和植被，唯一显眼的生命，是成片生长的巨型仙人掌。它们每年仅生长约1厘 米，最高可达12米。
+
+[下载480](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_800x480.jpg&rf=LaDigue_800x480.jpg "玻利维亚乌尤尼盐湖")
+[下载720](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_1024x768.jpg&rf=LaDigue_1024x768.jpg "玻利维亚乌尤尼盐湖")
+[下载1080](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玻利维亚乌尤尼盐湖")
+[下载UHD](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg&rf=LaDigue_UHD.jpg "玻利维亚乌尤尼盐湖")
