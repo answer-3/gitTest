@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_1024x768.jpg&rf=LaDigue_1024x768.jpg "科孚岛的夜晚, 希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科孚岛的夜晚, 希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg&rf=LaDigue_UHD.jpg "科孚岛的夜晚, 希腊")
+
+
+---
+### 2026 2月 9：斑纹流转
+#### 阿穆尔豹猫，俄罗斯（© Valeriy Maleev/naturepl.com）
+![斑纹流转](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_800x480.jpg&rf=LaDigue_800x480.jpg "斑纹流转")
+豹猫是一种体型较小的野生猫科动物，广泛分布于南亚、东南亚和东亚地区。它们体型与家猫相近，但四肢更修长、身形更为纤细，体长通常在15至30英寸之间，尾巴约7至12英寸。不同地区的成年豹猫体重差异较大，大致在1至16磅之间。外观变化也十分明显：南方种群多呈现温暖的金黄色皮毛，而分布在高纬度地区的豹猫则常拥有浅灰色皮毛，冬季时毛发会明显加厚。
+
+豹猫会游泳，但极少下水。它们的叫声与家猫相近。无论雌雄，都会通过喷洒尿液、在显眼处排便、蹭头和抓挠等方式标记领地。
+
+[下载480](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_800x480.jpg&rf=LaDigue_800x480.jpg "阿穆尔豹猫，俄罗斯")
+[下载720](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿穆尔豹猫，俄罗斯")
+[下载1080](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿穆尔豹猫，俄罗斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg&rf=LaDigue_UHD.jpg "阿穆尔豹猫，俄罗斯")
