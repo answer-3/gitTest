@@ -124,3 +124,31 @@
 [下载720](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿穆尔豹猫，俄罗斯")
 [下载1080](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿穆尔豹猫，俄罗斯")
 [下载UHD](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg&rf=LaDigue_UHD.jpg "阿穆尔豹猫，俄罗斯")
+
+
+---
+### 2026 2月 10：海妖歌唱之处
+#### 埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙（© L. Apolli/Getty Images）
+![海妖歌唱之处](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_800x480.jpg&rf=LaDigue_800x480.jpg "海妖歌唱之处")
+在西班牙伊维萨岛西南海域，矗立着两座无人居住的小岛——埃斯韦德拉和埃斯韦德拉内尔。它们属于受保护的自然保留区，以独特的生态价值和震撼的视觉效果闻名。埃斯韦德拉几乎垂直从海中升起，高约1300英尺，陡峭的石灰岩峭壁宛如一座孤立的山脉。不远处的埃斯韦德拉内尔轮廓锋利，因形似伏卧的巨龙而被称为“沉睡的巨龙”，与主岛的高峻挺拔相互映衬。
+
+埃斯韦德拉曾启发无数艺术家。1958年的美国电影《南太平洋》从中汲取灵感，1969年法国导演巴贝特·施罗德也曾在此取景拍摄电影。
+
+[下载480](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_800x480.jpg&rf=LaDigue_800x480.jpg "埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_UHD.jpg&rf=LaDigue_UHD.jpg "埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙")
+
+
+---
+### 2026 2月 11：对比之谷
+#### 死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国（© Jim Patterson/TANDEM Stills + Motion）
+![对比之谷](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_800x480.jpg&rf=LaDigue_800x480.jpg "对比之谷")
+死亡谷国家公园颠覆人们对沙漠的想象，横跨加利福尼亚州与内华达州，总面积约340万英亩，是美国面积最大的国家公园。盐沼、火山丘陵、流动沙丘与覆雪山峰交错分布，构成极端而多变的地貌。从海拔11000英尺的望远镜峰，到低于海平面282英尺的恶水盆地，这里呈现出鲜明且震撼的对比。
+
+除了震撼人心的自然景观与拓荒年代的故事，死亡谷曾长期作为一处兴盛的采矿中心。黄金白银铜钨铅锌锑和硼砂在谷地中被大量开采，留下深刻的工业印记。
+
+[下载480](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_800x480.jpg&rf=LaDigue_800x480.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_1024x768.jpg&rf=LaDigue_1024x768.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_UHD.jpg&rf=LaDigue_UHD.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
