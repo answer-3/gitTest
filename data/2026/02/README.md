@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_1024x768.jpg&rf=LaDigue_1024x768.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_UHD.jpg&rf=LaDigue_UHD.jpg "死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国")
+
+
+---
+### 2026 2月 12：聚焦进化
+#### 蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔（© Karine Aigner/TANDEM Stills + Motion）
+![聚焦进化](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_800x480.jpg&rf=LaDigue_800x480.jpg "聚焦进化")
+达尔文日纪念的不只是一位科学家的诞生，更是一场人类思维方式的转变。查尔斯·达尔文以敏锐的目光观察世界，从个体差异、生存优势到性状遗传，逐步建立起全新的科学认知。多年研究雀鸟、化石和藤壶后，他逐渐识别出其中隐藏的规律，并在1859年出版《物种起源》，首次系统提出物种通过自然选择不断演化的理论框架。
+
+在求偶时，雄性蓝脚鲣鸟会把那双醒目的蓝色脚掌当作“王牌”，配合夸张的舞步来博得雌鸟青睐。它先把脚高高抬起，在雌鸟面前昂首阔步地走动，展开一场精心设计的表演。
+
+[下载480](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_800x480.jpg&rf=LaDigue_800x480.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1024x768.jpg&rf=LaDigue_1024x768.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg&rf=LaDigue_UHD.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
