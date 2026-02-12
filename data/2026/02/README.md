@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1024x768.jpg&rf=LaDigue_1024x768.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg&rf=LaDigue_UHD.jpg "蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔")
+
+
+---
+### 2026 2月 13：为拉近距离而建
+#### 连接老挝和泰国的第三座泰老友谊大桥（© chaiyut samsuk/Getty Images）
+![为拉近距离而建](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_800x480.jpg&rf=LaDigue_800x480.jpg "为拉近距离而建")
+在没有桥梁的年代，河流决定人们能走多远；而随着桥梁的建立，节奏掌握开始在人的手中。这种转变正是跨境基础设施的重要意义所在，比如连接老挝与泰国的第三座大桥泰老友谊大桥。桥梁结构多样，各有针对性：拱桥应对压力，悬索桥跨越长距离，混凝土箱梁桥则追求稳定与高效承载。这座桥选择箱梁设计，正是为应对湄公河宽阔水面与快速水流的现实需求。
+
+泰国与老挝之间的第五座泰老友谊大桥于2025年12月25日正式通车，连接泰国汶干府与老挝博里坎赛省，这座桥不仅缩短了距离，也串联起两国更频繁的往来与合作。
+
+[下载480](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_800x480.jpg&rf=LaDigue_800x480.jpg "连接老挝和泰国的第三座泰老友谊大桥")
+[下载720](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_1024x768.jpg&rf=LaDigue_1024x768.jpg "连接老挝和泰国的第三座泰老友谊大桥")
+[下载1080](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "连接老挝和泰国的第三座泰老友谊大桥")
+[下载UHD](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg&rf=LaDigue_UHD.jpg "连接老挝和泰国的第三座泰老友谊大桥")
