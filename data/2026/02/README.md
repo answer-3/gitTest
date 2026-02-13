@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_1024x768.jpg&rf=LaDigue_1024x768.jpg "连接老挝和泰国的第三座泰老友谊大桥")
 [下载1080](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "连接老挝和泰国的第三座泰老友谊大桥")
 [下载UHD](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg&rf=LaDigue_UHD.jpg "连接老挝和泰国的第三座泰老友谊大桥")
+
+
+---
+### 2026 2月 14：爱意绽放
+#### 荷包牡丹（© Dorene Hookey/Cavan Images）
+![爱意绽放](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_800x480.jpg&rf=LaDigue_800x480.jpg "爱意绽放")
+情人节象征着各种关于“心”的情感——热烈的、柔和的、充满希望的，或含蓄脆弱的。在众多象征之中，鲜少有植物能像荷包牡丹如此贴切地寓意情人节。它拥有醒目的心形花朵，每逢春季便悄然绽放，植株高约2英尺，展开宽度接近30英寸，营造出一种柔和优雅、富有诗意的景致。
+
+情人节的起源可追溯至异教传统，其中最常被提及的是古罗马的卢珀卡利亚节，这一节日象征着生命以及春天的到来。
+
+[下载480](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_800x480.jpg&rf=LaDigue_800x480.jpg "荷包牡丹")
+[下载720](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_1024x768.jpg&rf=LaDigue_1024x768.jpg "荷包牡丹")
+[下载1080](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "荷包牡丹")
+[下载UHD](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg&rf=LaDigue_UHD.jpg "荷包牡丹")
