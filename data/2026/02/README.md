@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_1024x768.jpg&rf=LaDigue_1024x768.jpg "荷包牡丹")
 [下载1080](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "荷包牡丹")
 [下载UHD](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg&rf=LaDigue_UHD.jpg "荷包牡丹")
+
+
+---
+### 2026 2月 15：浪涛下的歌谣
+#### 蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国（© Kiliii Fish/Cavan Images）
+![浪涛下的歌谣](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_800x480.jpg&rf=LaDigue_800x480.jpg "浪涛下的歌谣")
+世界鲸鱼日定于每年2月的第3个星期日，起源于20世纪80年代的夏威夷。当时，当地社区会庆祝座头鲸在迁徙季节重返近海。这一纪念日随后逐渐受到国际关注，尤其是在1986年国际捕鲸委员会通过商业捕鲸禁令之后，该举措成为全球鲸类保护的重要里程碑。
+
+座头鲸广泛分布于世界各大洋，在中国，它们的活动范围涵盖黄海、东海以及南海海域。
+
+[下载480](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_800x480.jpg&rf=LaDigue_800x480.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg&rf=LaDigue_UHD.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
