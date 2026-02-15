@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg&rf=LaDigue_UHD.jpg "蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国")
+
+
+---
+### 2026 2月 16：祝除夕团圆，新年顺遂！
+#### 庆祝春节的龙形灯笼，中国西安（© Pan Hong/Getty Images）
+![祝除夕团圆，新年顺遂！](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_800x480.jpg&rf=LaDigue_800x480.jpg "祝除夕团圆，新年顺遂！")
+除夕夜，街头的龙形灯笼正蜿蜒舒展，金鳞流转间仿佛蓄着时光的温度；而远处隐约响起的蹄声，恰似春风捎来骏马的问候——这是龙与马的相逢，是古老祥瑞与崭新朝气在岁月门楣的相会。
+
+“龙马精神”是一个富有深厚文化意蕴的中文成语，其核心含义是形容人像龙和马一样，拥有昂扬抖擞、健旺非凡的精神面貌和奋发向上的生命力。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_800x480.jpg&rf=LaDigue_800x480.jpg "庆祝春节的龙形灯笼，中国西安")
+[下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1024x768.jpg&rf=LaDigue_1024x768.jpg "庆祝春节的龙形灯笼，中国西安")
+[下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "庆祝春节的龙形灯笼，中国西安")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg&rf=LaDigue_UHD.jpg "庆祝春节的龙形灯笼，中国西安")
