@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1024x768.jpg&rf=LaDigue_1024x768.jpg "庆祝春节的龙形灯笼，中国西安")
 [下载1080](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "庆祝春节的龙形灯笼，中国西安")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg&rf=LaDigue_UHD.jpg "庆祝春节的龙形灯笼，中国西安")
+
+
+---
+### 2026 2月 17：福气满满，马年大吉
+#### 中国春节传统汉字“福”（© DuKai摄影师/Getty Images）
+![福气满满，马年大吉](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_800x480.jpg&rf=LaDigue_800x480.jpg "福气满满，马年大吉")
+过年好！今天是中国民间最隆重最富有特色的传统节日之一。其实每年从腊八或小年开始，到元宵节，都称之为过年。春节期间，中国全国各地人们都举办着感恩祈福、阖家团聚、除旧布新、迎禧接福、祈求丰年为主要内容的活动。而中国农历新年也在世界各地掀起了“中国风”，春节庆祝活动内容丰富多彩，具有重要的历史、艺术和文化价值。
+
+十二生肖的起源与动物崇拜有关。最早记载与现代相同的十二生肖的传世文献是东汉王充的《论衡》。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_800x480.jpg&rf=LaDigue_800x480.jpg "中国春节传统汉字“福”")
+[下载720](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1024x768.jpg&rf=LaDigue_1024x768.jpg "中国春节传统汉字“福”")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国春节传统汉字“福”")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&rf=LaDigue_UHD.jpg "中国春节传统汉字“福”")
