@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1024x768.jpg&rf=LaDigue_1024x768.jpg "中国春节传统汉字“福”")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国春节传统汉字“福”")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&rf=LaDigue_UHD.jpg "中国春节传统汉字“福”")
+
+
+---
+### 2026 2月 18：生而自由，永不驯服
+#### 普氏野马（© Nemyrivskyi Viacheslav/Getty Images）
+![生而自由，永不驯服](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_800x480.jpg&rf=LaDigue_800x480.jpg "生而自由，永不驯服")
+普氏野马从未被驯化，自始至终按照自己的方式生存，被认为是地球上最后的野马。它们曾广泛分布于中亚地区，但在20世纪60年代，由于狩猎、栖息地丧失以及与家畜竞争，普氏野马在野外一度消失。幸运的是，少数在20世纪初被带入圈养环境的个体保存了这个物种的火种，也孕育了今天所有的普氏野马。
+
+早在两万年前，欧洲的洞穴壁画中就已描绘出类似普氏野马的野生马匹。
+
+[下载480](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_800x480.jpg&rf=LaDigue_800x480.jpg "普氏野马")
+[下载720](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1024x768.jpg&rf=LaDigue_1024x768.jpg "普氏野马")
+[下载1080](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普氏野马")
+[下载UHD](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg&rf=LaDigue_UHD.jpg "普氏野马")
