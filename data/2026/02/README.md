@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1024x768.jpg&rf=LaDigue_1024x768.jpg "普氏野马")
 [下载1080](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普氏野马")
 [下载UHD](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg&rf=LaDigue_UHD.jpg "普氏野马")
+
+
+---
+### 2026 2月 19：大地凝视着我们
+#### 乌塔克莱夫海滩的“龙之眼”岩层，挪威（© reisegraf/Getty Images）
+![大地凝视着我们](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_800x480.jpg&rf=LaDigue_800x480.jpg "大地凝视着我们")
+“龙之眼”这个名字听起来像是出自传说，而当你站在挪威罗弗敦群岛的乌塔克莱夫海滩上时，你很容易就能明白为什么它会得此美名。这处地貌由古老的岩石雕琢而成，四周环绕着沙滩和大海，看起来栩栩如生，仿佛大地本身正在注视着你。它历经数千年的冰雪和海水的侵蚀塑造而成，如今已成为该地区最迷人的景点之一。
+
+乌塔克莱夫是一个小社区，只有22名常住居民。除了“龙眼”岩层之外，该地区还以在沙丘上自由漫步和吃草的绵羊而闻名。
+
+[下载480](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_800x480.jpg&rf=LaDigue_800x480.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg&rf=LaDigue_UHD.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
