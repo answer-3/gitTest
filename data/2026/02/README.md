@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg&rf=LaDigue_UHD.jpg "乌塔克莱夫海滩的“龙之眼”岩层，挪威")
+
+
+---
+### 2026 2月 20：光照之处
+#### 约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国（© Jorge Villalba/Getty Images）
+![光照之处](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_800x480.jpg&rf=LaDigue_800x480.jpg "光照之处")
+今天，是安塞尔·亚当斯的诞辰。正是他的镜头，塑造了世人心中优胜美地的形象。这座国家公园以雄伟的花岗岩岩壁、壮观的瀑布和变幻莫测的光线闻名，持续激发着一代又一代艺术家的创作灵感。而其中最令人着迷的景象，是被称作“火瀑”的奇观。这一名称，其实源自优胜美地历史中的两种不同景象。在过去，人们曾聚集在冰川点，观看一种人工制造的奇观：炽热的余烬被推下悬崖，在夜幕中倾泻而下，宛如一条燃烧的火流。
+
+唯有水量充沛、天空澄明，且阳光以恰当的角度洒落，火焰般的水幕才会显现。而这样的奇遇，并不会每年发生。
+
+[下载480](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_800x480.jpg&rf=LaDigue_800x480.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1024x768.jpg&rf=LaDigue_1024x768.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&rf=LaDigue_UHD.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
