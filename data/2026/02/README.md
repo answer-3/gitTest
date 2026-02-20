@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1024x768.jpg&rf=LaDigue_1024x768.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&rf=LaDigue_UHD.jpg "约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国")
+
+
+---
+### 2026 2月 21：冬日的低语
+#### 一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国（© Radomir Jakubowski/naturepl.com）
+![冬日的低语](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_800x480.jpg&rf=LaDigue_800x480.jpg "冬日的低语")
+大雪纷飞中，一只赤狐站在大提顿国家公园的雪地里。这一刻不仅美得纯粹，也让人窥见赤狐在严寒中自如生存的力量。锐利的目光、浓密而火红的毛皮，让它立刻显得与众不同，即便在怀俄明州严酷的冬季，也能安然生存。积雪会吞没声音，但赤狐异常灵敏的听觉，仍能捕捉到雪层之下猎物的细微动静。你几乎可以想象它在飞雪中短暂停步，耳朵微转，身形凝固，专注等待那一丝几不可闻的声响。
+
+赤狐起源于欧亚大陆，早可追溯至至少40万年前的中更新世，并在约13万年前扩散至北美地区。
+
+[下载480](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_800x480.jpg&rf=LaDigue_800x480.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&rf=LaDigue_UHD.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
