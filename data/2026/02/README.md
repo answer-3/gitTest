@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1024x768.jpg&rf=LaDigue_1024x768.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&rf=LaDigue_UHD.jpg "一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国")
+
+
+---
+### 2026 2月 22：群山的母亲
+#### 马姆托尔山，德比郡，英格兰（© john finney photography/Getty Images）
+![群山的母亲](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_800x480.jpg&rf=LaDigue_800x480.jpg "群山的母亲")
+“颤抖的山”这个绰号听起来颇具戏剧性，但对马姆托尔来说，却是数百年来的真实写照。它耸立在英格兰峰区国家公园的卡斯尔顿上方，这里也是英国首个国家公园，占地约555平方英里。这座地标的名字源自古英语，“mam”意为“母亲”，暗指它仿佛怀抱着周围起伏的小丘。然而，这座“母亲之山”却以不稳定而闻名：页岩与砂岩层层叠加，使山体长期滑动，1979年的一次坍塌甚至导致A625公路永久关闭。
+
+在这座山丘之巅，矗立着一处始建于青铜时代晚期至铁器时代早期的单壕山堡，周围还保留着两座青铜时代的碗状坟冢。
+
+[下载480](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_800x480.jpg&rf=LaDigue_800x480.jpg "马姆托尔山，德比郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1024x768.jpg&rf=LaDigue_1024x768.jpg "马姆托尔山，德比郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马姆托尔山，德比郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg&rf=LaDigue_UHD.jpg "马姆托尔山，德比郡，英格兰")
