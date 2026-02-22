@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1024x768.jpg&rf=LaDigue_1024x768.jpg "马姆托尔山，德比郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马姆托尔山，德比郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg&rf=LaDigue_UHD.jpg "马姆托尔山，德比郡，英格兰")
+
+
+---
+### 2026 2月 23：雪原之王
+#### 大白鹭，上巴伐利亚州，德国（© Konrad Wothe/naturepl.com）
+![雪原之王](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_800x480.jpg&rf=LaDigue_800x480.jpg "雪原之王")
+洁白的羽毛、修长的脖颈和鲜亮的黄喙，让大白鹭在湿地中格外醒目。这种大型鹭鸟分布广泛，几乎遍布全球，能适应多种水域环境。成年大白鹭体长约94至104厘米，翼展1.3至1.45米，体重约1公斤，身形高挑优雅。作为肉食性鸟类，大白鹭主要以鱼类为食，同时也捕食两栖动物、昆虫、小型哺乳动物和爬行动物。它们常在水边一动不动地耐心等待，随后以极快的速度完成一次精准的捕食。
+
+大白鹭是一种适应性极强、分布广泛的物种，其活动范围仍在不断扩大，广泛出现在全球温带与热带地区的多种栖息环境中。
+
+[下载480](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_800x480.jpg&rf=LaDigue_800x480.jpg "大白鹭，上巴伐利亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_1024x768.jpg&rf=LaDigue_1024x768.jpg "大白鹭，上巴伐利亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大白鹭，上巴伐利亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg&rf=LaDigue_UHD.jpg "大白鹭，上巴伐利亚州，德国")
