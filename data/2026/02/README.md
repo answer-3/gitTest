@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_1024x768.jpg&rf=LaDigue_1024x768.jpg "大天坑里的睡莲，图卢姆，墨西哥")
 [下载1080](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大天坑里的睡莲，图卢姆，墨西哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg&rf=LaDigue_UHD.jpg "大天坑里的睡莲，图卢姆，墨西哥")
+
+
+---
+### 2026 2月 25：冰，由内而外透出光芒
+#### 门登霍尔冰川的冰洞，阿拉斯加州，美国（© Designpics/Adobe Stock）
+![冰，由内而外透出光芒](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_800x480.jpg&rf=LaDigue_800x480.jpg "冰，由内而外透出光芒")
+阿拉斯加朱诺城外，门登霍尔冰川静静隐匿其间，内外皆仿佛幻境。走入罕见的蓝色冰洞，世界骤然安静，光线透过历经数百年压实的冰层，映照四周。冰川自朱诺冰原绵延约十三英里，缓缓流向下方山谷，在年复一年的流动中悄然改变形态。
+
+2012年，冰川消退后，埋藏其下的树桩和原木逐渐显现，根系与树皮仍然完整。因长久埋藏在砾石之下，这层覆盖恰好成了天然的保护屏障，所以它们仍保持着原本的生长姿态。当这些遗存被揭开，科学家得以窥见冰川形成之前的生态环境。
+
+[下载480](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_800x480.jpg&rf=LaDigue_800x480.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_1024x768.jpg&rf=LaDigue_1024x768.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg&rf=LaDigue_UHD.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
