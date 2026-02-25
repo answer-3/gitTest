@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_1024x768.jpg&rf=LaDigue_1024x768.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg&rf=LaDigue_UHD.jpg "门登霍尔冰川的冰洞，阿拉斯加州，美国")
+
+
+---
+### 2026 2月 26：一幅壮丽的景象
+#### 大峡谷和科罗拉多河，亚利桑那州，美国（© Matt Anderson Photography/Getty Images）
+![一幅壮丽的景象](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_800x480.jpg&rf=LaDigue_800x480.jpg "一幅壮丽的景象")
+大峡谷国家公园每天都有新的故事，但2月26日这一天格外特别，纪念的是1919年大峡谷正式成为国家公园的历史时刻。这一里程碑式的决定，守护了美国最具代表性的自然奇观。峡谷深处，科罗拉多河缓缓流淌，穿行于层叠的岩石之间，跨越数百英里，以季节为节拍，静静雕刻着峡谷的生命。
+
+国家公园管理局在园内多个观景点架设了实时网络摄像头，分享日出时刻、天气变化与峡谷的日常节律。
+
+[下载480](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_800x480.jpg&rf=LaDigue_800x480.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_1024x768.jpg&rf=LaDigue_1024x768.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg&rf=LaDigue_UHD.jpg "大峡谷和科罗拉多河，亚利桑那州，美国")
