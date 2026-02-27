@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_1024x768.jpg&rf=LaDigue_1024x768.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国")
+
+
+---
+### 2026 2月 28：洋溢着社区氛围
+#### 奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国（© Andrew Aylett/Getty Images）
+![洋溢着社区氛围](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_800x480.jpg&rf=LaDigue_800x480.jpg "洋溢着社区氛围")
+莫洛凯岛常被称为“最具夏威夷气息岛屿”，这里的节奏缓慢而从容，由自然环境与紧密相连的社区共同塑造。岛屿形成于一百多万年前的火山活动，占地约260平方英里，从太平洋中隆起，延展出修长的山脊与开阔的谷地。与喧闹的邻岛不同，莫洛凯岛拒绝大规模开发，保留了强烈的在地凝聚力，家庭、传统以及对土地的守护构成了这里的核心价值。人们的生活围绕着海洋、土地，以及代代相传的故事展开。
+
+这些瀑布极为偏远，只能从空中或海上远望。附近既没有公路，也没有步道。最近的城镇是考纳卡凯，这是岛上的主要城镇。
+
+[下载480](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_800x480.jpg&rf=LaDigue_800x480.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_UHD.jpg&rf=LaDigue_UHD.jpg "奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国")
