@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_1024x768.jpg&rf=LaDigue_1024x768.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg&rf=LaDigue_UHD.jpg "元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国")
+
+
+---
+### 2026 3月 4：聚光灯下的番红花
+#### 紫番红花, 里拉七湖, 保加利亚（© Maya Karkalicheva/Getty Images）
+![聚光灯下的番红花](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_800x480.jpg&rf=LaDigue_800x480.jpg "聚光灯下的番红花")
+随着保加利亚西南部里拉山脉冬季寒意减退，番红花从积雪中破土而出，标志着该国最高山脉春天的来临。作为早春花卉，它们利用储存的养分，在寒冷条件下迅速生长，并在更高大的植物出现之前完成生命周期。成簇的花朵在高山草甸上绽放，如紫色缎带般铺展，与雪原形成鲜明对比，在清晨的光线中格外醒目。
+
+在人类文明的早期记载中，番红花就已出现，最重要的原因是它能产出藏红花。藏红花采自一种秋日开花的番红花属植物，其干燥的雌蕊既可调味，也可染色，是世上最昂贵的香料之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_800x480.jpg&rf=LaDigue_800x480.jpg "紫番红花, 里拉七湖, 保加利亚")
+[下载720](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_1024x768.jpg&rf=LaDigue_1024x768.jpg "紫番红花, 里拉七湖, 保加利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫番红花, 里拉七湖, 保加利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg&rf=LaDigue_UHD.jpg "紫番红花, 里拉七湖, 保加利亚")
