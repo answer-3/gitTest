@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_1024x768.jpg&rf=LaDigue_1024x768.jpg "紫番红花, 里拉七湖, 保加利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "紫番红花, 里拉七湖, 保加利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg&rf=LaDigue_UHD.jpg "紫番红花, 里拉七湖, 保加利亚")
+
+
+---
+### 2026 3月 5：古老岩石，现代灯光
+#### 格雷梅的傍晚, 卡帕多西亚, 土耳其（© ONNAJA/Getty Images）
+![古老岩石，现代灯光](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_800x480.jpg&rf=LaDigue_800x480.jpg "古老岩石，现代灯光")
+黄昏时分，卡帕多西亚格雷梅地区的地貌逐渐显现。这片区域隶属于格雷梅国家公园与卡帕多西亚岩石遗址，1985年入选世界遗产名录。“精灵烟囱”等地貌源自安那托利亚火山喷发形成的火山灰层，随后经风与水长期侵蚀，雕刻出石柱、山脊与谷地。
+
+格雷梅是一座由火山岩凿刻而成的小镇，是通往格雷梅国家公园的门户。这里被列入联合国教科文组织世界遗产名录，保存着10至11世纪的洞穴教堂，并以“精灵烟囱”般的岩石地貌闻名，深受世界各地的背包客喜爱。
+
+[下载480](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_800x480.jpg&rf=LaDigue_800x480.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
+[下载720](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_1024x768.jpg&rf=LaDigue_1024x768.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
+[下载1080](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
+[下载UHD](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
