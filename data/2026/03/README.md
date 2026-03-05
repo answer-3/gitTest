@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_1024x768.jpg&rf=LaDigue_1024x768.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
 [下载1080](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
 [下载UHD](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg "格雷梅的傍晚, 卡帕多西亚, 土耳其")
+
+
+---
+### 2026 3月 6：混凝土中铸造的波浪
+#### 波浪住宅楼, 瓦埃勒, 丹麦（© Frank Bach/Alamy）
+![混凝土中铸造的波浪](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_800x480.jpg&rf=LaDigue_800x480.jpg "混凝土中铸造的波浪")
+建筑融合了艺术与科技，并通过建筑形式得以展现。虽然许多设计主要侧重于功能，但也有一些建筑同样重视视觉冲击力。丹麦韦勒的“波浪”建筑群就是一个绝佳的例子，它将雕塑般的造型设计与实用的居住空间完美结合。
+
+这座屡获殊荣的九层住宅楼代表着城市滨水区的复兴，也代表着丹麦小镇韦勒的新形象。
+
+[下载480](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_800x480.jpg&rf=LaDigue_800x480.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
+[下载720](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_1024x768.jpg&rf=LaDigue_1024x768.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
+[下载1080](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
+[下载UHD](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg&rf=LaDigue_UHD.jpg "波浪住宅楼, 瓦埃勒, 丹麦")
