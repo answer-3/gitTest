@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_1024x768.jpg&rf=LaDigue_1024x768.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
 [下载1080](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg&rf=LaDigue_UHD.jpg "布罗肯峰的日出, 哈尔茨国家公园, 德国")
+
+
+---
+### 2026 3月 8：节约日光的艺术
+#### 乌尔姆市政厅的天文钟, 德国（© Tomekbudujedomek/Getty Images）
+![节约日光的艺术](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_800x480.jpg&rf=LaDigue_800x480.jpg "节约日光的艺术")
+每年三月，美国大部分地区开始实行夏令时，时钟拨快以最大限度地利用日光。这一想法可以追溯到1784年，当时本杰明·富兰克林曾幽默地建议人们早起以节省蜡烛的使用。美国在第一次世界大战期间，于1918年正式采用夏令时，作为一项节能措施。经过多年执行不一之后，1966年的《统一时间法案》确立了全国范围内季节性时钟调整的标准。虽然如今大多数州都实行夏令时，但夏威夷州和亚利桑那州（纳瓦霍族保留地除外）不实行，理由是日光变化幅度很小，且出于气候方面的考虑。此外，美国的一些属地全年也保持标准时间。
+
+位于德国乌尔姆市市政厅的天文钟是一座历史悠久的时钟，以其精巧的机械结构和详尽的天文显示而闻名。
+
+[下载480](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_800x480.jpg&rf=LaDigue_800x480.jpg "乌尔姆市政厅的天文钟, 德国")
+[下载720](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌尔姆市政厅的天文钟, 德国")
+[下载1080](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌尔姆市政厅的天文钟, 德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg "乌尔姆市政厅的天文钟, 德国")
