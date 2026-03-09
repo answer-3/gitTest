@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_1024x768.jpg&rf=LaDigue_1024x768.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_UHD.jpg&rf=LaDigue_UHD.jpg "在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰")
+
+
+---
+### 2026 3月 10：霜下之火
+#### 赫韦拉韦利尔的布拉赫维尔地热池, 冰岛（© Juan Maria Coy Vergara/Getty Images）
+![霜下之火](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_800x480.jpg&rf=LaDigue_800x480.jpg "霜下之火")
+你是否曾好奇，当火焰、冰霜和时间交汇于同一片土地，会发生什么？冰岛的赫韦拉韦利尔地热田或许能解答你的疑问。在这片高地热点地区，地球内部的能量与冰冷的地表相遇，引发了压力、温度和岩石之间一场激烈的对话。喷气孔嘶嘶作响，蒸汽袅袅升腾，大地被染成硫磺白、铁锈红和赭黄——这不仅是艺术，更是极端高温驱动的化学反应。在今天的照片中，布拉赫韦尔天然温泉呈现出耀眼的电光蓝。这种颜色源于富含矿物质和二氧化硅的泉水反射光线。
+
+冰岛赫韦拉韦利尔的布拉赫维尔地热蓝池是一处令人惊叹的温泉，以其湛蓝的水色和在偏远火山高地中喷腾的地热活动而闻名。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_800x480.jpg&rf=LaDigue_800x480.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_1024x768.jpg&rf=LaDigue_1024x768.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg&rf=LaDigue_UHD.jpg "赫韦拉韦利尔的布拉赫维尔地热池, 冰岛")
