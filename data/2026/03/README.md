@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_1024x768.jpg&rf=LaDigue_1024x768.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的桃树, 谢萨, 穆尔西亚, 西班牙")
+
+
+---
+### 2026 3月 12：排练中的翅膀
+#### 幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔（© Andy Rouse/naturepl.com）
+![排练中的翅膀](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_800x480.jpg&rf=LaDigue_800x480.jpg "排练中的翅膀")
+在厄瓜多尔的云雾森林高处，一只幼年日鳽展开翅膀进行早期展示，橙色、黑色和白色的斑纹在透过树叶的绿色光影中闪现。突如其来的色彩对比穿透覆盖苔藓的枝干和叶影下的林下层，呈现出这一物种戏剧性的翅膀斑纹。成年的日鳽通常在防御展示时才会显露这些醒目的斑纹，短暂地将这只原本隐秘的鸟变成引人注目的视觉奇观。
+
+日鳽的翅膀上有类似眼睛的斑纹，通常在昏暗的森林中展开翅膀展示时显现出来。
+
+[下载480](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_800x480.jpg&rf=LaDigue_800x480.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_1024x768.jpg&rf=LaDigue_1024x768.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_UHD.jpg&rf=LaDigue_UHD.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
