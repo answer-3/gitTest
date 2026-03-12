@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_1024x768.jpg&rf=LaDigue_1024x768.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_UHD.jpg&rf=LaDigue_UHD.jpg "幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔")
+
+
+---
+### 2026 3月 13：静谧的石之杰作
+#### 邦港圣母教堂拱顶，莱萨布勒多洛讷，法国（© Helmut Meyer zur Capellen/Alamy）
+![静谧的石之杰作](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_800x480.jpg&rf=LaDigue_800x480.jpg "静谧的石之杰作")
+在法国西部海滨小镇莱萨布勒多洛讷的邦港圣母堂拱顶下，石质拱肋依旧引导着视线向上。高耸的拱顶自1646年开始建造，这座教堂自1993年被列为法国历史古迹，坐落在一座13世纪小礼拜堂的旧址上，静静讲述着大西洋沿岸悠久的精神文化与历史故事。
+
+邦港圣母堂的18世纪管风琴，是教堂内的艺术珍宝，节日期间为音乐增添独特氛围。
+
+[下载480](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_800x480.jpg&rf=LaDigue_800x480.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
+[下载720](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_1024x768.jpg&rf=LaDigue_1024x768.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_UHD.jpg&rf=LaDigue_UHD.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
