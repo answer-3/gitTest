@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_1024x768.jpg&rf=LaDigue_1024x768.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_UHD.jpg&rf=LaDigue_UHD.jpg "邦港圣母教堂拱顶，莱萨布勒多洛讷，法国")
+
+
+---
+### 2026 3月 14：圆周率的古老启示
+#### 兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国（© Helen Hotson/Alamy）
+![圆周率的古老启示](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_800x480.jpg&rf=LaDigue_800x480.jpg "圆周率的古老启示")
+在圆周率尚未有名字之前，人们就被它的奥秘所吸引。每年的3月14日，被定为“圆周率日”，以纪念数学中最著名的常数之一。这个日期正好对应圆周率π的前三位数字(3.14)，即圆的周长与直径之比。圆周率无穷且不循环的小数部分长期以来一直令学者们着迷。现代的庆祝活动始于1988年，当时物理学家拉里·肖(Larry Shaw)用一种特别的方式纪念这一天：享用美味的派(pie)。
+
+兰扬石门的巨石排列展示了新石器时代工匠对材料选择和空间布局的智慧。它不仅是墓葬遗迹，也体现了当时人类对环境与自然力量的适应能力。
+
+[下载480](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_800x480.jpg&rf=LaDigue_800x480.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
+[下载720](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_1024x768.jpg&rf=LaDigue_1024x768.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
+[下载1080](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_UHD.jpg&rf=LaDigue_UHD.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
