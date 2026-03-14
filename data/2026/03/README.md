@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_1024x768.jpg&rf=LaDigue_1024x768.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
 [下载1080](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_UHD.jpg&rf=LaDigue_UHD.jpg "兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国")
+
+
+---
+### 2026 3月 15：掠海而过
+#### 太平洋沿岸国家公园保护区，温哥华岛，加拿大（© EmilyNorton/Getty Images）
+![掠海而过](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_800x480.jpg&rf=LaDigue_800x480.jpg "掠海而过")
+在加拿大，“太平洋沿岸鲸鱼节”庆祝成千上万头灰鲸每年春季的迁徙盛况——它们沿着岛屿西海岸近岸而行，场面壮观。这项节日由当地社区于20世纪80年代发起，旨在纪念灰鲸从墨西哥下加利福尼亚的繁殖潟湖启程，踏上北返旅程的重要时刻。
+
+太平洋沿岸鲸鱼节不仅是观鲸活动，还包括海洋主题艺术展、社区巡游和公众讲座，体现了当地居民对海洋文化的长期关注与参与。
+
+[下载480](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_800x480.jpg&rf=LaDigue_800x480.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_1024x768.jpg&rf=LaDigue_1024x768.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg&rf=LaDigue_UHD.jpg "太平洋沿岸国家公园保护区，温哥华岛，加拿大")
