@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_1024x768.jpg&rf=LaDigue_1024x768.jpg "正在吃竹子的大熊猫，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在吃竹子的大熊猫，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_UHD.jpg&rf=LaDigue_UHD.jpg "正在吃竹子的大熊猫，中国")
+
+
+---
+### 2026 3月 17：爱尔兰的精神十字路口
+#### 艾利赫格里安南环形堡，多内加尔，爱尔兰（© Lukassek/Getty Images）
+![爱尔兰的精神十字路口](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_800x480.jpg&rf=LaDigue_800x480.jpg "爱尔兰的精神十字路口")
+圣帕特里克是爱尔兰的守护圣人，约生于公元4世纪末至5世纪初的罗马不列颠。据传说，他在16岁时被爱尔兰掠夺者绑架，带到爱尔兰成为奴隶。逃回家乡后，他成为传教士，将基督教传播到整个爱尔兰岛。后来的传统中，他以三叶草来解释三位一体而闻名。圣帕特里克的信仰遗产，使得圣帕特里克节成为全球性的庆典。
+
+艾利赫格里安南环形堡曾是阿尔斯特国王的居所，其铁器时代的石墙与结构展示了古凯尔特人的防御智慧和社会组织能力。
+
+[下载480](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_800x480.jpg&rf=LaDigue_800x480.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_1024x768.jpg&rf=LaDigue_1024x768.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_UHD.jpg&rf=LaDigue_UHD.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
