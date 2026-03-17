@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_1024x768.jpg&rf=LaDigue_1024x768.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_UHD.jpg&rf=LaDigue_UHD.jpg "艾利赫格里安南环形堡，多内加尔，爱尔兰")
+
+
+---
+### 2026 3月 18：城市花开
+#### 汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国（© Eric Vogt/Tandem Stills + Motion）
+![城市花开](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_800x480.jpg&rf=LaDigue_800x480.jpg "城市花开")
+汤姆·麦考尔滨水公园位于俄勒冈州波特兰威拉米特河畔，占地36英亩，是这座城市最受欢迎的绿地之一。每年春季——通常从3月中旬到4月初——公园会被粉色与白色的樱花覆盖，仿佛置身花海。沿着风景优美的步道漫步，这些充满生机的樱树为城市中心提供了一片宁静的休憩空间。公园内还有多处著名景点，如萨蒙街喷泉（Salmon Street Springs），一个拥有众多水柱的互动喷泉，以及波特兰周六市场（Portland Saturday Market），是当地居民和游客喜爱的热门去处。
+
+汤姆·麦考尔滨水公园曾是港口和工业区，但经过城市改造，如今成为市民休闲和文化活动的核心空间。
+
+[下载480](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_800x480.jpg&rf=LaDigue_800x480.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_1024x768.jpg&rf=LaDigue_1024x768.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_UHD.jpg&rf=LaDigue_UHD.jpg "汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国")
