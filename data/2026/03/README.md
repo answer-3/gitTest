@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_1024x768.jpg&rf=LaDigue_1024x768.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg&rf=LaDigue_UHD.jpg "澳洲针鼹，阿德莱德山，澳大利亚")
+
+
+---
+### 2026 3月 20：春日绯梦
+#### 春日樱花，上海，中国（© junyyeung/Getty Images）
+![春日绯梦](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_800x480.jpg&rf=LaDigue_800x480.jpg "春日绯梦")
+在中国，春天的到来常常与樱花的绽放紧密相连。从南方到北方，公园与河畔逐渐被轻柔的花瓣装点，宛如铺展开来的粉色云霞。樱花象征着新生、希望，以及春日短暂却动人的美丽。每到花开时节，人们纷纷走进赏花胜地，感受早春的温暖与生机。
+
+如今种植在中国各地的许多樱花树，属于一百多年前引入的观赏品种。不同品种的花期略有差异，因此在一些城市，从三月初到四月中旬，人们都能欣赏到延续数周的樱花盛放景象。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_800x480.jpg&rf=LaDigue_800x480.jpg "春日樱花，上海，中国")
+[下载720](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_1024x768.jpg&rf=LaDigue_1024x768.jpg "春日樱花，上海，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春日樱花，上海，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg "春日樱花，上海，中国")
