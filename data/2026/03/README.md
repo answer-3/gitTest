@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_1024x768.jpg&rf=LaDigue_1024x768.jpg "坦噶尼喀湖，非洲")
 [下载1080](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "坦噶尼喀湖，非洲")
 [下载UHD](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_UHD.jpg&rf=LaDigue_UHD.jpg "坦噶尼喀湖，非洲")
+
+
+---
+### 2026 3月 24：春天的形状
+#### 东湖樱花园的樱花，武汉，中国（© Zhang Qiao/VCG/Getty Images）
+![春天的形状](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_800x480.jpg&rf=LaDigue_800x480.jpg "春天的形状")
+从空中俯瞰，中国武汉的东湖樱花园宛如一朵淡紫色的云，轻柔地停驻在大地之上。成千上万株樱花同时盛放，浅色花瓣在公园中心一座金色五层宝塔周围织就出一片生机盎然的花海穹顶。宝塔以沉静而对称的姿态挺立，层层飞檐在柔和的春日色彩映衬下熠熠生辉。
+
+武汉樱花花期很短，单株3—5天盛放，最佳观赏期常不足一周。气温每升高1℃，花期都会提前。
+
+[下载480](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_800x480.jpg&rf=LaDigue_800x480.jpg "东湖樱花园的樱花，武汉，中国")
+[下载720](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1024x768.jpg&rf=LaDigue_1024x768.jpg "东湖樱花园的樱花，武汉，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东湖樱花园的樱花，武汉，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg&rf=LaDigue_UHD.jpg "东湖樱花园的樱花，武汉，中国")
