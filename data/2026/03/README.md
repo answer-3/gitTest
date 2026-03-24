@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1024x768.jpg&rf=LaDigue_1024x768.jpg "东湖樱花园的樱花，武汉，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东湖樱花园的樱花，武汉，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg&rf=LaDigue_UHD.jpg "东湖樱花园的樱花，武汉，中国")
+
+
+---
+### 2026 3月 25：海牛的秘密生活
+#### 淡水泉中的幼年海牛，水晶河，佛罗里达州，美国（© Gregory Sweeney/Getty Images）
+![海牛的秘密生活](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_800x480.jpg&rf=LaDigue_800x480.jpg "海牛的秘密生活")
+海牛看起来行动缓慢、昏昏欲睡，但在水下却有不少令人惊讶的“本领”。首先，它们是少数会持续更换牙齿的哺乳动物之一。首先，它们是少数会持续更换牙齿的哺乳动物之一。当臼齿因咀嚼含沙的海草而磨损时，新牙会像传送带一样缓缓向前移动、替换旧牙——这对每天进食可达8小时的它们来说尤为重要。
+
+海牛的新陈代谢非常缓慢，静息时心率通常只有每分钟约25次，比许多同体型哺乳动物都低。
+
+[下载480](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_800x480.jpg&rf=LaDigue_800x480.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1024x768.jpg&rf=LaDigue_1024x768.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg&rf=LaDigue_UHD.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
