@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1024x768.jpg&rf=LaDigue_1024x768.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg&rf=LaDigue_UHD.jpg "淡水泉中的幼年海牛，水晶河，佛罗里达州，美国")
+
+
+---
+### 2026 3月 26：凌驾荒野之上
+#### 洛根溪吊桥，西海岸步道，加拿大（© Tandem Stock/Adobe Stock）
+![凌驾荒野之上](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_800x480.jpg&rf=LaDigue_800x480.jpg "凌驾荒野之上")
+沿着加拿大温哥华岛西南部偏远海岸延伸的西海岸步道，是该国最具传奇色彩的徒步路线之一。这条步道位于 太平洋沿岸国家公园保护区，全长约47英里，穿越雨林、沙滩和岩石海岸线。该步道始建于1907年，最初是一条为海难幸存者设立的救生通道，沿线海域曾被水手称为“太平洋墓地”。
+
+由于泥泞路段、木梯、河流以及多变而严酷的海岸天气，西海岸步道 通常需要6至8天才能完成。
+
+[下载480](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_800x480.jpg&rf=LaDigue_800x480.jpg "洛根溪吊桥，西海岸步道，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1024x768.jpg&rf=LaDigue_1024x768.jpg "洛根溪吊桥，西海岸步道，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洛根溪吊桥，西海岸步道，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg&rf=LaDigue_UHD.jpg "洛根溪吊桥，西海岸步道，加拿大")
