@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1024x768.jpg&rf=LaDigue_1024x768.jpg "洛根溪吊桥，西海岸步道，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "洛根溪吊桥，西海岸步道，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg&rf=LaDigue_UHD.jpg "洛根溪吊桥，西海岸步道，加拿大")
+
+
+---
+### 2026 3月 27：依然明亮地燃烧着
+#### 纽约市的无线电城音乐厅, 美国（© Clarence Holmes Photography/Alamy）
+![依然明亮地燃烧着](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_800x480.jpg&rf=LaDigue_800x480.jpg "依然明亮地燃烧着")
+乍一看，无线电城音乐厅的内部装潢无疑会吸引你的目光，让你兴奋不已。仿佛置身于纽约市中心的阳光下——这是装饰艺术风格狂热的化身，展现了20世纪30年代人们对未来的憧憬。每年的3月27日是世界戏剧日，人们都会庆祝这种令人叹为观止的震撼体验。
+
+世界戏剧日由国际戏剧协会（ITI）创立，并于1962年3月27日首次庆祝，当天也是巴黎“民族剧院”演出季的开幕日。此后，每年的这一天，世界戏剧日都会在全球范围内庆祝。
+
+[下载480](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_800x480.jpg&rf=LaDigue_800x480.jpg "纽约市的无线电城音乐厅, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_1024x768.jpg&rf=LaDigue_1024x768.jpg "纽约市的无线电城音乐厅, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纽约市的无线电城音乐厅, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg&rf=LaDigue_UHD.jpg "纽约市的无线电城音乐厅, 美国")
