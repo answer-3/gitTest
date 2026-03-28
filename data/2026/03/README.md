@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_1024x768.jpg&rf=LaDigue_1024x768.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_UHD.jpg&rf=LaDigue_UHD.jpg "非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚")
+
+
+---
+### 2026 3月 29：海边的宁静
+#### 佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大（© Prashanth Bala/Shutterstock）
+![海边的宁静](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_800x480.jpg&rf=LaDigue_800x480.jpg "海边的宁静")
+佩吉湾是新斯科舍省崎岖海岸线上一个迷人而小巧的村庄，展现了海滨生活的一角。村里最著名的地标是佩吉角灯塔（也称佩吉湾灯塔），它最初建于1868年，后于1915年被现在的灯塔所取代。一个多世纪以来，它指引着船只穿梭于变幻莫测的大西洋，成为海岸生活永恒的象征。周围的景色，海风吹拂，波涛汹涌，仿佛时间在这里停滞。
+
+佩吉湾村周围是佩吉湾保护区，这是一片占地 1000 英亩的受保护土地，拥有敏感的生态系统。
+
+[下载480](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_800x480.jpg&rf=LaDigue_800x480.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_1024x768.jpg&rf=LaDigue_1024x768.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_UHD.jpg&rf=LaDigue_UHD.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
