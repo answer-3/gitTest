@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_1024x768.jpg&rf=LaDigue_1024x768.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_UHD.jpg&rf=LaDigue_UHD.jpg "佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大")
+
+
+---
+### 2026 3月 30：优雅的动态
+#### 蓑羽鹤, 印度（© Axel Gomille/Nature Picture Library）
+![优雅的动态](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_800x480.jpg&rf=LaDigue_800x480.jpg "优雅的动态")
+蓑羽鹤是一种体型虽小却引人注目的候鸟，分布于中亚各地，繁殖地位于哈萨克斯坦、蒙古和中国北部的草原，越冬地则在印度、尼泊尔和非洲部分地区。它拥有优雅的外形——纤细的脖颈、修长的双腿和美丽的羽毛——常被认为是鹤类中最优雅的物种之一。蓑羽鹤以其精妙的求偶舞而闻名，求偶时，雌雄蓑羽鹤会同步地舞动和鸣叫，呈现出一场美妙绝伦的视觉盛宴。
+
+在世界自然保护联盟濒危物种红色名录中，蓑羽鹤被评估为无危物种。
+
+[下载480](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_800x480.jpg&rf=LaDigue_800x480.jpg "蓑羽鹤, 印度")
+[下载720](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_1024x768.jpg&rf=LaDigue_1024x768.jpg "蓑羽鹤, 印度")
+[下载1080](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓑羽鹤, 印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_UHD.jpg&rf=LaDigue_UHD.jpg "蓑羽鹤, 印度")
