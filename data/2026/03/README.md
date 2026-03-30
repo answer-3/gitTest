@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_1024x768.jpg&rf=LaDigue_1024x768.jpg "蓑羽鹤, 印度")
 [下载1080](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蓑羽鹤, 印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_UHD.jpg&rf=LaDigue_UHD.jpg "蓑羽鹤, 印度")
+
+
+---
+### 2026 3月 31：地下天堂
+#### 天堂洞, 峰牙-格邦国家公园, 越南（© Pakawat Thongcharoen/Getty Images）
+![地下天堂](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_800x480.jpg&rf=LaDigue_800x480.jpg "地下天堂")
+天堂洞给人的第一印象极其震撼，游客一踏入其中便会为之惊叹。这座巨大的石灰岩洞穴位于越南中部峰牙-己榜国家公园深处，该地区以崎岖的山脉和无数隐秘的洞穴而闻名。天堂洞绵延超过19英里，是亚洲最长的旱洞之一，其规模之宏大令人叹为观止。高耸的洞顶俯瞰着步道，富含矿物质的水流经数百万年形成层层叠叠的图案遍布洞壁。
+
+天堂洞是亚洲最长的旱洞，全长31.4公里。然而，只有天堂洞的前1公里对公众开放，而7公里的探险之旅则允许游客进行更深入的探索。
+
+[下载480](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_800x480.jpg&rf=LaDigue_800x480.jpg "天堂洞, 峰牙-格邦国家公园, 越南")
+[下载720](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_1024x768.jpg&rf=LaDigue_1024x768.jpg "天堂洞, 峰牙-格邦国家公园, 越南")
+[下载1080](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "天堂洞, 峰牙-格邦国家公园, 越南")
+[下载UHD](https://cn.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_UHD.jpg&rf=LaDigue_UHD.jpg "天堂洞, 峰牙-格邦国家公园, 越南")
