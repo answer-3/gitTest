@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_1024x768.jpg&rf=LaDigue_1024x768.jpg "粉色牵牛花里的日本树蛙")
 [下载1080](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "粉色牵牛花里的日本树蛙")
 [下载UHD](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_UHD.jpg&rf=LaDigue_UHD.jpg "粉色牵牛花里的日本树蛙")
+
+
+---
+### 2026 4月 2：春天的图案
+#### 野花绽放, 中央谷地, 加利福尼亚州, 美国（© Jeff Lewis/Tandem Stills + Motion）
+![春天的图案](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_800x480.jpg&rf=LaDigue_800x480.jpg "春天的图案")
+春意盎然的加州中央谷地在冬雨过后，野花竞相绽放，宣告着春天的到来。这片南北绵延约450英里、面积约2万平方英里的山谷，是世界上农业生产力最高的地区之一。然而，在早春时节，这里又会短暂地展现出一种古老的景象。从三月到四月，当气温和土壤湿度达到适宜水平时，金盏花、整齐叶草和猫头鹰三叶草等本地一年生植物便会迅速发芽。它们争分夺秒地完成生命周期，以迎接漫长旱季的到来。
+
+中央谷地以其农业生产力而闻名。它为加利福尼亚州提供了大部分食品，而加利福尼亚州又提供了美国一半以上的水果、蔬菜和坚果。
+
+[下载480](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_800x480.jpg&rf=LaDigue_800x480.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_1024x768.jpg&rf=LaDigue_1024x768.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg&rf=LaDigue_UHD.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
