@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_1024x768.jpg&rf=LaDigue_1024x768.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg&rf=LaDigue_UHD.jpg "野花绽放, 中央谷地, 加利福尼亚州, 美国")
+
+
+---
+### 2026 4月 3：一次挥动桥臂，连接两岸
+#### 阿姆布鲁大桥，阿姆斯特丹，荷兰（© Alexander Spatari/Getty Images）
+![一次挥动桥臂，连接两岸](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_800x480.jpg&rf=LaDigue_800x480.jpg "一次挥动桥臂，连接两岸")
+在阿姆斯特丹，有些桥梁只是用来跨越运河，而阿姆布鲁赫桥（Armbrug）则多了一份趣味——当人们经过时，它仿佛在向行人挥手致意。这座桥横跨在旧侧沃堡运河之上。它的名字意为“手臂桥”，但实际上并不是指桥的形状，而是源自附近的一条小巷——Oudezijds Armsteeg（旧侧臂巷）。虽然名字与“手臂”有关，但更像是一种有趣的联想，让人不禁想象它正向经过的骑行者和行人友好地打招呼。
+
+“Armbrug”这一名称源自该桥的运作机制。这座桥配有长长的升降臂，通过升降桥面来让船只得以穿过运河。
+
+[下载480](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_800x480.jpg&rf=LaDigue_800x480.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
+[下载720](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_UHD.jpg&rf=LaDigue_UHD.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
