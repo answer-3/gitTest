@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_UHD.jpg&rf=LaDigue_UHD.jpg "阿姆布鲁大桥，阿姆斯特丹，荷兰")
+
+
+---
+### 2026 4月 4：求偶展示场的故事
+#### 求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚（© Sven Zacek/Nature Picture Library）
+![求偶展示场的故事](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_800x480.jpg&rf=LaDigue_800x480.jpg "求偶展示场的故事")
+在日出之前，荒原上的“生物时钟”已经开始运转，仿佛为一场特别的“舞会”拉开序幕。雄性黑琴鸡不会发出邀请函，它们用低沉而响亮的鸣声来宣告自己的到来。欢迎来到求偶展示季——在这里，爱情充满竞争，场面热闹而喧闹，而且一切都发生在广阔的野外。
+
+雄性黑琴鸡在眼睛上方长有一块鲜艳的红色肉垂（皮肤组织）。在求偶展示时，它们会让这块红色皮肤鼓起并变得更加显眼，以吸引雌性的注意。
+
+[下载480](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_800x480.jpg&rf=LaDigue_800x480.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_1024x768.jpg&rf=LaDigue_1024x768.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_UHD.jpg&rf=LaDigue_UHD.jpg "求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚")
