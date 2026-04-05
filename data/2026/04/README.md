@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_1024x768.jpg&rf=LaDigue_1024x768.jpg "春天的雪钟花")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "春天的雪钟花")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_UHD.jpg&rf=LaDigue_UHD.jpg "春天的雪钟花")
+
+
+---
+### 2026 4月 6：芬芳四月
+#### 樱花盛开的弘前城，弘前，日本（© Glenn Waters/Getty Images）
+![芬芳四月](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_800x480.jpg&rf=LaDigue_800x480.jpg "芬芳四月")
+想象一下17世纪初的日本北部：城堡矗立在政治、贸易与行政的交汇点上，是权力与治理的重要中心。随着时间推移，这些城堡不仅见证了紧张与冲突的历史，也记录了坚守、变迁以及人们的日常生活。每年4月6日庆祝的日本城堡日正是为了让人们关注这段多层次的历史。这一天的日期来自一个有趣的日语谐音：“shi”（4）和“ro”（6）**组合成 “Shiro-no-Hi”，因为 “shiro” 在日语中意为“城堡”。
+
+樱花在日本被称为“sakura”，每年春天只盛开短短一段时间。正因花期短暂，樱花在日本文化中象征着生命的短暂与珍贵。人们常在花开时举行“花见（hanami）”，与家人朋友一起赏花庆祝春天的到来。
+
+[下载480](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_800x480.jpg&rf=LaDigue_800x480.jpg "樱花盛开的弘前城，弘前，日本")
+[下载720](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_1024x768.jpg&rf=LaDigue_1024x768.jpg "樱花盛开的弘前城，弘前，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "樱花盛开的弘前城，弘前，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_UHD.jpg&rf=LaDigue_UHD.jpg "樱花盛开的弘前城，弘前，日本")
