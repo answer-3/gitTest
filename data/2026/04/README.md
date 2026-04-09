@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_UHD.jpg&rf=LaDigue_UHD.jpg "雪落瀑布，布雷肯比肯斯国家公园，威尔士")
+
+
+---
+### 2026 4月 10：算计的小爪子
+#### 卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚（© Sven Zacek/Nature Picture Library）
+![算计的小爪子](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_800x480.jpg&rf=LaDigue_800x480.jpg "算计的小爪子")
+你有没有抓到过兄弟姐妹们密谋的场景？在爱沙尼亚的卡鲁拉国家公园，这两只红狐狸幼崽看起来像是在阴谋进行到一半时突然停住了，它们的表情中既有好奇也有谨慎。它们不仅仅是春天的毛茸茸小动物；它们是生存的学徒。红狐狸每胎平均生四到六只幼崽，它们成长迅速，地下洞穴成为它们的摔跤场、教室和试验场。年长的幼崽常常帮助喂养、看护并教导年幼的同伴，把游戏变成练习，把恶作剧变成肌肉记忆。在它们的家庭中，兄弟姐妹不仅是背景，更是后盾。
+
+卡鲁拉国家公园是该国最小的国家公园，但仍然是最迷人的之一。公园位于瓦尔加县和沃鲁县，其起伏的丘陵、原始的湖泊和宁静的森林使其成为自然爱好者和寻求宁静者的圣地。
+
+[下载480](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_800x480.jpg&rf=LaDigue_800x480.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_UHD.jpg&rf=LaDigue_UHD.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
