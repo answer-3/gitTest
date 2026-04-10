@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_UHD.jpg&rf=LaDigue_UHD.jpg "卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚")
+
+
+---
+### 2026 4月 11：火山外衣
+#### 帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙（© Gavin Hellier/Getty Images）
+![火山外衣](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_800x480.jpg&rf=LaDigue_800x480.jpg "火山外衣")
+由火焰孕育而成的海滩很少能如此低调，而帕帕加约海滩正好做到了这一点。我们今天看到的海岸线位于西班牙加那利群岛兰萨罗特岛的南端。热带幻想？更像是火山般的精准。数百万年前，这片土地在海底火山喷发的推动下，逐层由玄武岩和火山灰堆积升起。
+
+这片海滩是一个新月形的海湾，四周环绕着岩石悬崖和茂密的植被。沙子柔软而金黄，水清澈平静，非常适合游泳、浮潜和日光浴。
+
+[下载480](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_800x480.jpg&rf=LaDigue_800x480.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg&rf=LaDigue_UHD.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
