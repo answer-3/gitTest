@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1024x768.jpg&rf=LaDigue_1024x768.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg&rf=LaDigue_UHD.jpg "帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙")
+
+
+---
+### 2026 4月 12：离开地球的第一步
+#### 城市灯光在下方划过, 拍摄于国际空间站（© NASA）
+![离开地球的第一步](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_800x480.jpg&rf=LaDigue_800x480.jpg "离开地球的第一步")
+今天，世界纪念国际载人航天日，这是联合国设立的纪念日，旨在纪念人类首次进入太空的旅程以及人类太空时代的开始。这个日期回忆起1961年4月12日，尤里·加加林绕地球飞行，证明人类可以离开地球并安全返回。
+
+联合国在2011年设立了国际人类航天日，距首次有人类航天飞行已有50年。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_800x480.jpg&rf=LaDigue_800x480.jpg "城市灯光在下方划过, 拍摄于国际空间站")
+[下载720](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_1024x768.jpg&rf=LaDigue_1024x768.jpg "城市灯光在下方划过, 拍摄于国际空间站")
+[下载1080](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "城市灯光在下方划过, 拍摄于国际空间站")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg&rf=LaDigue_UHD.jpg "城市灯光在下方划过, 拍摄于国际空间站")
