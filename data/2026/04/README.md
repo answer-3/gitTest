@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_1024x768.jpg&rf=LaDigue_1024x768.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_UHD.jpg&rf=LaDigue_UHD.jpg "海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚")
+
+
+---
+### 2026 4月 15：走进这幅鲜活的画布
+#### 光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国（© Patrick Aventurier/Getty Images）
+![走进这幅鲜活的画布](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_800x480.jpg&rf=LaDigue_800x480.jpg "走进这幅鲜活的画布")
+艺术无处不在。创造力和自我表达是人类身份认同的重要组成部分，塑造着我们的过去和未来。有些人毕生致力于艺术，而另一些人则是艺术家作品的受益者。4月15日的世界艺术日旨在庆祝艺术创作与社会之间这种永恒的联系，正是这种联系塑造了我们的文化。
+
+世界艺术日定于4月15日，是为了纪念列奥纳多·达·芬奇的诞辰，表彰他对艺术和人类创造力的深远影响。
+
+[下载480](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_800x480.jpg&rf=LaDigue_800x480.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
+[下载720](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_1024x768.jpg&rf=LaDigue_1024x768.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
+[下载1080](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_UHD.jpg&rf=LaDigue_UHD.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
