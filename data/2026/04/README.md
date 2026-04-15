@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_1024x768.jpg&rf=LaDigue_1024x768.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
 [下载1080](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_UHD.jpg&rf=LaDigue_UHD.jpg "光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国")
+
+
+---
+### 2026 4月 16：花瓣巡游
+#### 斯卡吉特谷地郁金香花田, 华盛顿, 美国（© Alan Majchrowicz/Getty Images）
+![花瓣巡游](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_800x480.jpg&rf=LaDigue_800x480.jpg "花瓣巡游")
+每年春天，华盛顿州的斯卡吉特山谷都会变成一片色彩斑斓的花海，斯卡吉特山谷郁金香节在此欢庆花季的到来。整个四月，游客们可以漫步于郁金香花园和农田，欣赏成排盛开的郁金香，远眺群山美景。
+
+郁金香谷农场占地15 英亩，种植着130种花卉，其中包括100多种郁金香。
+
+[下载480](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_800x480.jpg&rf=LaDigue_800x480.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_UHD.jpg&rf=LaDigue_UHD.jpg "斯卡吉特谷地郁金香花田, 华盛顿, 美国")
