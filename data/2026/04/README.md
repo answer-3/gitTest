@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_1024x768.jpg&rf=LaDigue_1024x768.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_UHD.jpg&rf=LaDigue_UHD.jpg "灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚")
+
+
+---
+### 2026 4月 18：未完成巨像的静默
+#### 摩艾石像采石场，拉诺拉拉库，复活节岛，智利（© Gavin Hellier/Alamy）
+![未完成巨像的静默](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_800x480.jpg&rf=LaDigue_800x480.jpg "未完成巨像的静默")
+在今天的世界遗产日，人们将目光投向那些讲述人类共同历史的地方——这些地点因其卓越的文化或自然价值而受到保护。其中之一，便矗立在智利复活节岛的火山岩之上。在拉诺拉拉库，一座已熄灭火山的山坡曾是岛上绝大多数著名摩艾石像的雕刻工坊。画面展现的正是这一非凡的采石场：半成品的巨像从岩石中显现，仿佛在创作的瞬间被定格。
+
+在拉诺拉拉库，许多摩艾石像长期以来只露出头部，仿佛被埋藏于地下。考古发掘发现，这些石像其实拥有完整的身体，背部还刻有精细的岩画纹饰，为了解拉帕努伊人的艺术风格与文化传统提供了重要线索。
+
+[下载480](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_800x480.jpg&rf=LaDigue_800x480.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
+[下载720](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1024x768.jpg&rf=LaDigue_1024x768.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
+[下载1080](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&rf=LaDigue_UHD.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
