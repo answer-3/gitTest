@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1024x768.jpg&rf=LaDigue_1024x768.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
 [下载1080](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&rf=LaDigue_UHD.jpg "摩艾石像采石场，拉诺拉拉库，复活节岛，智利")
+
+
+---
+### 2026 4月 19：潮汐留下的印记
+#### 镜面海滩，塞古罗港，巴伊亚州，巴西（© Marcelo Nacinovic/Getty Images）
+![潮汐留下的印记](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐留下的印记")
+从空中俯瞰，巴西的镜面海滩宛如一幅可以走入其中的水彩画。浅色的悬崖、点缀在海岸线上的礁石，以及由潮汐形成的片片水潭，在退潮时清晰映出天空与云朵，也正因如此，这片海滩得名“镜面海滩”。它位于巴西东北部大西洋沿岸的巴伊亚州，坐落在塞古罗港的几座小渔村之间。通往这里需要经过土路和短途步道，这种相对不便的交通反而成为一种“天然限流”，让海滩始终保持着宁静而私密的氛围。它位于巴西东北部大西洋沿岸的巴伊亚州，坐落在塞古罗港的几座小渔村之间。通往这里需要经过土路和短途步道，这种相对不便的交通反而成为一种“天然限流”，让海滩始终保持着宁静而私密的氛围。
+
+在镜面海滩，能否看到清晰倒影其实取决于环境条件。当风力较小、潮位较低时，浅水水潭会像天然镜子一样平静；但只要出现轻微的水波，倒影就会立刻被“打破”。
+
+[下载480](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_800x480.jpg&rf=LaDigue_800x480.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1024x768.jpg&rf=LaDigue_1024x768.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
