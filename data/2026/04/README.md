@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1024x768.jpg&rf=LaDigue_1024x768.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg "镜面海滩，塞古罗港，巴伊亚州，巴西")
+
+
+---
+### 2026 4月 20：日落之后，探索仍在继续
+#### 夕阳下的峡谷地国家公园，莫阿布，犹他州，美国（© Jason Hatfield/Tandem Stills + Motion）
+![日落之后，探索仍在继续](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_800x480.jpg&rf=LaDigue_800x480.jpg "日落之后，探索仍在继续")
+国家公园周，是你暂别日常、走向自然的最佳契机。这一为期九天的庆祝活动将于4月18日至26日举行，聚焦国家公园体系中400多处自然与文化遗产地。在这里，自然风光与人文历史交织，为人们带来难忘的户外体验。从海岸线与森林，到辽阔的沙漠景观，这些受保护的区域邀请人们走进自然，感受宁静，心怀敬畏。
+
+你看到的银河，其实并不是“实时画面”。 在像峡谷地国家公园这样光污染极低的地方，人眼可以看到的银河中心区域，距离地球约2.6万光年——也就是说，你看到的是2.6万年前发出的光。
+
+[下载480](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_800x480.jpg&rf=LaDigue_800x480.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_1024x768.jpg&rf=LaDigue_1024x768.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg&rf=LaDigue_UHD.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
