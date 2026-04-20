@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_1024x768.jpg&rf=LaDigue_1024x768.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg&rf=LaDigue_UHD.jpg "夕阳下的峡谷地国家公园，莫阿布，犹他州，美国")
+
+
+---
+### 2026 4月 21：春季的“带刺巡逻兵”
+#### 西欧刺猬，法国（© Klein & Hubert/Nature Picture Library）
+![春季的“带刺巡逻兵”](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_800x480.jpg&rf=LaDigue_800x480.jpg "春季的“带刺巡逻兵”")
+春季降临，我们迎来了一位身披短刺的“生态使者”：西欧刺猬，本次发现于法国。这种体型微小的食虫类动物兼具独特的生物防御形态；它们多为夜行性且具有领域独居意识，主要依靠嗅觉与听觉导向。其生态位职责明确：通过在落叶层中游走、嗅探，大量捕食蚯蚓、甲虫、蛞蝓及鳞翅目幼虫等无脊椎动物——这些物种不仅是维持生态系统运转的关键环节，也是园艺害虫防治的天然助力。面对威胁时，西欧刺猬既不交涉也不逃逸，而是迅速蜷缩成紧密的球状，依靠背部的棘刺进行物理防御。
+
+西欧刺猬的背部覆有 5,000 至 7,000 根棘刺，这些刺是由角蛋白构成的坚硬中空毛发；需注意其与豪猪的刺（Quills）在结构上有所不同，并非如豪猪般具有倒钩且易脱落的‘防御性棘毛’。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_800x480.jpg&rf=LaDigue_800x480.jpg "西欧刺猬，法国")
+[下载720](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_1024x768.jpg&rf=LaDigue_1024x768.jpg "西欧刺猬，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西欧刺猬，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_UHD.jpg&rf=LaDigue_UHD.jpg "西欧刺猬，法国")
