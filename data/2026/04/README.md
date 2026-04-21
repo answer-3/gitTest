@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_1024x768.jpg&rf=LaDigue_1024x768.jpg "西欧刺猬，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "西欧刺猬，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_UHD.jpg&rf=LaDigue_UHD.jpg "西欧刺猬，法国")
+
+
+---
+### 2026 4月 22：行动的力量
+#### 阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚（© Sven Zacek/Nature Picture Library）
+![行动的力量](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_800x480.jpg&rf=LaDigue_800x480.jpg "行动的力量")
+地球日从不是轻轻敲门，而是一次将大门猛然推开的觉醒。1970年，沾满石油的海滩、燃烧的河流与充满毒素的空气，让数百万人走上街头抗议。当人们再也无法视而不见，环境保护被推上政治议程，催生出一系列里程碑式的环保法案，也让“守护地球”从边缘议题跃升为全球共识。每年4月22日，全球190多个国家都会在这一天停下脚步，反思、审视，并重新思考我们与地球的关系。
+
+湿地常被称为“地球的肾脏”。虽然只覆盖全球陆地面积的一小部分，但它们却能储存约三分之一的土壤碳。像阿拉姆-佩德亚这样的湿地系统，通过自然积累的泥炭层，将大量碳长期封存，从而在减缓气候变化中发挥着关键作用。
+
+[下载480](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_800x480.jpg&rf=LaDigue_800x480.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_UHD.jpg&rf=LaDigue_UHD.jpg "阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚")
