@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_1024x768.jpg&rf=LaDigue_1024x768.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_UHD.jpg&rf=LaDigue_UHD.jpg "安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰")
+
+
+---
+### 2026 4月 24：向树木致敬
+#### 湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国（© Mary Liz Austin/Alamy）
+![向树木致敬](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_800x480.jpg&rf=LaDigue_800x480.jpg "向树木致敬")
+植树节旨在颂扬树木的无声力量——它们如何稳定生态系统、庇护野生动物、为城市降温，并塑造我们日常生活所依赖的环境。在美国，植树节定于四月的最后一个星期五，这一天鼓励美国以及许多其他国家（日期因生长季节而异）的社区种植、保护和养护各种类型的森林，从社区绿荫到标志性的荒野。
+
+在这些复杂的生态系统中，栖息着种类繁多的水陆动物，包括在安兴加步道旁晒太阳的短吻鳄、在沼泽中觅食的苍鹭和白鹭，以及在海湾中悠然游弋的海牛。
+
+[下载480](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_800x480.jpg&rf=LaDigue_800x480.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_1024x768.jpg&rf=LaDigue_1024x768.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_UHD.jpg&rf=LaDigue_UHD.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
