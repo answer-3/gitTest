@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_1024x768.jpg&rf=LaDigue_1024x768.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_UHD.jpg&rf=LaDigue_UHD.jpg "湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国")
+
+
+---
+### 2026 4月 25：打破企鹅规则
+#### 加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔（© Henley Spiers/Nature Picture Library）
+![打破企鹅规则](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_800x480.jpg&rf=LaDigue_800x480.jpg "打破企鹅规则")
+企鹅通常让人联想到南极，但这些可爱的不会飞的海鸟并非总是追随冰雪而来。在世界企鹅日，图中这些加拉帕戈斯企鹅为我们展现了一个鲜明的对比。这种企鹅仅分布于加拉帕戈斯群岛——位于厄瓜多尔海岸约600英里外的火山群岛——是所有企鹅中分布最北的物种。凉爽且富含营养的洋流为它们提供了食物，并将周围水域的温度维持在适宜生存的范围内，从而使这种赤道栖息地成为可能。这些体型紧凑、行动敏捷的企鹅一天中的大部分时间都待在水中以保持凉爽。
+
+每只企鹅都有自己独特的叫声。这有助于它们在庞大的企鹅群落中找到伴侣和幼崽，这些企鹅群落的数量从几百只到几万只不等。
+
+[下载480](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_800x480.jpg&rf=LaDigue_800x480.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_1024x768.jpg&rf=LaDigue_1024x768.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg&rf=LaDigue_UHD.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
