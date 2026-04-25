@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_1024x768.jpg&rf=LaDigue_1024x768.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg&rf=LaDigue_UHD.jpg "加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔")
+
+
+---
+### 2026 4月 26：繁花盛放
+#### 粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国（© Mimi Ditchie Photography/Getty Images）
+![繁花盛放](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_800x480.jpg&rf=LaDigue_800x480.jpg "繁花盛放")
+春天，苹果树绽放出朵朵柔和的粉色花朵，生机盎然。娇嫩的花瓣点缀着果园和山坡，在湛蓝的天空映衬下格外醒目，标志着季节从寒冬走向温暖。这些花朵吸引着蜜蜂和蝴蝶等授粉昆虫，帮助果树结出丰硕的果实，为来年晚些时候的苹果生长做好准备。
+
+苹果花可以新鲜食用，也可以晒干后食用，香气浓郁，带有甜美的花香，是各种烹饪用途的理想食材。
+
+[下载480](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_800x480.jpg&rf=LaDigue_800x480.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_1024x768.jpg&rf=LaDigue_1024x768.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg&rf=LaDigue_UHD.jpg "粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国")
