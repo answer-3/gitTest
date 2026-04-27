@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_1024x768.jpg&rf=LaDigue_1024x768.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg "维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利")
+
+
+---
+### 2026 4月 28：野外奇观
+#### 眼镜熊在树上休息, 厄瓜多尔（© Andy Rouse/Nature Picture Library）
+![野外奇观](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_800x480.jpg&rf=LaDigue_800x480.jpg "野外奇观")
+眼镜熊，又称安第斯熊，是熊科中唯一的南美洲熊类。它们栖息于安第斯山脉北部和中部，主要生活在森林地区，以嫩芽和果实为食。眼睛周围的浅色斑纹酷似眼镜，因此得名“眼镜熊”。
+
+每只眼镜熊都有独特的面部标记，科学家利用这些标记来识别和追踪野生个体。
+
+[下载480](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_800x480.jpg&rf=LaDigue_800x480.jpg "眼镜熊在树上休息, 厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_1024x768.jpg&rf=LaDigue_1024x768.jpg "眼镜熊在树上休息, 厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "眼镜熊在树上休息, 厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg "眼镜熊在树上休息, 厄瓜多尔")
