@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_1024x768.jpg&rf=LaDigue_1024x768.jpg "眼镜熊在树上休息, 厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "眼镜熊在树上休息, 厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg "眼镜熊在树上休息, 厄瓜多尔")
+
+
+---
+### 2026 4月 29：历史镌刻于石上
+#### 塔霍河岸边的贝伦塔, 里斯本, 葡萄牙（© f9photos/Getty Images）
+![历史镌刻于石上](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_800x480.jpg&rf=LaDigue_800x480.jpg "历史镌刻于石上")
+昔日，离开里斯本的船只在驶向浩瀚的大西洋之前，都会经过一座小小的石塔。这座矗立在塔霍河畔的石塔，既是守护者，也是告别的象征。让我们一起来认识贝伦塔——这座见证葡萄牙扬帆起航，迈入大航海时代的堡垒。
+
+贝伦塔于1983年被列入联合国教科文组织世界遗产名录，是里斯本市和葡萄牙在世界上的标志性建筑。
+
+[下载480](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_800x480.jpg&rf=LaDigue_800x480.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
+[下载720](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_1024x768.jpg&rf=LaDigue_1024x768.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
+[下载1080](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_UHD.jpg&rf=LaDigue_UHD.jpg "塔霍河岸边的贝伦塔, 里斯本, 葡萄牙")
