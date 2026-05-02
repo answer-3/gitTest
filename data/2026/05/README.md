@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大")
+
+
+---
+### 2026 5月 3：萨瓦纳的晚霞
+#### 萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚（© Klein & Hubert/Nature Picture Library）
+![萨瓦纳的晚霞](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_800x480.jpg&rf=LaDigue_800x480.jpg "萨瓦纳的晚霞")
+在肯尼亚马赛马拉萨瓦纳草原的高处，一只豹蜷缩在树枝上，在落日的余晖中静静小憩。在5月3日“国际豹类日”之际，我们共同致敬这种世界上适应力最强的大型猫科动物之一。豹的足迹遍布非洲及亚洲部分地区，无论是茂密的森林、险峻的山脉，还是开阔的萨瓦纳草原，它们都能茁壮成长。每只豹身上的斑点都是独一无二的，如同人类的指纹；而它们高超的攀爬技巧，则能将猎物拖至高树顶端，从而避开其他食腐动物的抢夺。
+
+豹已丧失了约75%的历史分布区，并被世界自然保护联盟（IUCN）列为“易危”物种。
+
+[下载480](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_800x480.jpg&rf=LaDigue_800x480.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
