@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg "萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚")
+
+
+---
+### 2026 5月 4：科幻源于现实
+#### 乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部（© Dark_Eni/Getty Images Plus）
+![科幻源于现实](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_800x480.jpg&rf=LaDigue_800x480.jpg "科幻源于现实")
+“愿原力与你同在！”在星球大战日这一天，现实仿佛披上科幻的外衣，让人一时难以分辨虚实。画面将我们带到突尼斯南部塔塔温地区的乌莱德·索尔坦克萨尔，这里层层堆叠的土坯粮仓宛如沙色堡垒，充满异域与未来感。这座建筑群始建于 15 世纪，由当地柏柏尔人修建，用于保护粮食免受高温、盗窃和时间侵蚀。它的设计首先服务于实用功能，而独特的美感则在不经意间自然呈现——仿佛现实中的“科幻场景”。
+
+突尼斯索尔塔纳堡的多层土窖（Ghorfas）助力社区在严酷的沙漠气候中实现集体储粮与防御。
+
+[下载480](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_800x480.jpg&rf=LaDigue_800x480.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
+[下载720](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
+[下载1080](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
+[下载UHD](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
