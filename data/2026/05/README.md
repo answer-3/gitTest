@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_1024x768.jpg&rf=LaDigue_1024x768.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
 [下载1080](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
 [下载UHD](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg "乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部")
+
+
+---
+### 2026 5月 5：藕花风起，首夏清和
+#### 莲花与莲花植株（© real444/Getty Images）
+![藕花风起，首夏清和](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_800x480.jpg&rf=LaDigue_800x480.jpg "藕花风起，首夏清和")
+立夏之日，春意虽未尽，夏木已成阴。这是中国时令中一个充满生命力的转折点：蝼蝈鸣，蚯蚓出，王瓜生。告别了春日的繁花绚烂，北方的天空愈发高远明净，南方的雨水则带来了润物无声的翠绿。此时风物，不在于热烈，而在于那份“清和”——万物至此皆长大，天地间流淌着一种舒展而轻盈的力量。
+
+“活化石”植物： 荷花是地球上最古老的双子叶植物之一，其种子的生命力极其顽强，埋藏在土层中千年的“古莲子”在适宜条件下仍能萌芽开花。
+
+[下载480](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_800x480.jpg&rf=LaDigue_800x480.jpg "莲花与莲花植株")
+[下载720](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_1024x768.jpg&rf=LaDigue_1024x768.jpg "莲花与莲花植株")
+[下载1080](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "莲花与莲花植株")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_UHD.jpg&rf=LaDigue_UHD.jpg "莲花与莲花植株")
