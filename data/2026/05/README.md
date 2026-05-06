@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_1024x768.jpg&rf=LaDigue_1024x768.jpg "平原上空的雷暴，保加利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "平原上空的雷暴，保加利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_UHD.jpg&rf=LaDigue_UHD.jpg "平原上空的雷暴，保加利亚")
+
+
+---
+### 2026 5月 7：广袤铺展的沙漠
+#### 科法国家野生动物保护区，亚利桑那州，美国（© Denis Tangney Jr/Getty Images）
+![广袤铺展的沙漠](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_800x480.jpg&rf=LaDigue_800x480.jpg "广袤铺展的沙漠")
+横跨美国西南部亚利桑那州索诺兰沙漠的科法国家野生动物保护区，是一片由峭壁山峰、开阔天空与顽强生命共同构成的独特荒野。
+
+科法的棕榈峡谷庇护着亚利桑那州唯一的原生棕榈。这些史前残遗物种躲藏在深邃遮阴的岩缝中，在酷热的沙漠里利用阴凉的微气候繁衍至今。
+
+[下载480](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_800x480.jpg&rf=LaDigue_800x480.jpg "科法国家野生动物保护区，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_1024x768.jpg&rf=LaDigue_1024x768.jpg "科法国家野生动物保护区，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科法国家野生动物保护区，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg&rf=LaDigue_UHD.jpg "科法国家野生动物保护区，亚利桑那州，美国")
