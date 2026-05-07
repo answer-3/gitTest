@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_1024x768.jpg&rf=LaDigue_1024x768.jpg "科法国家野生动物保护区，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "科法国家野生动物保护区，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg&rf=LaDigue_UHD.jpg "科法国家野生动物保护区，亚利桑那州，美国")
+
+
+---
+### 2026 5月 8：不仅仅是一声咿呀学语
+#### 撒丁岛母驴和幼崽, 法国（© Klein & Hubert/Nature Picture Library）
+![不仅仅是一声咿呀学语](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_800x480.jpg&rf=LaDigue_800x480.jpg "不仅仅是一声咿呀学语")
+世界驴日旨在庆祝人类最默默无闻却能力出众的伙伴之一——驴。数千年来，驴一直与人类并肩工作，它们以耐力、敏锐的记忆力和在崎岖地形上稳健的步伐而备受推崇。人们常常误以为它们固执，但实际上它们是谨慎的思考者——它们会停下来评估风险，而不是贸然行事。
+
+骡子是公驴和母马杂交产生的后代。
+
+[下载480](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_800x480.jpg&rf=LaDigue_800x480.jpg "撒丁岛母驴和幼崽, 法国")
+[下载720](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1024x768.jpg&rf=LaDigue_1024x768.jpg "撒丁岛母驴和幼崽, 法国")
+[下载1080](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "撒丁岛母驴和幼崽, 法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&rf=LaDigue_UHD.jpg "撒丁岛母驴和幼崽, 法国")
