@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1024x768.jpg&rf=LaDigue_1024x768.jpg "撒丁岛母驴和幼崽, 法国")
 [下载1080](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "撒丁岛母驴和幼崽, 法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&rf=LaDigue_UHD.jpg "撒丁岛母驴和幼崽, 法国")
+
+
+---
+### 2026 5月 9：克尔卡的造物主
+#### 克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚（© Amazing Aerial Agency/Adobe Stock）
+![克尔卡的造物主](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_800x480.jpg&rf=LaDigue_800x480.jpg "克尔卡的造物主")
+水是克罗地亚克尔卡国家公园的缔造者，它沿着克尔卡河塑造了碧绿的水潭和层叠的瀑布。今天的照片重点展示了公园最著名的瀑布群——斯克拉丁斯基布克瀑布，多条溪流从洛佐瓦茨村附近茂密森林中的石灰华梯田倾泻而下。
+
+斯克拉丁斯基布克瀑布是克尔卡河上的第七座、也是最后一座、最长的石灰华堰，同时也是欧洲最长的石灰华堰。
+
+[下载480](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_800x480.jpg&rf=LaDigue_800x480.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
+[下载720](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_1024x768.jpg&rf=LaDigue_1024x768.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg&rf=LaDigue_UHD.jpg "克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚")
