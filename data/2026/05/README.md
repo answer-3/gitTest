@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_1024x768.jpg&rf=LaDigue_1024x768.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg&rf=LaDigue_UHD.jpg "北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大")
+
+
+---
+### 2026 5月 11：水下建筑
+#### 从上方俯瞰大堡礁, 昆士兰州, 澳大利亚（© Francesco Riccardo Iacomino/Getty Images）
+![水下建筑](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_800x480.jpg&rf=LaDigue_800x480.jpg "水下建筑")
+世界最伟大的自然奇观之一，绵延在澳大利亚东北海岸线外的珊瑚海碧绿海水中。大堡礁沿着昆士兰海岸延伸，是世界上最大的珊瑚礁系统。它由近3000个独立的珊瑚礁和数百个岛屿组成，绵延超过1400英里。
+
+纬度和跨陆架多样性，加上水体深度的多样性，构成了全球独一无二的生态群落、栖息地和物种。
+
+[下载480](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_800x480.jpg&rf=LaDigue_800x480.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
+[下载720](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_1024x768.jpg&rf=LaDigue_1024x768.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_UHD.jpg&rf=LaDigue_UHD.jpg "从上方俯瞰大堡礁, 昆士兰州, 澳大利亚")
