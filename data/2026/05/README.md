@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_1024x768.jpg&rf=LaDigue_1024x768.jpg "北极海鹦, 威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "北极海鹦, 威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_UHD.jpg&rf=LaDigue_UHD.jpg "北极海鹦, 威尔士")
+
+
+---
+### 2026 5月 13：银河系，摇滚吧！
+#### 拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国（© Tim Fitzharris/Minden Pictures）
+![银河系，摇滚吧！](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_800x480.jpg&rf=LaDigue_800x480.jpg "银河系，摇滚吧！")
+在今天这张照片中，阿拉巴马山的花岗岩拱门将银河框入加州东部内华达山脉崎岖的地貌之中。这片区域以其圆润的巨石和风化的岩层而闻名，大约在1亿年前由火山活动形成。水和风逐渐将岩石塑造成如今光滑的形状。游客可以探索天然拱门，在岩石间徒步，拍摄独特的景观，骑马或骑山地自行车，并欣赏季节性的野花盛开。
+
+在这片干旱的土地上，翠绿的沙漠橄榄）、黄柳和芦苇竞相绽放。
+
+[下载480](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_800x480.jpg&rf=LaDigue_800x480.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_1024x768.jpg&rf=LaDigue_1024x768.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg&rf=LaDigue_UHD.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
