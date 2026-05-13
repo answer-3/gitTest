@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_1024x768.jpg&rf=LaDigue_1024x768.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg&rf=LaDigue_UHD.jpg "拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国")
+
+
+---
+### 2026 5月 14：一场穿越时空的旅程
+#### 中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利（© bluejayphoto/Getty Images Plus）
+![一场穿越时空的旅程](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_800x480.jpg&rf=LaDigue_800x480.jpg "一场穿越时空的旅程")
+皮蒂利亚诺坐落在意大利托斯卡纳南部的一处凝灰岩山脊上，是一座小巧却个性十足的城镇。它的历史可以追溯到伊特鲁里亚时代，蜿蜒的街道至今仍回荡着昔日的痕迹，从中世纪的防御工事到文艺复兴时期的宫殿，处处可见历史的印记。漫步在狭窄的巷弄中，仿佛能感受到几个世纪的生活印记镌刻在石头上，而小巧的广场则邀请您驻足，品尝咖啡或意式冰淇淋。这座经久不衰的宝藏常被誉为“小耶路撒冷”，因为它拥有历史悠久的犹太区，那里有一座犹太教堂和一座古老的墓地，诉说着曾经繁荣的犹太社区的故事。
+
+皮蒂利亚诺最令人期待的活动之一是“九月神圣节”（SettembreDivino），它每年与丰收节同时举行。
+
+[下载480](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_800x480.jpg&rf=LaDigue_800x480.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
+[下载720](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_1024x768.jpg&rf=LaDigue_1024x768.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
