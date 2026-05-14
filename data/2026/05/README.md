@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_1024x768.jpg&rf=LaDigue_1024x768.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg "中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利")
+
+
+---
+### 2026 5月 15：鲸鱼，你会救我吗？
+#### 一群抹香鲸, 印度洋（© Tony Wu/Nature Picture Library）
+![鲸鱼，你会救我吗？](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_800x480.jpg&rf=LaDigue_800x480.jpg "鲸鱼，你会救我吗？")
+集智慧、力量与惊人的深潜本领于一身——抹香鲸绝不满足于浅层的生存。在这个“濒危物种日”，让我们一同认识这位胸怀大志、潜得更深的海洋巨兽。
+
+“Cachalot”一词常用于指代抹香鲸，源自一个古法语词汇，意为“大牙齿”。
+
+[下载480](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_800x480.jpg&rf=LaDigue_800x480.jpg "一群抹香鲸, 印度洋")
+[下载720](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_1024x768.jpg&rf=LaDigue_1024x768.jpg "一群抹香鲸, 印度洋")
+[下载1080](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一群抹香鲸, 印度洋")
+[下载UHD](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_UHD.jpg&rf=LaDigue_UHD.jpg "一群抹香鲸, 印度洋")
