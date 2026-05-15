@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_1024x768.jpg&rf=LaDigue_1024x768.jpg "一群抹香鲸, 印度洋")
 [下载1080](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一群抹香鲸, 印度洋")
 [下载UHD](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_UHD.jpg&rf=LaDigue_UHD.jpg "一群抹香鲸, 印度洋")
+
+
+---
+### 2026 5月 16：跌到谷底？这里可不是。
+#### 史密斯岩州立公园, 俄勒冈州, 美国（© Alex Ratson/Getty Images）
+![跌到谷底？这里可不是。](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_800x480.jpg&rf=LaDigue_800x480.jpg "跌到谷底？这里可不是。")
+你会如何称呼这样一个地方：在这里，是岩石在“攀登”，而人类却得拼命追赶？欢迎来到位于俄勒冈州的史密斯岩州立公园（Smith Rock State Park）——在这里，峭壁拔地而起，而借口却消散得更快。公园坐落于长达26英里的“弯曲河破火山口”（Crooked River Caldera）之中，这一地貌正是由多次火山喷发塑造而成。这里的凝灰岩峭壁由受压冷却后的火山灰经压缩凝结而成。弯曲河（Crooked River）在此鬼斧神工般地雕刻出了峡谷，而像“尖塔”（The Spire）这样的岩层则巍然耸立，高度直逼700英尺。
+
+公园内外野生动物资源丰富。骡鹿和许多小型哺乳动物在公园里很常见。水獭和海狸则栖息在公园的克鲁克德河沿岸。
+
+[下载480](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_800x480.jpg&rf=LaDigue_800x480.jpg "史密斯岩州立公园, 俄勒冈州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_1024x768.jpg&rf=LaDigue_1024x768.jpg "史密斯岩州立公园, 俄勒冈州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "史密斯岩州立公园, 俄勒冈州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg&rf=LaDigue_UHD.jpg "史密斯岩州立公园, 俄勒冈州, 美国")
