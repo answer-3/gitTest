@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_1024x768.jpg&rf=LaDigue_1024x768.jpg "仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg&rf=LaDigue_UHD.jpg "仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国")
+
+
+---
+### 2026 5月 18：大厅里的希望
+#### 伦敦自然历史博物馆, 英格兰（© Colm Keating/Tandem Stills + Motion）
+![大厅里的希望](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_800x480.jpg&rf=LaDigue_800x480.jpg "大厅里的希望")
+当你步入博物馆，时光仿佛瞬间流转。一枚化石，诉说着数百万年前生命的印迹；一颗宝石，映照着肉眼难见的沧海桑田。正是这种深切的联结感，构成了“国际博物馆日”——这一由国际博物馆协会于1977年创立的节日——所旨在颂扬的核心精神。
+
+国际博物馆日（IMD）是由国际博物馆协会（ICOM）协调举办的国际性节日，于每年5月18日或前后举行。
+
+[下载480](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_800x480.jpg&rf=LaDigue_800x480.jpg "伦敦自然历史博物馆, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_1024x768.jpg&rf=LaDigue_1024x768.jpg "伦敦自然历史博物馆, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "伦敦自然历史博物馆, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg&rf=LaDigue_UHD.jpg "伦敦自然历史博物馆, 英格兰")
