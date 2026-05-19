@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_1024x768.jpg&rf=LaDigue_1024x768.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg&rf=LaDigue_UHD.jpg "福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙")
+
+
+---
+### 2026 5月 20：喧闹从这里开始
+#### 熊蜂在授粉, 伍斯特, 英格兰（© SimonEastwood87/Shutterstock）
+![喧闹从这里开始](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_800x480.jpg&rf=LaDigue_800x480.jpg "喧闹从这里开始")
+一声轻柔的嗡嗡声，伴随着细微的花粉飞扬，足以塑造我们食物的未来。每年5月20日是“世界蜜蜂日”，这一节日旨在礼赞像图中这只大黄蜂一样的授粉昆虫，致敬它们那看似悄无声息却至关重要的辛勤工作。与许多昆虫不同，大黄蜂采用一种独特的“振动授粉”方式——通过振动飞行肌，将花粉从花朵中抖落出来；对于番茄、辣椒和蓝莓等农作物而言，这种授粉方式至关重要。
+
+蜜蜂有五只眼睛——两只大的，以及三只位于头部中央的小眼睛。
+
+[下载480](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_800x480.jpg&rf=LaDigue_800x480.jpg "熊蜂在授粉, 伍斯特, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_1024x768.jpg&rf=LaDigue_1024x768.jpg "熊蜂在授粉, 伍斯特, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊蜂在授粉, 伍斯特, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg&rf=LaDigue_UHD.jpg "熊蜂在授粉, 伍斯特, 英格兰")
