@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_1024x768.jpg&rf=LaDigue_1024x768.jpg "熊蜂在授粉, 伍斯特, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊蜂在授粉, 伍斯特, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg&rf=LaDigue_UHD.jpg "熊蜂在授粉, 伍斯特, 英格兰")
+
+
+---
+### 2026 5月 21：酿造传承
+#### 四川省的茶梯田, 中国（© lzf/Shutterstock）
+![酿造传承](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_800x480.jpg&rf=LaDigue_800x480.jpg "酿造传承")
+“国际茶日”旨在礼赞一种将日常习俗与古老地貌紧密相连的饮品。只需瞥一眼中国四川省那层层叠叠的梯田茶园，便不难领略其深植的文化根基。这片位于中国西南部的云雾缭绕之地，乃是茶文化的早期发源地之一；早在两千多年前，当地居民便已在此饮茶、植茶。在邻近的蒙顶山上，一位名叫吴理真的学者曾在汉朝时期开辟了世界上首批人工管理的茶园，从而为后世一代又一代的茶农奠定了坚实的基础。
+
+该节日于每年的5月21日庆祝，旨在认可茶叶数百年来的历史遗产，及其对全球健康、文化和农村生计所做出的显著贡献。
+
+[下载480](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_800x480.jpg&rf=LaDigue_800x480.jpg "四川省的茶梯田, 中国")
+[下载720](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_1024x768.jpg&rf=LaDigue_1024x768.jpg "四川省的茶梯田, 中国")
+[下载1080](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "四川省的茶梯田, 中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg&rf=LaDigue_UHD.jpg "四川省的茶梯田, 中国")
