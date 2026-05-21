@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_1024x768.jpg&rf=LaDigue_1024x768.jpg "四川省的茶梯田, 中国")
 [下载1080](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "四川省的茶梯田, 中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg&rf=LaDigue_UHD.jpg "四川省的茶梯田, 中国")
+
+
+---
+### 2026 5月 22：海洋生命的律动
+#### 埃希环礁，土阿莫土群岛，法属波利尼西亚（© WaterFrame_dpr/Alamy）
+![海洋生命的律动](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_800x480.jpg&rf=LaDigue_800x480.jpg "海洋生命的律动")
+每年5月22日为“国际生物多样性日”，它向全球发出提醒：地球上的生命远比肉眼所见更加丰富，却也更加脆弱。这一由联合国设立的纪念日，旨在强调保护动植物及其生态系统为何对粮食安全、药物研发、气候稳定以及人类的日常福祉至关重要。
+
+考埃希环礁拥有独特的“三通道”入海口连接泻湖，这种结构形成了强劲的潮汐流，能显著提高湖水含氧量，为珍稀生物提供了绝佳的生存环境。
+
+[下载480](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_800x480.jpg&rf=LaDigue_800x480.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_UHD.jpg&rf=LaDigue_UHD.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
