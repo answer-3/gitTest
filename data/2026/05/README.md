@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_UHD.jpg&rf=LaDigue_UHD.jpg "埃希环礁，土阿莫土群岛，法属波利尼西亚")
+
+
+---
+### 2026 5月 23：为龟类喝彩！
+#### 与蝴蝶在一起的乌龟（© Patrick Gallet/Getty Images）
+![为龟类喝彩！](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_800x480.jpg&rf=LaDigue_800x480.jpg "为龟类喝彩！")
+龟类不仅是引人入胜的生物，更在自然界中扮演着至关重要的角色。海龟有助于维持海草床与珊瑚礁生态系统的健康，而淡水及陆栖龟类则支撑着各自生境的生态平衡。龟壳实际上是其骨架的一部分，由数十块骨头融合而成；此外，部分物种还能够利用地球磁场进行导航，精准地回到它们的出生地。
+
+全球共有七种海龟，其中五种正面临灭绝威胁。
+
+[下载480](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_800x480.jpg&rf=LaDigue_800x480.jpg "与蝴蝶在一起的乌龟")
+[下载720](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_1024x768.jpg&rf=LaDigue_1024x768.jpg "与蝴蝶在一起的乌龟")
+[下载1080](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "与蝴蝶在一起的乌龟")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_UHD.jpg&rf=LaDigue_UHD.jpg "与蝴蝶在一起的乌龟")
