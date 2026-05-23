@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_1024x768.jpg&rf=LaDigue_1024x768.jpg "与蝴蝶在一起的乌龟")
 [下载1080](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "与蝴蝶在一起的乌龟")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_UHD.jpg&rf=LaDigue_UHD.jpg "与蝴蝶在一起的乌龟")
+
+
+---
+### 2026 5月 24：守护欧洲的自然净土
+#### 三峰自然公园，南蒂罗尔，意大利（© Adisorn Fineday Chutikunakorn/Getty Images）
+![守护欧洲的自然净土](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_800x480.jpg&rf=LaDigue_800x480.jpg "守护欧洲的自然净土")
+“欧洲公园日”旨在庆祝欧洲大陆上的自然保护区，并纪念1909年欧洲首批国家公园的诞生。这一节日提醒着世人：现今诸多最具代表性的自然景观，皆得益于长期的生态保育努力。今日的影像向我们展示了这一文化遗产的典范——位于意大利北部的三峰自然公园。
+
+尽管这里以卓越的地质特征闻名，但它也承载着黑暗的历史。第一次世界大战期间，这片崎岖的景观曾是意大利和奥匈帝国军队展开残酷壕沟战的最前线，双方士兵曾在皑皑峰峦间忍受战火与雪崩的双重考验。
+
+[下载480](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_800x480.jpg&rf=LaDigue_800x480.jpg "三峰自然公园，南蒂罗尔，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_1024x768.jpg&rf=LaDigue_1024x768.jpg "三峰自然公园，南蒂罗尔，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三峰自然公园，南蒂罗尔，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_UHD.jpg&rf=LaDigue_UHD.jpg "三峰自然公园，南蒂罗尔，意大利")
