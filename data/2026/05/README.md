@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_1024x768.jpg&rf=LaDigue_1024x768.jpg "三峰自然公园，南蒂罗尔，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "三峰自然公园，南蒂罗尔，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_UHD.jpg&rf=LaDigue_UHD.jpg "三峰自然公园，南蒂罗尔，意大利")
+
+
+---
+### 2026 5月 25：石间的清风
+#### 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度（© byheaven/Getty Images）
+![石间的清风](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_800x480.jpg&rf=LaDigue_800x480.jpg "石间的清风")
+如果建筑能够“呼吸”，那会是怎样一番景象？坐落于斋浦尔市中心的风之宫（Hawa Mahal）便实现了这一点——它吸纳清风、排出热气，将建筑设计转化为一场静谧的科学实验。与其说它是一座宫殿，倒不如说是一次精准的“吐故纳新”。它确实名副其实：一座实至名归的“风之宫殿”。
+
+风之宫是世界上最高的一座没有传统地基的建筑；尽管结构轻薄且呈弧形，它仅依靠科学的物理配重和金字塔形状便在地面上稳立了两个多世纪。
+
+[下载480](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_800x480.jpg&rf=LaDigue_800x480.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1024x768.jpg&rf=LaDigue_1024x768.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&rf=LaDigue_UHD.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
