@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1024x768.jpg&rf=LaDigue_1024x768.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg&rf=LaDigue_UHD.jpg "从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度")
+
+
+---
+### 2026 5月 26：羽扇豆书写的季节
+#### 盛开的羽扇豆，北加利福尼亚州，美国（© Jeffrey Lewis/Tandem Stills + Motion）
+![羽扇豆书写的季节](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_800x480.jpg&rf=LaDigue_800x480.jpg "羽扇豆书写的季节")
+随着春季席卷北加利福尼亚州，大地在蓝色、紫色与白色交织的羽扇豆花海中焕然一新。这些野生物种在当地的地中海气候下生长繁茂，为蜜蜂、蝴蝶及甲虫等授粉媒介提供了至关重要的花蜜来源。羽扇豆在全球拥有200多个物种，其分布极其广泛，涵盖了从沿海地带到高山草甸的多种生境。除了显著的观赏价值外，羽扇豆在生态系统中亦发挥着关键作用：通过地下的固氮作用，它们能够显著提高土壤肥力，即便是在贫瘠的环境中也能支持周边植物的生长。
+
+“羽扇豆（Lupine）”之名源自拉丁语“Lupus”，意为“狼”。过去人们曾错误地认为，这种植物会像狼一样“吞噬”或损耗土壤中的养分。
+
+[下载480](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_800x480.jpg&rf=LaDigue_800x480.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1024x768.jpg&rf=LaDigue_1024x768.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
