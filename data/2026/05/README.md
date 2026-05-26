@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1024x768.jpg&rf=LaDigue_1024x768.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg&rf=LaDigue_UHD.jpg "盛开的羽扇豆，北加利福尼亚州，美国")
+
+
+---
+### 2026 5月 27：它们“獭”独一无二
+#### 海獭，霍默卡奇马克湾，阿拉斯加州，美国（© roclwyr/Getty Images）
+![它们“獭”独一无二](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_800x480.jpg&rf=LaDigue_800x480.jpg "它们“獭”独一无二")
+在世界水獭日这一天，不妨看看这只在美国阿拉斯加卡奇马克湾水域中畅游的小可爱！水獭是极具魅力的动物，在维持生态系统健康方面发挥着关键作用。在水獭专家组（OSG）的支持下——这一致力于保护全部14种水獭的全球专业网络——这一纪念日强调了水獭对自然环境的重要贡献。它们以活泼的行为和出色的智慧著称，也是水域健康的重要指示物种。然而，随着栖息地减少和污染加剧，水獭正面临日益严峻的生存挑战。
+
+世界水獭日在每年5月的最后一个星期三举行，旨在提升全球对水獭保护的关注。
+
+[下载480](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_800x480.jpg&rf=LaDigue_800x480.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1024x768.jpg&rf=LaDigue_1024x768.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg "海獭，霍默卡奇马克湾，阿拉斯加州，美国")
