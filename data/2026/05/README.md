@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1024x768.jpg&rf=LaDigue_1024x768.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
 [下载1080](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg&rf=LaDigue_UHD.jpg "珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔")
+
+
+---
+### 2026 5月 30：读懂黑白之间
+#### 平原斑马幼崽，埃托沙国家公园，纳米比亚（© Sharon Heald/Nature Picture Library）
+![读懂黑白之间](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_800x480.jpg&rf=LaDigue_800x480.jpg "读懂黑白之间")
+平原斑马身上鲜明的黑白条纹并不只是装饰，它们能够干扰捕食者的视觉判断，让猎手难以锁定单独个体。每只斑马的纹路都独一无二，但当它们聚集行动时，交错的条纹会形成复杂的视觉迷阵，增加捕食难度。这种生存策略十分有效。如今，数十万只平原斑马分布于非洲各地，在埃托沙等自然保护区中依然维持着稳定数量。
+
+平原斑马幼崽幼崽刚出生时，身上的条纹通常呈棕白色，而不是成年斑马鲜明的黑白配色。随着成长，它们的条纹会逐渐加深，更适合融入非洲干燥草原的自然环境。
+
+[下载480](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_800x480.jpg&rf=LaDigue_800x480.jpg "平原斑马幼崽，埃托沙国家公园，纳米比亚")
+[下载720](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_1024x768.jpg&rf=LaDigue_1024x768.jpg "平原斑马幼崽，埃托沙国家公园，纳米比亚")
+[下载1080](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "平原斑马幼崽，埃托沙国家公园，纳米比亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.EquusQuagga_ZH-CN9323988132_UHD.jpg&rf=LaDigue_UHD.jpg "平原斑马幼崽，埃托沙国家公园，纳米比亚")
