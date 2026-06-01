@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1024x768.jpg&rf=LaDigue_1024x768.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg&rf=LaDigue_UHD.jpg "巴勒莫暮色下的天际线，西西里岛，意大利")
+
+
+---
+### 2026 6月 2：穿行于蓝色之间
+#### 穿越西台吉乃尔湖的公路，青海省，中国（© Kaicheng Xu/Getty Images）
+![穿行于蓝色之间](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_800x480.jpg&rf=LaDigue_800x480.jpg "穿行于蓝色之间")
+在青藏高原北缘、中国西部的荒漠之中，西台吉乃尔湖以一种超现实的姿态横跨在偏远的柴达木盆地。315国道的一段延伸线直接纵贯其浅水区，营造出一种公路悬浮于两个世界之间的视觉错觉。受卤水中矿物质浓度差异的影响，湖水呈现出鲜明的对比：一侧常显深邃的蓝色，另一侧则呈现柔和的绿色。
+
+这种独特的“双色湖”现象源于公路的阻隔作用。虽然湖水两侧均富含锂、铜、镁等矿物元素，但由于两侧的蒸发速率与水深各异，导致其对光的吸收与折射产生了明显的物理差异。
+
+[下载480](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_800x480.jpg&rf=LaDigue_800x480.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_1024x768.jpg&rf=LaDigue_1024x768.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_UHD.jpg&rf=LaDigue_UHD.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
