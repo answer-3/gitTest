@@ -17,12 +17,26 @@
 ---
 ### 2026 6月 2：穿行于蓝色之间
 #### 穿越西台吉乃尔湖的公路，青海省，中国（© Kaicheng Xu/Getty Images）
-![穿行于蓝色之间](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_800x480.jpg&rf=LaDigue_800x480.jpg "穿行于蓝色之间")
+![穿行于蓝色之间](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_800x480.jpg&rf=LaDigue_800x480.jpg "穿行于蓝色之间")
 在青藏高原北缘、中国西部的荒漠之中，西台吉乃尔湖以一种超现实的姿态横跨在偏远的柴达木盆地。315国道的一段延伸线直接纵贯其浅水区，营造出一种公路悬浮于两个世界之间的视觉错觉。受卤水中矿物质浓度差异的影响，湖水呈现出鲜明的对比：一侧常显深邃的蓝色，另一侧则呈现柔和的绿色。
 
 这种独特的“双色湖”现象源于公路的阻隔作用。虽然湖水两侧均富含锂、铜、镁等矿物元素，但由于两侧的蒸发速率与水深各异，导致其对光的吸收与折射产生了明显的物理差异。
 
-[下载480](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_800x480.jpg&rf=LaDigue_800x480.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
-[下载720](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_1024x768.jpg&rf=LaDigue_1024x768.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
-[下载1080](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
-[下载UHD](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_UHD.jpg&rf=LaDigue_UHD.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载480](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_800x480.jpg&rf=LaDigue_800x480.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1024x768.jpg&rf=LaDigue_1024x768.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_UHD.jpg&rf=LaDigue_UHD.jpg "穿越西台吉乃尔湖的公路，青海省，中国")
+
+
+---
+### 2026 6月 3：路之所止，行之所启
+#### 骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙（© Artur Debat/Getty Images）
+![路之所止，行之所启](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_800x480.jpg&rf=LaDigue_800x480.jpg "路之所止，行之所启")
+虽然日常的通勤之路或许不像今日画面中那般波澜壮阔，但这并不妨碍我们跨上单车，开始蹬踏。在“世界自行车日”到来之际，联合国向全球发出倡议，邀我们重新审视两轮出行的无限可能——无论是在穿梭于现代都市，还是纵贯于偏远荒原。每年的6月3日，这一由联合国发起的国际纪念日旨在认可自行车作为一种务实的出行方式，在促进公众健康、降低碳排放以及提升交通普惠性方面所发挥的关键作用。
+
+巴德纳斯雷亚莱斯因其酷似火星地表而闻名，美国国家航空航天局（NASA）的科学家曾利用这里来研究火星地貌是如何在数千年间经受风蚀演化的。
+
+[下载480](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_800x480.jpg&rf=LaDigue_800x480.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1024x768.jpg&rf=LaDigue_1024x768.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&rf=LaDigue_UHD.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
