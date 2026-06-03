@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1024x768.jpg&rf=LaDigue_1024x768.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&rf=LaDigue_UHD.jpg "骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙")
+
+
+---
+### 2026 6月 4：优雅羽饰
+#### 梳理羽毛的雪鹭，佛罗里达州中部，美国（© Donald M. Jones/Minden Pictures）
+![优雅羽饰](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_800x480.jpg&rf=LaDigue_800x480.jpg "优雅羽饰")
+名如其诗，形亦如画。这就是雪鹭（Snowy egret）——通体洁白的羽衣，衬托着黑色长腿下明黄色的“脚掌”，构成了一幅极具视觉冲击力的画面。曾几何时，人类对这种鹭鸟在繁殖季节长出的装饰性婚羽（形似蕾丝般轻柔飘逸的丝状羽毛）有着极大的市场需求，用于点缀时尚女帽。这一嗜好险些让该物种走向灭绝，幸而后续的自然保护行动成功挽救了它们。
+
+雪鹭常与苍鹭成群觅食，利用大型鹭鸟惊扰出的水底动向，从而锁定并捕食那些原本隐藏的猎物。
+
+[下载480](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_800x480.jpg&rf=LaDigue_800x480.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_1024x768.jpg&rf=LaDigue_1024x768.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_UHD.jpg&rf=LaDigue_UHD.jpg "梳理羽毛的雪鹭，佛罗里达州中部，美国")
