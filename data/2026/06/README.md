@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_1024x768.jpg&rf=LaDigue_1024x768.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_UHD.jpg&rf=LaDigue_UHD.jpg "从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰")
+
+
+---
+### 2026 6月 6：多走走，多思考
+#### 纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国（© The best photo is earned/Getty Images Plus）
+![多走走，多思考](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_800x480.jpg&rf=LaDigue_800x480.jpg "多走走，多思考")
+如果你最近沉迷于电子屏幕，今天正是改变的好时机——我们建议你去徒步旅行。
+
+纳奇兹古道曾是商人将货物顺流运至新奥尔良后返回内陆的重要陆路通道。
+
+[下载480](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_800x480.jpg&rf=LaDigue_800x480.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_1024x768.jpg&rf=LaDigue_1024x768.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_UHD.jpg&rf=LaDigue_UHD.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
