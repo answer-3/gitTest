@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_1024x768.jpg&rf=LaDigue_1024x768.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_UHD.jpg&rf=LaDigue_UHD.jpg "纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国")
+
+
+---
+### 2026 6月 7：最后一堵墙矗立着
+#### 邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰（© Krzysztof Rogalski/Getty Images）
+![最后一堵墙矗立着](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_800x480.jpg&rf=LaDigue_800x480.jpg "最后一堵墙矗立着")
+在邓塞弗里克城堡，历史仿佛就悬挂在原地——确切地说，就悬挂在原地。残垣断壁依附在大西洋上方的玄武岩峭壁上，证明即使是废墟也能屹立不倒。两千年前，这里是爱尔兰五大道路之一——斯莱格·米德卢赫拉（Slige Midluachra）的终点，这条道路连接着通往塔拉山（Hill of Tara）王室的旅人。据说，公元5世纪，圣帕特里克曾到访此地，并为当地居民奥尔坎（Olcán）施洗。传说中，用于为爱尔兰国王加冕的“命运之石”（Lia Fáil）就是从这片海岸被带往苏格兰的。
+
+邓塞弗里克城堡所依托的玄武岩地基在地质上与附近的巨人之路火山熔岩地貌相连。
+
+[下载480](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_800x480.jpg&rf=LaDigue_800x480.jpg "邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1024x768.jpg&rf=LaDigue_1024x768.jpg "邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg&rf=LaDigue_UHD.jpg "邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰")
