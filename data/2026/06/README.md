@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_1024x768.jpg&rf=LaDigue_1024x768.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_UHD.jpg&rf=LaDigue_UHD.jpg "韦尔纳扎, 五渔村, 利古里亚, 意大利")
+
+
+---
+### 2026 6月 10：一抹蓝色
+#### 赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛（© Juan Maria Coy Vergara/Getty Images）
+![一抹蓝色](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_800x480.jpg&rf=LaDigue_800x480.jpg "一抹蓝色")
+从空中俯瞰，湖泊平静的湖面与周围崎岖的地形形成鲜明对比。赫瑙萨波鲁尔火山口湖（也称布拉赫鲁尔湖）位于菲亚拉巴克自然保护区的中心地带，这片位于冰岛高地的偏远地区，其地貌更多地受到火山活动而非人类活动的影响。火山口的形成源于岩浆与地下水的接触，引发了一场爆炸，最终雕琢出如今可见的圆形盆地。
+
+深邃的水位与贫瘠的营养限制了藻类生长。这种清澈度使光线得以被强烈吸收，从而造就了其深蓝色调。
+
+[下载480](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_800x480.jpg&rf=LaDigue_800x480.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_1024x768.jpg&rf=LaDigue_1024x768.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_UHD.jpg&rf=LaDigue_UHD.jpg "赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛")
