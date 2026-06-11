@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_1024x768.jpg&rf=LaDigue_1024x768.jpg "退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙")
 [下载1080](https://cn.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_UHD.jpg&rf=LaDigue_UHD.jpg "退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙")
+
+
+---
+### 2026 6月 12：惊鸿一瞥
+#### 黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙（© Andres M. Dominguez/Nature Picture Library）
+![惊鸿一瞥](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_800x480.jpg&rf=LaDigue_800x480.jpg "惊鸿一瞥")
+一抹绚丽的色彩掠过朦胧的野花丛，那是黄喉蜂虎正掠空而过。在展翅捕食间，其羽翼闪烁着青金石绿、金黄与栗红交织的光泽，并通过敏捷的空中转体在飞行中捕捉昆虫。蜜蜂和马蜂是它们最青睐的猎物。在进食前，这种鸟类通常会先拔除猎物的尾刺——这一行为能有效降低自身受伤的风险。在气候温暖的月份里，黄喉蜂虎广泛繁殖于欧洲南部、地中海地区以及亚洲西部等部分地区。
+
+黄喉蜂虎能挖掘长达3米的筑巢隧道，它们仅凭喙部和双足，就能清理出超过7公斤的泥土。
+
+[下载480](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_800x480.jpg&rf=LaDigue_800x480.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_1024x768.jpg&rf=LaDigue_1024x768.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_UHD.jpg&rf=LaDigue_UHD.jpg "黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙")
