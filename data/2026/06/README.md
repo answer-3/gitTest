@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_1024x768.jpg&rf=LaDigue_1024x768.jpg "落日，恶地国家公园，南达科他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "落日，恶地国家公园，南达科他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_UHD.jpg&rf=LaDigue_UHD.jpg "落日，恶地国家公园，南达科他州，美国")
+
+
+---
+### 2026 6月 14：潜羽探清波
+#### 绿头鸭（© Philippe Paternolli/Getty Images）
+![潜羽探清波](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_800x480.jpg&rf=LaDigue_800x480.jpg "潜羽探清波")
+拂晓时分，绿头鸭掠过平静的水面，宛如画笔划过画布。其波光粼粼的羽衣在晨光下熠熠生辉——雄鸟那标志性的翠绿色头部与雌鸟斑驳的褐色羽毛形成了鲜明对比。从法国卡马格的沼泽湿地到荷兰阿姆斯特丹的城市运河，随处可见它们的身影，它们堪称欧洲水生生态景观中最为常见的标志性物种。
+
+绿头鸭具有极强的适应能力，是全球分布最广的鸭科鸟类。从天然湿地到城市公园及运河等人工环境，它们均能良好繁衍。
+
+[下载480](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_800x480.jpg&rf=LaDigue_800x480.jpg "绿头鸭")
+[下载720](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_1024x768.jpg&rf=LaDigue_1024x768.jpg "绿头鸭")
+[下载1080](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绿头鸭")
+[下载UHD](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_UHD.jpg&rf=LaDigue_UHD.jpg "绿头鸭")
