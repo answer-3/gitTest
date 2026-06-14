@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_1024x768.jpg&rf=LaDigue_1024x768.jpg "绿头鸭")
 [下载1080](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "绿头鸭")
 [下载UHD](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_UHD.jpg&rf=LaDigue_UHD.jpg "绿头鸭")
+
+
+---
+### 2026 6月 15：岁月雕琢，风景始成
+#### 大烟山国家公园，田纳西州，美国（© Mint Images/Getty Images）
+![岁月雕琢，风景始成](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_800x480.jpg&rf=LaDigue_800x480.jpg "岁月雕琢，风景始成")
+这片山脉历经了漫长地质岁月的雕琢，而1934年6月15日的法令则让它们获得了长久的保护——就在这一天，横跨田纳西州与北卡罗来纳州的大烟山国家公园正式建立。该公园占地面积超过522,000英亩（约21.1万公顷），其名称源于常年环绕在其嵴线之上的天然蓝色烟雾。作为阿巴拉契亚山脉的一部分，这些山峰的形成史可以追溯到3亿多年前。
+
+每年六月，大烟山国家公园都会迎来同步发光萤火虫。它们齐声闪烁，上演一场罕见而壮观的天然灯光秀。
+
+[下载480](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_800x480.jpg&rf=LaDigue_800x480.jpg "大烟山国家公园，田纳西州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_1024x768.jpg&rf=LaDigue_1024x768.jpg "大烟山国家公园，田纳西州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大烟山国家公园，田纳西州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg&rf=LaDigue_UHD.jpg "大烟山国家公园，田纳西州，美国")
