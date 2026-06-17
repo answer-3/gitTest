@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_1024x768.jpg&rf=LaDigue_1024x768.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
 [下载1080](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
 [下载UHD](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_UHD.jpg&rf=LaDigue_UHD.jpg "特雷莫拉公路在圣哥达山口，艾罗洛，瑞士")
+
+
+---
+### 2026 6月 18：坚如磐石的奇观
+#### 萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁（© Creative-Family/Getty Images Plus）
+![坚如磐石的奇观](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_800x480.jpg&rf=LaDigue_800x480.jpg "坚如磐石的奇观")
+萨克塞华曼（Sacsayhuamán）坐落于秘鲁库斯科的高处，通过石材展现了印加帝国的宏大雄心。这座宏伟的建筑群始建于15世纪，曾是印加帝国神圣都城的一部分。从高空俯瞰，其布局清晰呈现：梯田、开阔的广场以及塔楼遗迹，共同构成了一座经过精密规划的卫城。其中最为壮观的墙体由巨型石块砌成，至今依然屹立不倒。部分石材高度超过 27 英尺（约 8.2 米），且在未使用灰浆的情况下实现了极度精确的无缝拼接，这使得该结构历经数百年的地震仍完好无损。
+
+萨克塞华曼遗址（位于库斯科，秘鲁）中最重的单体巨石重量超过 120 吨，是在完全没有使用轮式工具的情况下，仅凭人力从数英里外的采石场搬运而来的。
+
+[下载480](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_800x480.jpg&rf=LaDigue_800x480.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
+[下载720](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
+[下载1080](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
+[下载UHD](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg&rf=LaDigue_UHD.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
