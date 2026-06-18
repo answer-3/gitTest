@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1024x768.jpg&rf=LaDigue_1024x768.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
 [下载1080](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
 [下载UHD](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg&rf=LaDigue_UHD.jpg "萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁")
+
+
+---
+### 2026 6月 19：龙吟古韵
+#### 湖中的龙舟，中国（©  Zhonghui Bao/Getty Images）
+![龙吟古韵](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_800x480.jpg&rf=LaDigue_800x480.jpg "龙吟古韵")
+在华夏大地的万顷碧波上，龙舟竞渡已绵延了两千多年。这项如今享誉全球的体育活动，不仅是一场速度与力量的博弈，更是一枚深深烙印在中华儿女血脉中的文化符号。龙舟的起源众说纷纭，融汇了神话、历史与军事的多重色彩，共同构成了端午文化的底蕴。
+
+流体力学原理在龙舟竞渡中表现显著，其细长的船体设计能有效减少水的阻力，使训练有素的团队能够实现惊人的航行速度。
+
+[下载480](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_800x480.jpg&rf=LaDigue_800x480.jpg "湖中的龙舟，中国")
+[下载720](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_1024x768.jpg&rf=LaDigue_1024x768.jpg "湖中的龙舟，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "湖中的龙舟，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_UHD.jpg&rf=LaDigue_UHD.jpg "湖中的龙舟，中国")
