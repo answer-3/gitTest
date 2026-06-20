@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_1024x768.jpg&rf=LaDigue_1024x768.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
 [下载1080](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg&rf=LaDigue_UHD.jpg "漂浮在南极半岛西部海域的拱形冰山, 南大洋")
+
+
+---
+### 2026 6月 21：鸟类好爸爸
+#### 企鹅爸爸正在检查蛋的情况（© McDonald Wildlife Photography Inc./Getty Images）
+![鸟类好爸爸](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_800x480.jpg&rf=LaDigue_800x480.jpg "鸟类好爸爸")
+六月的第三个星期日是父亲节——一个感谢那些默默守护、悉心照料孩子成长的长辈们的日子。在世界各地，父亲的角色可以呈现出令人意想不到的非凡形式。
+
+对海马而言，雄性会将受精卵放入自己的育儿袋中，并在孵化前为它们提供氧气、养分和全方位的保护。
+
+[下载480](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_800x480.jpg&rf=LaDigue_800x480.jpg "企鹅爸爸正在检查蛋的情况")
+[下载720](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1024x768.jpg&rf=LaDigue_1024x768.jpg "企鹅爸爸正在检查蛋的情况")
+[下载1080](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "企鹅爸爸正在检查蛋的情况")
+[下载UHD](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg "企鹅爸爸正在检查蛋的情况")
