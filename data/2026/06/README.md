@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1024x768.jpg&rf=LaDigue_1024x768.jpg "企鹅爸爸正在检查蛋的情况")
 [下载1080](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "企鹅爸爸正在检查蛋的情况")
 [下载UHD](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg "企鹅爸爸正在检查蛋的情况")
+
+
+---
+### 2026 6月 22：一个郁郁葱葱的王国
+#### 奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国（© Chris Moore/Tandem Stills + Motion）
+![一个郁郁葱葱的王国](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_800x480.jpg&rf=LaDigue_800x480.jpg "一个郁郁葱葱的王国")
+6月22日是世界雨林日，这是一个全球性的日子，也是全年呼吁人们保护世界剩余雨林的行动。这些生态系统并非地图上的点点星罗棋布。它们遍布热带地区及其他地区，却仅覆盖地球表面约6%的面积。想想南美洲的亚马逊雨林、非洲的刚果盆地以及东南亚的森林吧。
+
+尽管热带雨林仅占地球表面积的 6%，但却是世界上一半以上物种的家园。
+
+[下载480](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_800x480.jpg&rf=LaDigue_800x480.jpg "奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_1024x768.jpg&rf=LaDigue_1024x768.jpg "奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_UHD.jpg&rf=LaDigue_UHD.jpg "奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国")
