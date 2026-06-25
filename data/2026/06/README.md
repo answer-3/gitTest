@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_1024x768.jpg&rf=LaDigue_1024x768.jpg "布鲁塞尔大广场上的建筑群, 比利时")
 [下载1080](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布鲁塞尔大广场上的建筑群, 比利时")
 [下载UHD](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_UHD.jpg&rf=LaDigue_UHD.jpg "布鲁塞尔大广场上的建筑群, 比利时")
+
+
+---
+### 2026 6月 26：时事
+#### 泰晤士河, 伦敦, 英格兰（© Daniel Lange/Getty Images）
+![时事](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_800x480.jpg&rf=LaDigue_800x480.jpg "时事")
+议会大厦、钟楼和巨型摩天轮有什么共同之处？它们都矗立在泰晤士河畔，仿佛伦敦为了营造戏剧性效果而精心布局了这些标志性建筑。
+
+泰晤士河防洪闸于1984年建成，是世界上规模最大的可移动防洪设施之一，用于保护伦敦免受北海风暴潮引发的洪水威胁。
+
+[下载480](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_800x480.jpg&rf=LaDigue_800x480.jpg "泰晤士河, 伦敦, 英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_1024x768.jpg&rf=LaDigue_1024x768.jpg "泰晤士河, 伦敦, 英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰晤士河, 伦敦, 英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg&rf=LaDigue_UHD.jpg "泰晤士河, 伦敦, 英格兰")
