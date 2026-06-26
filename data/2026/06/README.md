@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_1024x768.jpg&rf=LaDigue_1024x768.jpg "泰晤士河, 伦敦, 英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰晤士河, 伦敦, 英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg&rf=LaDigue_UHD.jpg "泰晤士河, 伦敦, 英格兰")
+
+
+---
+### 2026 6月 27：逐渐失去立足之地的树木
+#### 博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国（© Frances/Adobe Stock）
+![逐渐失去立足之地的树木](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_800x480.jpg&rf=LaDigue_800x480.jpg "逐渐失去立足之地的树木")
+在美国南卡罗来纳州亨廷岛州立公园内的博尼亚德海滩，最先映入眼帘的是那些树木。紧接着，一个疑问便会浮现：为何一根根被海水漂白的树干和裸露的树根散落在沙滩上，仿佛一幕正在坍塌的景象被按下了暂停键？自20世纪80年代以来，亨廷岛一直面临严重的海滩侵蚀问题，其侵蚀速率位居美国东海岸前列。在部分区域，海岸线每年后退幅度最高可达约30英尺（约9米）。
+
+博尼亚德海滩上许多仍然矗立的枯树遗骸因长期受到盐分环境影响而减缓腐朽过程，从而形成独特的海岸自然雕塑景观。
+
+[下载480](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_800x480.jpg&rf=LaDigue_800x480.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1024x768.jpg&rf=LaDigue_1024x768.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg&rf=LaDigue_UHD.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
