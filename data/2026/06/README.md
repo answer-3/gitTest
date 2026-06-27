@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1024x768.jpg&rf=LaDigue_1024x768.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg&rf=LaDigue_UHD.jpg "博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国")
+
+
+---
+### 2026 6月 28：看起来很精神
+#### 温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国（© Eric Mischke/Getty Images）
+![看起来很精神](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_800x480.jpg&rf=LaDigue_800x480.jpg "看起来很精神")
+在索诺拉沙漠，作为生存大师的巨人柱仙人掌赋予了“坚守”（stick around）一词新的含义。这种巨型植物伸展着躯干与枝臂，向四面八方昂然挺立，已然成为美国西南部的标志性象征。
+
+巨柱仙人掌洁白的花朵是亚利桑那州的州花。它们在晚春短暂盛开，能够吸引大量蜜蜂采蜜，并孕育出广受欢迎的沙漠蜂蜜。
+
+[下载480](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_800x480.jpg&rf=LaDigue_800x480.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
+[下载720](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1024x768.jpg&rf=LaDigue_1024x768.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg&rf=LaDigue_UHD.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
