@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1024x768.jpg&rf=LaDigue_1024x768.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg&rf=LaDigue_UHD.jpg "温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国")
+
+
+---
+### 2026 6月 29：生于烈火，拥于碧水
+#### 波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚（© Frederick Millett/Shutterstock）
+![生于烈火，拥于碧水](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_800x480.jpg&rf=LaDigue_800x480.jpg "生于烈火，拥于碧水")
+“国际热带日”于每年6月29日纪念，旨在聚焦北回归线与南回归线之间那片广阔的区域——在这里，温暖的气候与充沛的降水塑造着人们的日常生活。该区域虽仅占地球表面积的约40%，却承载了全球约80%的生物多样性，对于地球生态健康与人类文化而言至关重要。
+
+波拉波拉岛的泻湖栖息着鹰魟，它们常成群活动，在太平洋最清澈的海域之一的沙质海底优雅滑行。
+
+[下载480](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_800x480.jpg&rf=LaDigue_800x480.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_1024x768.jpg&rf=LaDigue_1024x768.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&rf=LaDigue_UHD.jpg "波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚")
