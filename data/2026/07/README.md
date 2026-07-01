@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1024x768.jpg&rf=LaDigue_1024x768.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg&rf=LaDigue_UHD.jpg "地牢省立公园, 纽芬兰和拉布拉多省, 加拿大")
+
+
+---
+### 2026 7月 2：走进埃斯纳神圣的世界
+#### 埃斯纳神庙穹顶天花板, 埃及（© Nick Brundle Photography/Getty Images）
+![走进埃斯纳神圣的世界](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_800x480.jpg&rf=LaDigue_800x480.jpg "走进埃斯纳神圣的世界")
+在埃及卢克索以南的埃斯纳神庙（Temple of Esna），游客将步入一个充满生机的世界，这里供奉着公羊头神——赫努姆（Khnum）；传说他曾用尼罗河的黏土塑造了人类。这座神庙主要建于托勒密王朝和罗马统治时期，其现存的大厅由24根高耸的石柱支撑，每根柱子上都雕刻着精美的浮雕与颂扬诸神的仪式铭文。
+
+数个世纪以来，埃斯纳神庙的大部分区域曾被淤泥和周边建筑掩埋，这在一定程度上减少了风化作用，使许多雕刻得以较好保存。
+
+[下载480](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_800x480.jpg&rf=LaDigue_800x480.jpg "埃斯纳神庙穹顶天花板, 埃及")
+[下载720](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃斯纳神庙穹顶天花板, 埃及")
+[下载1080](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃斯纳神庙穹顶天花板, 埃及")
+[下载UHD](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_UHD.jpg&rf=LaDigue_UHD.jpg "埃斯纳神庙穹顶天花板, 埃及")
