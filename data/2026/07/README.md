@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1024x768.jpg&rf=LaDigue_1024x768.jpg "埃斯纳神庙穹顶天花板, 埃及")
 [下载1080](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "埃斯纳神庙穹顶天花板, 埃及")
 [下载UHD](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_UHD.jpg&rf=LaDigue_UHD.jpg "埃斯纳神庙穹顶天花板, 埃及")
+
+
+---
+### 2026 7月 3：流光之诗
+#### 小溪上方的萤火虫，冈山县，日本（© tdub303/Getty Images）
+![流光之诗](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_800x480.jpg&rf=LaDigue_800x480.jpg "流光之诗")
+在冈山县（Okayama Prefecture），当湿润的空气笼罩在溪流之上，被称为“hotaru”的日本萤火虫便开始发出信号。在温暖无风的夜晚，如果条件理想，它们通常会在日落约两小时后开始发光，发散出一种水边独有的静谧感。
+
+环境健康的生物指标在冈山县，日本表现得尤为典型，特别是源氏萤（Luciola cruciata）对水质极其敏感，它们需要含氧量高且清澈的流动水源以及极低的光污染环境才能完成其复杂的生命周期
+
+[下载480](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_800x480.jpg&rf=LaDigue_800x480.jpg "小溪上方的萤火虫，冈山县，日本")
+[下载720](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_1024x768.jpg&rf=LaDigue_1024x768.jpg "小溪上方的萤火虫，冈山县，日本")
+[下载1080](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "小溪上方的萤火虫，冈山县，日本")
+[下载UHD](https://cn.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg&rf=LaDigue_UHD.jpg "小溪上方的萤火虫，冈山县，日本")
