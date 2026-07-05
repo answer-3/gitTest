@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓦朗索勒高原的薰衣草行，普罗旺斯，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦朗索勒高原的薰衣草行，普罗旺斯，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg&rf=LaDigue_UHD.jpg "瓦朗索勒高原的薰衣草行，普罗旺斯，法国")
+
+
+---
+### 2026 7月 6：百代镌刻之城
+#### 锡拉库萨的日落，西西里岛，意大利（© Balate Dorin/Getty Images）
+![百代镌刻之城](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_800x480.jpg&rf=LaDigue_800x480.jpg "百代镌刻之城")
+意大利锡拉库萨（Syracuse）位于西西里岛，由来自科林斯的希腊移民于公元前 734 年左右建立。它曾发展成为古地中海最伟大的强权之一，现已被列入联合国教科文组织世界遗产名录——“锡拉库萨和潘塔立克石墓群”。这座城市永远与阿基米德（Archimedes）联系在一起，他的天才至今仍在塑造着城市的身份；同时也与柏拉图（Plato）紧密相连，他曾满怀着哲学可能重塑政治生活的希望来到此处。这种层叠的历史在马尼亚切城堡（Castello Maniace）中依然清晰可感，这座 13 世纪为神圣罗马帝国皇帝腓特烈二世建造的海滨要塞，至今仍令世人赞叹。
+
+原生纸莎草的生态孤岛在锡拉库萨，西西里岛，意大利表现出极高的植物学价值，林特奥斯河（Arethusa Spring）不仅是当地重要的淡水水源，更是全欧洲唯一一处野生纸莎草自然生长的原生生境。
+
+[下载480](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_800x480.jpg&rf=LaDigue_800x480.jpg "锡拉库萨的日落，西西里岛，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1024x768.jpg&rf=LaDigue_1024x768.jpg "锡拉库萨的日落，西西里岛，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡拉库萨的日落，西西里岛，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg "锡拉库萨的日落，西西里岛，意大利")
