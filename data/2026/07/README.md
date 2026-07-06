@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1024x768.jpg&rf=LaDigue_1024x768.jpg "锡拉库萨的日落，西西里岛，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "锡拉库萨的日落，西西里岛，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg "锡拉库萨的日落，西西里岛，意大利")
+
+
+---
+### 2026 7月 7：林冠华彩
+#### 板嘴山巨嘴鸟与兰花，厄瓜多尔（© Murray Cooper/Minden Pictures）
+![林冠华彩](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_800x480.jpg&rf=LaDigue_800x480.jpg "林冠华彩")
+拥有如多功能工具般的喙部和色彩斑斓的羽毛——板嘴山巨嘴鸟（Plate-billed mountain toucan）是安第斯山脉最具辨识度的鸟类之一。它栖息在厄瓜多尔和哥伦比亚西南部潮湿的山地森林中，已完全适应了林冠层高处的生存环境。
+
+板嘴山巨嘴鸟色彩艳丽的喙部带有一个淡黄色的“角质板”，这一罕见特征正是其命名的由来。
+
+[下载480](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_800x480.jpg&rf=LaDigue_800x480.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
+[下载720](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1024x768.jpg&rf=LaDigue_1024x768.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
+[下载1080](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
+[下载UHD](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
