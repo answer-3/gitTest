@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1024x768.jpg&rf=LaDigue_1024x768.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg "板嘴山巨嘴鸟与兰花，厄瓜多尔")
+
+
+---
+### 2026 7月 8：远古火山的回响
+#### 阿蒂特兰湖的日出，危地马拉（© shayes17/Getty Images）
+![远古火山的回响](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_800x480.jpg&rf=LaDigue_800x480.jpg "远古火山的回响")
+阿蒂特兰湖（Lake Atitlán）坐落于危地马拉西部高地，占据了一处巨大的破火山口。其深蓝色的湖水被陡峭的火山口壁以及阿蒂特兰（Atitlán）、托利曼（Tolimán）和圣佩德罗（San Pedro）这三座锥形火山所环绕。木质码头向静谧的湖面延伸，勾勒出平静水面与火山活动造就的崎岖地形之间的强烈对比。
+
+独特的内流盆地机制在阿蒂特兰湖，危地马拉表现显著，该湖泊没有通往海洋的天然地表出口，其水位主要依靠自然蒸发和地下的火山裂缝网络进行调节。
+
+[下载480](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_800x480.jpg&rf=LaDigue_800x480.jpg "阿蒂特兰湖的日出，危地马拉")
+[下载720](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿蒂特兰湖的日出，危地马拉")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿蒂特兰湖的日出，危地马拉")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&rf=LaDigue_UHD.jpg "阿蒂特兰湖的日出，危地马拉")
