@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
 [下载1080](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg&rf=LaDigue_UHD.jpg "圣古斯坦港, 欧赖, 布列塔尼, 法国")
+
+
+---
+### 2026 7月 12：缅因州的狂野一面
+#### 卡塔丁森林和水域国家纪念地，缅因州，美国（© Cavan Images/Offset/Shutterstock）
+![缅因州的狂野一面](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_800x480.jpg&rf=LaDigue_800x480.jpg "缅因州的狂野一面")
+如果你想寻找缅因州最原始的自然风光，这里就是了。卡塔丁森林和水域国家纪念碑横跨约87,500英亩的北部原始森林——静谧的池塘倒映着天空，茂密的森林仿佛吞噬了所有声音。不要指望这里人潮涌动或生活便利。在这里，泥泞的道路颠簸不已，手机信号也很快就会消失。但这正是它的魅力所在。漫步在静谧的池塘边，或沿着佩诺布斯科特河东支流漂流，你会立刻感受到这片荒野的气息，仿佛置身其中，触手可及。
+
+保护这片荒野的全部87,500英亩土地，是由小蜜蜂（Burt's Bees）化妆品公司的联合创始人罗克珊·昆比（Roxanne Quimby）私人出资购买，随后无偿捐赠给美国公众的。
+
+[下载480](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_800x480.jpg&rf=LaDigue_800x480.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_UHD.jpg&rf=LaDigue_UHD.jpg "卡塔丁森林和水域国家纪念地，缅因州，美国")
