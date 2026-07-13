@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_1024x768.jpg&rf=LaDigue_1024x768.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg&rf=LaDigue_UHD.jpg "羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国")
+
+
+---
+### 2026 7月 14：奇妙的真相
+#### 柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马（© Shane Gross/Nature Picture Library）
+![奇妙的真相](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_800x480.jpg&rf=LaDigue_800x480.jpg "奇妙的真相")
+7月14日是世界鲨鱼日，它呼吁我们用海洋的真实面貌取代电影中的恐慌。鲨鱼已经在海洋中遨游了超过4.2亿年，作为顶级掠食者，它们有助于维持海洋生态系统的平衡。
+
+格陵兰鲨的寿命可达400年，是脊椎动物中寿命最长的物种之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_800x480.jpg&rf=LaDigue_800x480.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
+[下载720](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_1024x768.jpg&rf=LaDigue_1024x768.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
+[下载1080](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
+[下载UHD](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_UHD.jpg&rf=LaDigue_UHD.jpg "柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马")
