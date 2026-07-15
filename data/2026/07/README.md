@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_1024x768.jpg&rf=LaDigue_1024x768.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_UHD.jpg&rf=LaDigue_UHD.jpg "玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国")
+
+
+---
+### 2026 7月 16：滨水变色龙
+#### 海军码头，芝加哥，伊利诺伊州，美国（© Christopher.F Photography/Getty Images）
+![滨水变色龙](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_800x480.jpg&rf=LaDigue_800x480.jpg "滨水变色龙")
+有些地方的建造目的单一，而有些地方则不断推陈出新。位于伊利诺伊州芝加哥的海军码头就属于后者。这座码头向湖中延伸超过3000英尺，是爱德华·H·贝内特和丹尼尔·伯纳姆于1909年制定的芝加哥规划的一部分。码头于1916年开放，最初是为了服务于密歇根湖上的航运、休闲娱乐和客运而建。为了纪念第一次世界大战的海军老兵，码头被更名为海军码头。
+
+海军码头最初被命名为“市立码头”，但在 1927 年被正式更名为“海军码头”，以纪念在第一次世界大战期间服役的海军官兵。
+
+[下载480](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_800x480.jpg&rf=LaDigue_800x480.jpg "海军码头，芝加哥，伊利诺伊州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_1024x768.jpg&rf=LaDigue_1024x768.jpg "海军码头，芝加哥，伊利诺伊州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海军码头，芝加哥，伊利诺伊州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg&rf=LaDigue_UHD.jpg "海军码头，芝加哥，伊利诺伊州，美国")
