@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_1024x768.jpg&rf=LaDigue_1024x768.jpg "海军码头，芝加哥，伊利诺伊州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海军码头，芝加哥，伊利诺伊州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg&rf=LaDigue_UHD.jpg "海军码头，芝加哥，伊利诺伊州，美国")
+
+
+---
+### 2026 7月 17：希腊式的逃离
+#### 瓦伊海滩上的日光浴躺椅，克里特岛，希腊（© borchee/Getty Images）
+![希腊式的逃离](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_800x480.jpg&rf=LaDigue_800x480.jpg "希腊式的逃离")
+在克里特岛的东北角，坐落着一个远离游客喧嚣的静谧之地瓦伊。这片区域的核心景观是其海滩：金黄色的沙滩沿着平静的爱琴海浅水缓缓展开，设有躺椅、遮阳伞与淋浴设施，为游泳、放松或安静休憩提供理想场所。瓦伊最引人注目的特色在于其沙滩背后有着欧洲最大的天然棕榈林。该棕榈林由5000多棵克里特枣椰树构成，这是一种仅分布于克里特岛及土耳其部分地区的特有树种。
+
+克里特岛是欧洲最早的高级文明：米诺斯文明的发源地，其兴盛时期约从公元前2700年延续至公元前1420年。
+
+[下载480](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_800x480.jpg&rf=LaDigue_800x480.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
+[下载720](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
+[下载1080](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
+[下载UHD](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg&rf=LaDigue_UHD.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
