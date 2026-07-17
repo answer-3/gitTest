@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
 [下载1080](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
 [下载UHD](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg&rf=LaDigue_UHD.jpg "瓦伊海滩上的日光浴躺椅，克里特岛，希腊")
+
+
+---
+### 2026 7月 18：环影圆成
+#### 恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国（© Mike Mareen/Getty Images）
+![环影圆成](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_800x480.jpg&rf=LaDigue_800x480.jpg "环影圆成")
+倒映在平静的水面上，拉科茨桥——通称为“恶魔桥”——在德国萨克森州构成了一个近乎完美的石环。这座窄长的玄武岩结构始建于1860年，经过精密的工程设计，使其拱形结构与水面倒影在湖面静止时能精准对齐，形成一个无缝的圆环。该建筑由当地产的火山石建成，与其说它具有实用功能，不如说它体现了精准的几何设计，其惊艳的造型纯粹是为了追求视觉上的美学冲击。作为热门的摄影题材，它还曾出现在包括《黑客帝国：矩阵重启》（2021年）在内的电影中。如今，由于桥体结构脆弱，为了对其进行保护，严禁行人通行，游客仅可从岸边观赏。
+
+这种“恶魔桥”的称谓源于古老的民间传说，意指只有撒旦才能建造出如此违背重力的拱形结构，在克罗姆劳，萨克森州，德国。
+
+[下载480](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_800x480.jpg&rf=LaDigue_800x480.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_1024x768.jpg&rf=LaDigue_1024x768.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_UHD.jpg&rf=LaDigue_UHD.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
