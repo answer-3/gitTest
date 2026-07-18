@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_1024x768.jpg&rf=LaDigue_1024x768.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_UHD.jpg&rf=LaDigue_UHD.jpg "恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国")
+
+
+---
+### 2026 7月 19：敛羽栖时
+#### 不同亚种的家燕聚在一起休息（© Oscar Dominguez/Tandem Stills + Motion）
+![敛羽栖时](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_800x480.jpg&rf=LaDigue_800x480.jpg "敛羽栖时")
+一群家燕栖息在纤细的芦苇上，在片刻的宁静中聚集，与其往常疾速的身影形成了鲜明对比。这些鸟类以迅捷且极具灵动性的飞行能力及标志性的深叉状尾羽著称，其生理构造天生便高度适应不间断的飞行生活。它们能在半空中精准捕食昆虫，并在各大洲之间长途跋涉。羽色与斑纹的细微差异暗示此处可能聚集了多个亚种，这有力地证明了家燕广泛的全球分布范围。
+
+家燕每年在繁殖地与越冬地之间往返迁徙，其行程可达数千英里。
+
+[下载480](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_800x480.jpg&rf=LaDigue_800x480.jpg "不同亚种的家燕聚在一起休息")
+[下载720](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_1024x768.jpg&rf=LaDigue_1024x768.jpg "不同亚种的家燕聚在一起休息")
+[下载1080](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "不同亚种的家燕聚在一起休息")
+[下载UHD](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_UHD.jpg&rf=LaDigue_UHD.jpg "不同亚种的家燕聚在一起休息")
