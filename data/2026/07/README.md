@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg&rf=LaDigue_UHD.jpg "圣卡塔琳娜拱门，安提瓜，危地马拉")
+
+
+---
+### 2026 7月 22：细微之举，影响深远
+#### 珊瑚礁与海滩在拉贾安帕特，印度尼西亚（© SergeUWPhoto/Shutterstock）
+![细微之举，影响深远](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_800x480.jpg&rf=LaDigue_800x480.jpg "细微之举，影响深远")
+想象一座由动物建造的城市，在阳光下熠熠生辉，并在海浪之下涌动着生命。这就是珊瑚礁。在珊瑚礁意识周（Coral Reef Awareness Week）期间，我们赞美这些非凡的生态系统，以及依赖其生存的无数物种
+
+珊瑚礁作为“21世纪的药库”在拉贾安帕特，印度尼西亚及全球海洋中展现出巨大的生物医学价值，其产生的独特化合物正被用于开发治疗癌症及心脏病的新型药物。
+
+[下载480](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_800x480.jpg&rf=LaDigue_800x480.jpg "珊瑚礁与海滩在拉贾安帕特，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_1024x768.jpg&rf=LaDigue_1024x768.jpg "珊瑚礁与海滩在拉贾安帕特，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "珊瑚礁与海滩在拉贾安帕特，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_UHD.jpg&rf=LaDigue_UHD.jpg "珊瑚礁与海滩在拉贾安帕特，印度尼西亚")
