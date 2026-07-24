@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_1024x768.jpg&rf=LaDigue_1024x768.jpg "美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔")
 [下载1080](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔")
 [下载UHD](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_UHD.jpg&rf=LaDigue_UHD.jpg "美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔")
+
+
+---
+### 2026 7月 25：加境幽廊
+#### 大教堂海滩，加利西亚，西班牙（© Tui De Roy/Amazing Aerial Agency/Abobe Stock）
+![加境幽廊](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_800x480.jpg&rf=LaDigue_800x480.jpg "加境幽廊")
+在西班牙遥远的西北部，加利西亚与大西洋交汇。漫长的海岸线在海浪的强力冲刷下，形成了由悬崖、内湾和海蚀平台交织而成的地貌。雨水充沛的山丘与密林向海绵延，这种景观带有鲜明的大西洋气候基调，使其在感官上更接近于爱尔兰，而非人们惯常印象中的西班牙南部。
+
+除了因酷似教堂的拱门而闻名外，该地标的官方定名为“圣水海滩”，在大教堂海滩，加利西亚，西班牙。
+
+[下载480](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_800x480.jpg&rf=LaDigue_800x480.jpg "大教堂海滩，加利西亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1024x768.jpg&rf=LaDigue_1024x768.jpg "大教堂海滩，加利西亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大教堂海滩，加利西亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_UHD.jpg&rf=LaDigue_UHD.jpg "大教堂海滩，加利西亚，西班牙")
