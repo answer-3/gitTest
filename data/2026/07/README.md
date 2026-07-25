@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1024x768.jpg&rf=LaDigue_1024x768.jpg "大教堂海滩，加利西亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大教堂海滩，加利西亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_UHD.jpg&rf=LaDigue_UHD.jpg "大教堂海滩，加利西亚，西班牙")
+
+
+---
+### 2026 7月 26：海陆际会，生机肇始
+#### 红树上的日出在小猪群岛，洪都拉斯（© Mac Stone/Tandem Stills + Motion）
+![海陆际会，生机肇始](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_800x480.jpg&rf=LaDigue_800x480.jpg "海陆际会，生机肇始")
+在洪都拉斯小猪群岛的日出时分——那是掩映在红树林湿地中低矮的沿海小岛——一株红树将其交错的根系挺立于如镜的水面之上。这幅动人的画面精准捕捉了7月26日所庆祝的主题：保护红树林生态系统国际日，该节日的设立旨在呼吁全球关注这些至关重要的海岸森林。
+
+红树具有特殊的“胎生”特性，其种子在脱离母树掉入潮汐前就已在枝头萌发，在小猪群岛，洪都拉斯。
+
+[下载480](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_800x480.jpg&rf=LaDigue_800x480.jpg "红树上的日出在小猪群岛，洪都拉斯")
+[下载720](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1024x768.jpg&rf=LaDigue_1024x768.jpg "红树上的日出在小猪群岛，洪都拉斯")
+[下载1080](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红树上的日出在小猪群岛，洪都拉斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg "红树上的日出在小猪群岛，洪都拉斯")
