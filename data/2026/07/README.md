@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1024x768.jpg&rf=LaDigue_1024x768.jpg "红树上的日出在小猪群岛，洪都拉斯")
 [下载1080](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红树上的日出在小猪群岛，洪都拉斯")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg "红树上的日出在小猪群岛，洪都拉斯")
+
+
+---
+### 2026 7月 27：仰望芝城，流光溢彩
+#### 蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国（© Felix Lipov/Shutterstock）
+![仰望芝城，流光溢彩](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_800x480.jpg&rf=LaDigue_800x480.jpg "仰望芝城，流光溢彩")
+步入位于美国，伊利诺伊州，芝加哥文化中心的建筑内部，目光瞬间会被上方绚丽夺目的彩色顶棚——蒂芙尼穹顶所吸引。这座艺术杰作悬挂在普雷斯顿·布拉德利大厅上方，直径约38英尺，由约30,000片法夫里尔玻璃组成，每片玻璃都呈鱼鳞状。阳光透过其半透明的表面，在错综复杂的图案中映射出变幻莫测的蓝色与金色。
+
+穹顶基座饰有十二星座图案，其玻璃工艺旨在模仿波光粼粼且具有虹彩质感的海面，在美国伊利诺伊州芝加哥文化中心。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_800x480.jpg&rf=LaDigue_800x480.jpg "蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_UHD.jpg&rf=LaDigue_UHD.jpg "蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国")
