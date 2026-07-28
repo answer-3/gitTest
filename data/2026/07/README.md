@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_1024x768.jpg&rf=LaDigue_1024x768.jpg "一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_UHD.jpg&rf=LaDigue_UHD.jpg "一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国")
+
+
+---
+### 2026 7月 29：虎啸归来，锐爪重临
+#### 孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度（© Archna Singh/Shutterstock）
+![虎啸归来，锐爪重临](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_800x480.jpg&rf=LaDigue_800x480.jpg "虎啸归来，锐爪重临")
+在全球老虎日这一天，这群孟加拉虎迈着自信的步伐走过印度，拉贾斯坦邦，兰坦博尔国家公园，展现出顶级掠食者对自身在食物链中地位的精准认知。孟加拉虎兼具隐蔽性与力量：成年个体的体长从鼻尖到尾端可超过10英尺，体重约500磅，行走时却能悄无声息。在视觉可见度是一把“双刃剑”的自然生境中，它们的斑纹发挥了关键作用，通过复杂的图案模式在环境中进行伪装，使猎物难以辨识其身形。
+
+老虎是卓越的游泳者，经常通过泡水来降温，这在大多数猫科动物中极为罕见，在兰坦博尔国家公园，拉贾斯坦邦，印度。
+
+[下载480](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_800x480.jpg&rf=LaDigue_800x480.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_1024x768.jpg&rf=LaDigue_1024x768.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg&rf=LaDigue_UHD.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
