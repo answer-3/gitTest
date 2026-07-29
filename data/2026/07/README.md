@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_1024x768.jpg&rf=LaDigue_1024x768.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg&rf=LaDigue_UHD.jpg "孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度")
+
+
+---
+### 2026 7月 30：旷野无声，活态传承之境
+#### 在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国（© Westend61/Adobe Stock）
+![旷野无声，活态传承之境](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_800x480.jpg&rf=LaDigue_800x480.jpg "旷野无声，活态传承之境")
+在纳瓦霍族保留地，亚利桑那州与犹他州交界处，美国，有些景观举世闻名，而纪念碑谷则堪称传奇。这一沙漠奇观横跨州界，其地貌由高耸的砂岩孤峰塑造而成，这些孤峰从谷底拔地而起，高度可达1000英尺。在纳瓦霍语中，该地区被称为 Tsé Bii' Ndzisgaii（意为“岩石之谷”），它将壮丽的地质构造与鲜活的民族文化完美融合。
+
+阿甘结束其跨国长跑的著名地点位于163号美国国道，这里拥有俯瞰山谷的最具标志性视野，在纪念碑谷，纳瓦霍族保留地，美国。
+
+[下载480](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_800x480.jpg&rf=LaDigue_800x480.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_1024x768.jpg&rf=LaDigue_1024x768.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg&rf=LaDigue_UHD.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
