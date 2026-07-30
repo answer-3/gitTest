@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_1024x768.jpg&rf=LaDigue_1024x768.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg&rf=LaDigue_UHD.jpg "在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国")
+
+
+---
+### 2026 7月 31：穿越时光的足迹
+#### 鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国（© Eifel Kreutz/Getty Images）
+![穿越时光的足迹](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_800x480.jpg&rf=LaDigue_800x480.jpg "穿越时光的足迹")
+有些铁路会退出历史舞台，而“弗吉尼亚爬山虎步道”则实现了华丽转身。这条步道全长34.3英里，横贯弗吉尼亚州西南部，沿用了一条昔日的铁路线——该线路曾用于在阿巴拉契亚山脉间运输木材和铁矿石。步道那独特的名字，源自20世纪初那些在陡峭坡道上艰难爬行的蒸汽机车。
+
+这条步道的英文名字“Virginia creeper”（弗吉尼亚爬山虎）具有双重寓意：一是指沿铁轨茂盛生长的当地原生五叶爬山虎植物，二是指20世纪初蒸汽机车在攀爬陡峭山坡时如蜗牛爬行般缓慢的行驶速度。
+
+[下载480](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_800x480.jpg&rf=LaDigue_800x480.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_1024x768.jpg&rf=LaDigue_1024x768.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg&rf=LaDigue_UHD.jpg "鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国")
