@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_1024x768.jpg&rf=LaDigue_1024x768.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&rf=LaDigue_UHD.jpg "大批熔岩流涌入大洋，大岛，夏威夷州，美国")
+
+
+---
+### 2026 8月 2：色彩鲜艳的船只，历久弥新的传统
+#### 马尔萨什洛克港口五彩斑斓的渔船，马耳他（© Klubovy/Getty Images）
+![色彩鲜艳的船只，历久弥新的传统](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_800x480.jpg&rf=LaDigue_800x480.jpg "色彩鲜艳的船只，历久弥新的传统")
+色彩斑斓的“卢祖”（luzzu）——即马耳他的传统渔船——停满了马萨什洛克（Marsaxlokk）那避风港湾的水面；这座村庄坐落于马耳他东南沿海，距离首都瓦莱塔仅需短途车程。作为该国主要的渔业中心之一，这里的生活节奏始终与大海的律动保持着和谐的步调。村庄约有4000名居民，并以其充满活力的滨海区域而闻名——尤其是广受欢迎的周日鱼市，以及每天清晨满载新鲜渔获归来的船只。
+
+鲁佐（Luzzu）渔船船头绘制的双眼被称为“荷鲁斯之眼”或“奥西里斯之眼”，这一传统源自古腓尼基和古埃及，代代相传，旨在驱散恶灵并为渔民带来好运。
+
+[下载480](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_800x480.jpg&rf=LaDigue_800x480.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+[下载720](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_1024x768.jpg&rf=LaDigue_1024x768.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+[下载1080](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+[下载UHD](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
