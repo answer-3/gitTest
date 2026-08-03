@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_1024x768.jpg&rf=LaDigue_1024x768.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
 [下载1080](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
 [下载UHD](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_UHD.jpg&rf=LaDigue_UHD.jpg "马尔萨什洛克港口五彩斑斓的渔船，马耳他")
+
+
+---
+### 2026 8月 4：呼呼，太棒了！
+#### 佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国（© mlorenzphotography/Getty Images）
+![呼呼，太棒了！](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_800x480.jpg&rf=LaDigue_800x480.jpg "呼呼，太棒了！")
+除了南极洲，猫头鹰的足迹遍及各大洲；它们以朝向正前方的双眼、能汇聚声波的扁平脸盘以及敏锐独特的听觉而著称。许多猫头鹰拥有边缘柔软的羽毛，这使它们能够近乎无声地进行捕猎。由于眼球在眼窝内无法转动，它们依靠灵活的颈部来观察周围环境。从森林到沙漠，猫头鹰栖息于多种多样的环境中，在维持生态系统平衡方面发挥着重要作用。
+
+猫头鹰能将头部旋转多达270度，以弥补其眼睛在眼窝中无法转动的缺陷。
+
+[下载480](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_800x480.jpg&rf=LaDigue_800x480.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_1024x768.jpg&rf=LaDigue_1024x768.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg&rf=LaDigue_UHD.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
