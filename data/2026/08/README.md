@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_1024x768.jpg&rf=LaDigue_1024x768.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg&rf=LaDigue_UHD.jpg "佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国")
+
+
+---
+### 2026 8月 5：秘境之门，匠心传世
+#### 非斯皇宫装饰华丽的大门，摩洛哥（© cgst26/Shutterstock）
+![秘境之门，匠心传世](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_800x480.jpg&rf=LaDigue_800x480.jpg "秘境之门，匠心传世")
+在摩洛哥的非斯，被称为“达尔·马赫赞”的王宫自13世纪以来一直是权力的中心；当时，摩洛哥的统治者围绕它建立了一座设防的皇城。其高墙之内，花园、庭院、清真寺和皇家住所错落分布于广阔的建筑群中，且至今仍供国王使用，使其既是历史古迹，又是仍在运作的活跃宫廷。
+
+非斯皇宫那七扇标志性的青铜大门，至今仍由工匠使用柠檬汁和传统技艺进行精细的手工抛光，以保持其灿烂如金的光泽。
+
+[下载480](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_800x480.jpg&rf=LaDigue_800x480.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
+[下载720](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_1024x768.jpg&rf=LaDigue_1024x768.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
+[下载1080](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
+[下载UHD](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg&rf=LaDigue_UHD.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
