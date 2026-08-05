@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_1024x768.jpg&rf=LaDigue_1024x768.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
 [下载1080](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
 [下载UHD](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg&rf=LaDigue_UHD.jpg "非斯皇宫装饰华丽的大门，摩洛哥")
+
+
+---
+### 2026 8月 6：生死渡口，勇者的史诗
+#### 马赛马拉迁徙的角马群横渡马拉河, 肯尼亚（© Manoj Shah/Getty Images）
+![生死渡口，勇者的史诗](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_800x480.jpg&rf=LaDigue_800x480.jpg "生死渡口，勇者的史诗")
+在肯尼亚的马赛马拉，大地仿佛在移动。成群结队的角马——这种拥有极强耐力的蹄类食草动物——在季节性降雨滋润出的鲜嫩青草与水源的吸引下，浩浩荡荡地迁徙着。
+
+成年角马体重可达600磅，属于体型较大的食草性羚羊。
+
+[下载480](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_800x480.jpg&rf=LaDigue_800x480.jpg "马赛马拉迁徙的角马群横渡马拉河, 肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_1024x768.jpg&rf=LaDigue_1024x768.jpg "马赛马拉迁徙的角马群横渡马拉河, 肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马赛马拉迁徙的角马群横渡马拉河, 肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg "马赛马拉迁徙的角马群横渡马拉河, 肯尼亚")
