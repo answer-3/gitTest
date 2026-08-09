@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_1024x768.jpg&rf=LaDigue_1024x768.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg&rf=LaDigue_UHD.jpg "让-马里·吉巴乌文化中心，新喀里多尼亚")
+
+
+---
+### 2026 8月 10：两片沙漠交汇之地
+#### 约书亚树国家公园，加利福尼亚州，美国（© JJ Landscapes/Getty Images）
+![两片沙漠交汇之地](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_800x480.jpg&rf=LaDigue_800x480.jpg "两片沙漠交汇之地")
+两片大沙漠交汇之处，约书亚树国家公园展现出由风、时间和极端环境塑造的冷峻迷人景观。在南加利福尼亚州，海拔较高的莫哈韦沙漠与更炎热、地势更低的科罗拉多沙漠相融，形成独特的生态系统组合与非凡的生物多样性。
+
+约书亚树地区的二长花岗岩最初是熔融岩体，在一亿多年前于地下冷却形成。
+
+[下载480](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_800x480.jpg&rf=LaDigue_800x480.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_1024x768.jpg&rf=LaDigue_1024x768.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约书亚树国家公园，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&rf=LaDigue_UHD.jpg "约书亚树国家公园，加利福尼亚州，美国")
