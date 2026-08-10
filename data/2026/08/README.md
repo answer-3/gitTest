@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_1024x768.jpg&rf=LaDigue_1024x768.jpg "约书亚树国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "约书亚树国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&rf=LaDigue_UHD.jpg "约书亚树国家公园，加利福尼亚州，美国")
+
+
+---
+### 2026 8月 11：绚丽多彩的哥本哈根
+#### 哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦（© emicristea/Getty Images）
+![绚丽多彩的哥本哈根](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_800x480.jpg&rf=LaDigue_800x480.jpg "绚丽多彩的哥本哈根")
+哥本哈根新港运河是一条标志性水道，鲜艳色彩与深厚历史在此交融。它于17世纪70年代在克里斯蒂安五世统治时期挖建，曾是重要门户，货船可由此将货物直接卸入城市中心。远在成为今天明信片般完美的地标之前，这座港口曾以粗犷闻名：水手云集、酒馆喧闹，与色彩明快的山墙联排屋并立。
+
+汉斯·克里斯蒂安·安徒生一生中曾在新港的18号、20号和67号三个不同地址居住。
+
+[下载480](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_800x480.jpg&rf=LaDigue_800x480.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
+[下载720](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_1024x768.jpg&rf=LaDigue_1024x768.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
+[下载1080](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
+[下载UHD](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_UHD.jpg&rf=LaDigue_UHD.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
