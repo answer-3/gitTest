@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_1024x768.jpg&rf=LaDigue_1024x768.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
 [下载1080](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
 [下载UHD](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_UHD.jpg&rf=LaDigue_UHD.jpg "哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦")
+
+
+---
+### 2026 8月 12：值得守护的巨兽
+#### 安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚（© Ibrahim Suha Derbent/Getty Images）
+![值得守护的巨兽](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_800x480.jpg&rf=LaDigue_800x480.jpg "值得守护的巨兽")
+8月12日世界大象日，让我们停下脚步，不仅思考这些动物的庞大体型，也体会它们生命的深度。在图片所示的肯尼亚安博塞利国家公园等地，非洲草原象群并非只是穿越景观；它们还会记住这片土地。母象首领带领家族往返于不同水源，行进路线既由地形塑造，也由记忆指引。
+
+2024年的一项研究利用在安博塞利录制的叫声发现，非洲象会用类似个体名字的叫声彼此称呼。
+
+[下载480](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_800x480.jpg&rf=LaDigue_800x480.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_1024x768.jpg&rf=LaDigue_1024x768.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg&rf=LaDigue_UHD.jpg "安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚")
