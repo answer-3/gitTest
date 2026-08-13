@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_1024x768.jpg&rf=LaDigue_1024x768.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_UHD.jpg&rf=LaDigue_UHD.jpg "泰德天文台上空的英仙座流星，加那利群岛，西班牙")
+
+
+---
+### 2026 8月 14：为动物脚掌而建，而非行人
+#### 扎克舒夫附近的野生动物通道，波兰（© bbsferrari/Getty Images）
+![为动物脚掌而建，而非行人](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_800x480.jpg&rf=LaDigue_800x480.jpg "为动物脚掌而建，而非行人")
+道路解决了一个问题，却悄然制造了另一个问题。人类出行速度前所未有地提高，野生动物世代沿用的迁徙路线却被公路切断，导致碰撞事故增加、栖息地破碎化，野生动物种群彼此隔绝。为应对这一挑战，人们建造了称为生态桥的野生动物通道：这些桥梁或隧道旨在重新连接栖息地，让动物安全穿越繁忙道路。最早的一些现代案例于20世纪50年代出现在法国，这一理念很快传遍欧洲。荷兰等国通过建造覆盖土壤及草本、灌木和乔木等本土植被的宽阔绿色桥梁，推动了生态桥设计的完善。
+
+20世纪50年代，法国首次出现了野生动物通道，为动物们在被公路分割的新景观中开辟了一条生路。
+
+[下载480](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_800x480.jpg&rf=LaDigue_800x480.jpg "扎克舒夫附近的野生动物通道，波兰")
+[下载720](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_1024x768.jpg&rf=LaDigue_1024x768.jpg "扎克舒夫附近的野生动物通道，波兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "扎克舒夫附近的野生动物通道，波兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_UHD.jpg&rf=LaDigue_UHD.jpg "扎克舒夫附近的野生动物通道，波兰")
