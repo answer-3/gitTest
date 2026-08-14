@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_1024x768.jpg&rf=LaDigue_1024x768.jpg "扎克舒夫附近的野生动物通道，波兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "扎克舒夫附近的野生动物通道，波兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_UHD.jpg&rf=LaDigue_UHD.jpg "扎克舒夫附近的野生动物通道，波兰")
+
+
+---
+### 2026 8月 15：绝妙的平衡术
+#### 圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国（© Westend61/Getty Images）
+![绝妙的平衡术](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_800x480.jpg&rf=LaDigue_800x480.jpg "绝妙的平衡术")
+大自然善于平衡看似不可能之物。在新墨西哥州阿什斯利帕荒野地，高耸的石林以纤细石柱托起厚重岩帽。约7,500万年来，风、水和冰将这片偏远的恶地雕刻成一座露天展馆，景象更像异星，而非地球。
+
+阿什斯勒帕保存着全球最丰富的晚白垩世哺乳动物、爬行动物、植物和鱼类化石记录之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_800x480.jpg&rf=LaDigue_800x480.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_UHD.jpg&rf=LaDigue_UHD.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
