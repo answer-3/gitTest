@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_UHD.jpg&rf=LaDigue_UHD.jpg "圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国")
+
+
+---
+### 2026 8月 16：天鹅开启传奇之处
+#### 戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰（© Maria Janus/Shutterstock）
+![天鹅开启传奇之处](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_800x480.jpg&rf=LaDigue_800x480.jpg "天鹅开启传奇之处")
+天鹅、秘密藏身处和中世纪养鱼池有什么共同之处？它们都是罗斯埃里利方济各会修道院遗址故事的一部分。这座保存完好的爱尔兰方济各会修道院建于约1351年，常被称为罗斯修道院（俗称）；不过它从未设过院长，因为它本就不是隐修院。
+
+罗斯埃里利修道院在建立后的一个世纪间逐步扩建，现存塔楼建于1498年。
+
+[下载480](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_800x480.jpg&rf=LaDigue_800x480.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
+[下载720](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_1024x768.jpg&rf=LaDigue_1024x768.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
+[下载1080](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg&rf=LaDigue_UHD.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
