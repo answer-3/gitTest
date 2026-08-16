@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_1024x768.jpg&rf=LaDigue_1024x768.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
 [下载1080](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg&rf=LaDigue_UHD.jpg "戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰")
+
+
+---
+### 2026 8月 17：珊瑚礁上的黄金地段
+#### 海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾（© Franco Banfi/Nature Picture Library）
+![珊瑚礁上的黄金地段](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_800x480.jpg&rf=LaDigue_800x480.jpg "珊瑚礁上的黄金地段")
+地点很重要。看看图片中菲律宾卡比劳岛附近卡比劳附近的灯塔礁的眼斑双锯鱼就知道了。在这片充满饥饿捕食者和激烈竞争的热带水域，它们占据了一块黄金地段：一只拥有数千个微小刺细胞的海葵。
+
+眼斑双锯鱼（俗称“公子小丑鱼”）的学名为 Amphiprion ocellaris；根据世界鱼类数据库（FishBase）的记录，该物种具有 11 根背鳍鳍棘。
+
+[下载480](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_800x480.jpg&rf=LaDigue_800x480.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
+[下载720](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_1024x768.jpg&rf=LaDigue_1024x768.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
+[下载1080](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
+[下载UHD](https://cn.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg&rf=LaDigue_UHD.jpg "海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾")
