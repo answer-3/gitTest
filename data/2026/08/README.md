@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_1024x768.jpg&rf=LaDigue_1024x768.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_UHD.jpg&rf=LaDigue_UHD.jpg "弗留利要塞城市帕尔马诺瓦航拍图，意大利")
+
+
+---
+### 2026 8月 19：浪潮间的通道
+#### 怀特克利夫公园，西温哥华，加拿大（© Aolin Chen/Getty Images）
+![浪潮间的通道](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_800x480.jpg&rf=LaDigue_800x480.jpg "浪潮间的通道")
+通往此处的最佳路径并非由混凝土铺就。每当退潮时，一条岩石小径便会显露出来，连接着加拿大西温哥华的怀特克利夫公园（Whytecliff Park）与怀特小岛（Whyte Islet）。数小时后，海水会悄然漫过这条通道，将“把握时机”也变成了体验的一部分。这片海岸线吸引着一代又一代的游客：潮汐开辟了道路，而湿滑的岩石则让人心存敬畏；作为回报，你将收获回望海滩与格伦伊格尔斯（Gleneagles）山坡民居时的壮丽景致。
+
+怀特克利夫公园于1993年成为加拿大首个咸水海洋保护区，为近岸栖息地提供保护。
+
+[下载480](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_800x480.jpg&rf=LaDigue_800x480.jpg "怀特克利夫公园，西温哥华，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_1024x768.jpg&rf=LaDigue_1024x768.jpg "怀特克利夫公园，西温哥华，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "怀特克利夫公园，西温哥华，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_UHD.jpg&rf=LaDigue_UHD.jpg "怀特克利夫公园，西温哥华，加拿大")
