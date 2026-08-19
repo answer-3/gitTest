@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_1024x768.jpg&rf=LaDigue_1024x768.jpg "怀特克利夫公园，西温哥华，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "怀特克利夫公园，西温哥华，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_UHD.jpg&rf=LaDigue_UHD.jpg "怀特克利夫公园，西温哥华，加拿大")
+
+
+---
+### 2026 8月 20：鲸群之声
+#### 林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国（© John Hyde/Alamy）
+![鲸群之声](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_800x480.jpg&rf=LaDigue_800x480.jpg "鲸群之声")
+在阿拉斯加东南部白雪覆盖的奇尔卡特山脉映衬下，一头虎鲸浮出林恩运河水面。虎鲸是海豚科体型最大的成员，也是海洋中最具辨识度的捕食者之一。阿拉斯加内湾航道寒冷且营养丰富的水域提供了充足的觅食地，既维系鲑鱼洄游，也滋养种类繁多的海洋生物，为这些非凡动物提供支持。
+
+成年雄性虎鲸的背鳍可高达约6英尺，明显高于成年雌性虎鲸的背鳍。
+
+[下载480](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_800x480.jpg&rf=LaDigue_800x480.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_1024x768.jpg&rf=LaDigue_1024x768.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_UHD.jpg&rf=LaDigue_UHD.jpg "林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国")
