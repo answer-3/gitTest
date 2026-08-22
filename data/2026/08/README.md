@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_1024x768.jpg&rf=LaDigue_1024x768.jpg "普通蓝灰蝶，德文郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普通蓝灰蝶，德文郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_UHD.jpg&rf=LaDigue_UHD.jpg "普通蓝灰蝶，德文郡，英格兰")
+
+
+---
+### 2026 8月 23：暑气渐消，金秋已至
+#### 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国（© jia yu/Getty Images）
+![暑气渐消，金秋已至](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_800x480.jpg&rf=LaDigue_800x480.jpg "暑气渐消，金秋已至")
+处暑时节将至，航拍视角下的古塔迎着晨雾耸立于渐染秋色的林木之间，生动呈现了暑气消退、金秋将至的自然韵律，以及中国传统文化景观的悠久魅力 。这一时节的传统习俗包括放河灯、迎秋赏景以及饮用中草药煎剂（如凉茶/防暑汤），以调和四季交替时的身体平衡 。
+
+“处暑”标志着气温开始回落，预示着长江三角洲地区金秋收获季节的开启。
+
+[下载480](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_800x480.jpg&rf=LaDigue_800x480.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_1024x768.jpg&rf=LaDigue_1024x768.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_UHD.jpg&rf=LaDigue_UHD.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
