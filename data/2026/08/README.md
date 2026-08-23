@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_1024x768.jpg&rf=LaDigue_1024x768.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_UHD.jpg&rf=LaDigue_UHD.jpg "在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国")
+
+
+---
+### 2026 8月 24：跨越历史
+#### 布鲁克林大桥，纽约市，美国（© shayes17/Getty Images）
+![跨越历史](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_800x480.jpg&rf=LaDigue_800x480.jpg "跨越历史")
+布鲁克林大桥连接的不只是曼哈顿和布鲁克林——它还连接着历史、工程学以及几个令人惊讶的故事。大桥历经14年建造，于1883年开放，成为世界上第一座钢丝悬索桥，永久改变了纽约人跨越东河的方式。
+
+2024年，布鲁克林大桥日均承载103,051辆机动车、28,845名行人和5,504名骑行者。
+
+[下载480](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_800x480.jpg&rf=LaDigue_800x480.jpg "布鲁克林大桥，纽约市，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_1024x768.jpg&rf=LaDigue_1024x768.jpg "布鲁克林大桥，纽约市，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布鲁克林大桥，纽约市，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_UHD.jpg&rf=LaDigue_UHD.jpg "布鲁克林大桥，纽约市，美国")
