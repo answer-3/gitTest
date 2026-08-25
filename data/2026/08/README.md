@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_1024x768.jpg&rf=LaDigue_1024x768.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_UHD.jpg&rf=LaDigue_UHD.jpg "红木国家与州立公园的日出，加利福尼亚州，美国")
+
+
+---
+### 2026 8月 26：流光溢彩的天空
+#### 基尔丘山上空的极光，冰岛（© Cavan Images/Alamy）
+![流光溢彩的天空](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_800x480.jpg&rf=LaDigue_800x480.jpg "流光溢彩的天空")
+随着冰岛的夜晚再次变长，游客很快又会仰望天空，期待一睹北极光。北极光是一种发光现象，当来自太阳的粒子与地球高层大气中的气体相互作用时，便会形成闪烁的绿色、粉色、紫色，有时甚至是红色光带。冰岛地处北方，秋冬季夜晚日益漫长而黑暗，因此成为全球首屈一指的极光观赏地之一。
+
+极光有时还可能伴随微弱声响，不过相关报告较少，其形成机制仍在研究中。
+
+[下载480](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_800x480.jpg&rf=LaDigue_800x480.jpg "基尔丘山上空的极光，冰岛")
+[下载720](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1024x768.jpg&rf=LaDigue_1024x768.jpg "基尔丘山上空的极光，冰岛")
+[下载1080](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基尔丘山上空的极光，冰岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg "基尔丘山上空的极光，冰岛")
