@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1024x768.jpg&rf=LaDigue_1024x768.jpg "基尔丘山上空的极光，冰岛")
 [下载1080](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "基尔丘山上空的极光，冰岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg "基尔丘山上空的极光，冰岛")
+
+
+---
+### 2026 8月 27：湖水、野生动物与奇景
+#### 日出时的小红鹳群，马加迪湖，肯尼亚（© Denis-Huot/Nature Picture Library）
+![湖水、野生动物与奇景](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_800x480.jpg&rf=LaDigue_800x480.jpg "湖水、野生动物与奇景")
+想象一个没有这些自然奇观的世界——它们容纳着地球约90%的地表淡水。湖泊是地球上最宝贵的资源之一。它们提供清洁水源、支持野生动物、帮助调节气候，并维系全球各地的社区。为肯定湖泊的重要作用，联合国将8月27日定为世界湖泊日，并于2025年首次纪念。采取行动的必要性比以往任何时候都更为迫切。全球超过1.17亿个湖泊覆盖了近4%的陆地表面，但许多湖泊正面临污染、过度利用和气候变化带来的日益严峻的压力。
+
+马加迪湖位于火山盆地中，温泉为富含碳酸钠的高碱性湖水提供补给。
+
+[下载480](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_800x480.jpg&rf=LaDigue_800x480.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
+[下载720](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
+[下载1080](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
