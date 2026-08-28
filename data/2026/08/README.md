@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1024x768.jpg&rf=LaDigue_1024x768.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg&rf=LaDigue_UHD.jpg "日出时的小红鹳群，马加迪湖，肯尼亚")
+
+
+---
+### 2026 8月 28：潮汐塑造的传奇
+#### 涨潮时的圣米歇尔山，芒什省，诺曼底，法国（© Clement LEONARD/Getty Images）
+![潮汐塑造的传奇](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_800x480.jpg&rf=LaDigue_800x480.jpg "潮汐塑造的传奇")
+日落时分，圣米歇尔山从法国诺曼底的水面升起，宛如一座由海洋塑造的堡垒。修道院和村庄坐落在岩石潮汐岛上，矗立于欧洲最壮观的海岸环境之一。每天两次，海水退去，露出大片沙滩；随后潮水再次涌回，重新覆盖这片景观。涨潮时，圣米歇尔山又会变成一座岛屿。数百年来，旅行者一直根据这种潮汐节奏安排行程，在条件允许时穿越潮滩，并在数小时后观看海水归来。
+
+圣米歇尔山周围的潮差可达约14米，是欧洲潮差最大的地区之一。
+
+[下载480](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_800x480.jpg&rf=LaDigue_800x480.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
+[下载720](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_1024x768.jpg&rf=LaDigue_1024x768.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg&rf=LaDigue_UHD.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
