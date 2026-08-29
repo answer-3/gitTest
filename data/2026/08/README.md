@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_1024x768.jpg&rf=LaDigue_1024x768.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
+
+
+---
+### 2026 8月 30：名为鲨鱼的巨型鱼类
+#### 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚（© Pete Oxford/Nature Picture Library）
+![名为鲨鱼的巨型鱼类](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_800x480.jpg&rf=LaDigue_800x480.jpg "名为鲨鱼的巨型鱼类")
+今天，国际鲸鲨日将目光投向世界上最大的鱼类。鲸鲨虽然名字中带有“鲸”，却不是鲸类，而是鱼类；体长可达60英尺，体重约20吨。它们分布在温暖的热带海域，张着嘴在水中缓缓游动，滤食浮游生物、鱼卵和其他微小猎物。每条鲸鲨身上独特的白色斑点图案都各不相同，就像人类的指纹。
+
+鲸鲨的寿命可能达到或超过一个世纪，这使世界上最大的鱼拥有令人意外的漫长生命。
+
+[下载480](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_800x480.jpg&rf=LaDigue_800x480.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1024x768.jpg&rf=LaDigue_1024x768.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
