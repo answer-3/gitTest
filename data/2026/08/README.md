@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_1024x768.jpg&rf=LaDigue_1024x768.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg&rf=LaDigue_UHD.jpg "涨潮时的圣米歇尔山，芒什省，诺曼底，法国")
+
+
+---
+### 2026 8月 29：读懂浪涛之间的讯息
+#### 冲浪者航拍图，圣卡塔琳娜州，巴西（© Wonderful Nature/Shutterstock）
+![读懂浪涛之间的讯息](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_800x480.jpg&rf=LaDigue_800x480.jpg "读懂浪涛之间的讯息")
+在巴西南部圣卡塔琳娜州近海，图片捕捉到一种熟悉的仪式：冲浪者在碎浪之外等待，冲浪板随着大西洋的波涛起伏。从空中看，几乎什么都没有发生，但真正的功课正是在此时开始。
+
+圣卡塔琳娜州海岸的若阿基纳海滩曾承办多项重要国际冲浪赛事。
+
+[下载480](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_800x480.jpg&rf=LaDigue_800x480.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_1024x768.jpg&rf=LaDigue_1024x768.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg "冲浪者航拍图，圣卡塔琳娜州，巴西")
