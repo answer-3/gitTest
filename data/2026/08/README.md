@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1024x768.jpg&rf=LaDigue_1024x768.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg "鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚")
+
+
+---
+### 2026 8月 31：图案艺术的典范
+#### 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦（© Piero M. Bianchi/Getty Images）
+![图案艺术的典范](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_800x480.jpg&rf=LaDigue_800x480.jpg "图案艺术的典范")
+站在雷吉斯坦广场上，你很容易明白为什么这里被视为撒马尔罕的建筑核心——撒马尔罕是中亚最古老的城市之一。这座位于乌兹别克斯坦的广场三面矗立着三座宏伟的经学院——伊斯兰学术中心——它们高耸的门廊吸引着人们仰头观望。然而，广场上一些最珍贵的瑰宝，只有在你走近细看时才会显露出来。
+
+2001年，撒马尔罕被列入联合国教科文组织《世界遗产名录》，获誉为拥有2500多年历史的世界文化交汇地。
+
+[下载480](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_800x480.jpg&rf=LaDigue_800x480.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
+[下载720](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1024x768.jpg&rf=LaDigue_1024x768.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
+[下载1080](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
+[下载UHD](https://cn.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg&rf=LaDigue_UHD.jpg "雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦")
