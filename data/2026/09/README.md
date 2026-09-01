@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1024x768.jpg&rf=LaDigue_1024x768.jpg "马鬃小皮伞，白俄罗斯")
 [下载1080](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "马鬃小皮伞，白俄罗斯")
 [下载UHD](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&rf=LaDigue_UHD.jpg "马鬃小皮伞，白俄罗斯")
+
+
+---
+### 2026 9月 2：海岸边的缤纷色彩
+#### 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰（© stevendocwra/Getty Images）
+![海岸边的缤纷色彩](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_800x480.jpg&rf=LaDigue_800x480.jpg "海岸边的缤纷色彩")
+在英格兰东海岸，萨福克遗产海岸融合了风吹不息的石南荒原、湿地、砾石海滩和开阔的北海景观。索思沃尔德是这里最著名的城镇之一，水域与历史在此密不可分。小镇几乎被大海、布莱斯河和周围的湿地环绕，坐落在一片狭长的半岛上；数百年来的渔业、贸易和临水生活共同塑造了这里。
+
+索思沃尔德灯塔于1890年9月3日投入使用，如今其灯光射程可达24海里。
+
+[下载480](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_800x480.jpg&rf=LaDigue_800x480.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1024x768.jpg&rf=LaDigue_1024x768.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
