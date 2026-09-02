@@ -26,3 +26,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1024x768.jpg&rf=LaDigue_1024x768.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg "传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰")
+
+
+---
+### 2026 9月 3：一部守护荒野的法案
+#### 郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国（© James Hager/Getty Images）
+![一部守护荒野的法案](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_800x480.jpg&rf=LaDigue_800x480.jpg "一部守护荒野的法案")
+波浪通常属于海洋。但在亚利桑那州北部，它们却从沙漠中涌起。郊狼丘是朱红悬崖国家纪念区的一部分，其盘旋起伏的砂岩地貌由远古沙丘和数百万年的侵蚀共同塑造而成，造就了一片即使静止不动也仿佛泛着涟漪的景观。
+
+《荒野法》通常禁止在指定荒野地区修建永久性道路或开展商业活动。
+
+[下载480](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_800x480.jpg&rf=LaDigue_800x480.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1024x768.jpg&rf=LaDigue_1024x768.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
