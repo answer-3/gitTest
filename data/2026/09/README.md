@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1024x768.jpg&rf=LaDigue_1024x768.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&rf=LaDigue_UHD.jpg "郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国")
+
+
+---
+### 2026 9月 4：地平线上的红与白
+#### 韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国（© bluejayphoto/Getty Images）
+![地平线上的红与白](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_800x480.jpg&rf=LaDigue_800x480.jpg "地平线上的红与白")
+韦斯特黑弗桑德灯塔高耸于德国北海沿岸的盐沼之上，凭借醒目的红白条纹一眼便可辨认。灯塔建于1906年至1908年间，一个多世纪以来一直是艾德施泰特半岛的标志，为穿行北海水域的船只指引航向。如今，它仍是德国北部最著名的海岸地标之一。登上157级台阶的游客，可以饱览周围的壮阔景色。
+
+韦斯特黑弗桑德灯塔是一座40米高的铸铁塔，左右两侧各有一座造型对称的原守塔人住宅。
+
+[下载480](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_800x480.jpg&rf=LaDigue_800x480.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1024x768.jpg&rf=LaDigue_1024x768.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg&rf=LaDigue_UHD.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
