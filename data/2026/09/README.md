@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1024x768.jpg&rf=LaDigue_1024x768.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg&rf=LaDigue_UHD.jpg "韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国")
+
+
+---
+### 2026 9月 5：小小鸟儿，巨大影响
+#### 龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加（© Paul Hobson/Nature Picture Library）
+![小小鸟儿，巨大影响](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_800x480.jpg&rf=LaDigue_800x480.jpg "小小鸟儿，巨大影响")
+全国蜂鸟日旨在赞颂自然界中最非凡的空中飞行专家。蜂鸟仅分布于美洲，这些小鸟能够原地悬停、向后飞行，翅膀每秒可拍动数十次。它们为寻找花蜜而造访花朵时，也充当重要的传粉者，帮助维系从高山草甸到热带雨林的各种生态系统。闪耀的羽毛、非凡的敏捷性和高能耗的生活方式，使它们成为世界上最迷人的鸟类之一。
+
+蜂鸟的新陈代谢率在所有脊椎动物中最高，可能每10分钟就要进食一次。
+
+[下载480](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_800x480.jpg&rf=LaDigue_800x480.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_1024x768.jpg&rf=LaDigue_1024x768.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg&rf=LaDigue_UHD.jpg "龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加")
