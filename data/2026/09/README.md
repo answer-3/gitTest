@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_1024x768.jpg&rf=LaDigue_1024x768.jpg "菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg&rf=LaDigue_UHD.jpg "菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚")
+
+
+---
+### 2026 9月 7：历史沿运河流淌之地
+#### 老市政厅，班贝格，德国（© SCStock/Getty Images）
+![历史沿运河流淌之地](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_800x480.jpg&rf=LaDigue_800x480.jpg "历史沿运河流淌之地")
+班贝格老市政厅高踞于雷格尼茨河上，是德国班贝格最具代表性的地标之一。当地传说称，这座建筑之所以矗立在人工岛上，是因为城里的主教拒绝向市民提供修建市政厅的土地。据说居民于是自行在河中央造出一块地基，成就了这座建筑非凡的环境和历久弥新的魅力。
+
+班贝格老市政厅内设路德维希收藏馆，收藏来自重要制造中心的巴洛克时期彩陶和瓷器。
+
+[下载480](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_800x480.jpg&rf=LaDigue_800x480.jpg "老市政厅，班贝格，德国")
+[下载720](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_1024x768.jpg&rf=LaDigue_1024x768.jpg "老市政厅，班贝格，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "老市政厅，班贝格，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_UHD.jpg&rf=LaDigue_UHD.jpg "老市政厅，班贝格，德国")
