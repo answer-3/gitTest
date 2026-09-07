@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_1024x768.jpg&rf=LaDigue_1024x768.jpg "老市政厅，班贝格，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "老市政厅，班贝格，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_UHD.jpg&rf=LaDigue_UHD.jpg "老市政厅，班贝格，德国")
+
+
+---
+### 2026 9月 8：金色田野
+#### 东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰（© Guy Edwardes/Minden Pictures）
+![金色田野](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_800x480.jpg&rf=LaDigue_800x480.jpg "金色田野")
+在汉普郡东米恩附近的金色田野中，一棵山毛榉独自挺立，成为英格兰南唐斯国家公园起伏景观中的醒目焦点。数百年来，农业塑造着这些白垩丘陵；时至今日，耕作仍是该地区的重要组成部分。当地排水良好的白垩土壤支撑着大规模旱作农业，其中小麦和大麦是最常见的作物。整个夏季，作物在田间逐渐成熟，随后收获季将乡野变成金色田块与麦茬交织的拼图。
+
+米恩河发源于东米恩村中心以南约一英里处，向前流淌约21英里后汇入索伦特海峡。
+
+[下载480](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_800x480.jpg&rf=LaDigue_800x480.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_1024x768.jpg&rf=LaDigue_1024x768.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg&rf=LaDigue_UHD.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
