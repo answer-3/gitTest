@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_1024x768.jpg&rf=LaDigue_1024x768.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg&rf=LaDigue_UHD.jpg "东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰")
+
+
+---
+### 2026 9月 9：印度西海岸的生活
+#### 安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度（© Amith Nag Photography/Getty Images）
+![印度西海岸的生活](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_800x480.jpg&rf=LaDigue_800x480.jpg "印度西海岸的生活")
+提到印度南部，人们常会想到香料贸易路线、古典音乐、民间舞蹈，以及数百年来连接印度与世界的海岸线。沿着这条海岸向西进入卡纳塔克邦，便会抵达安科拉附近一处更宁静的停靠点：加比特凯尼海滩。这里的生活围绕阿拉伯海展开，渔船在黎明前出海，载着当天的渔获归来。
+
+安科拉主要种植的卡里伊沙德芒果于2023年获得地理标志（GI）认证。
+
+[下载480](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_800x480.jpg&rf=LaDigue_800x480.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1024x768.jpg&rf=LaDigue_1024x768.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg&rf=LaDigue_UHD.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
