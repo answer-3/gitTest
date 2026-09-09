@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1024x768.jpg&rf=LaDigue_1024x768.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.GabitKeni_ZH-CN2314122948_UHD.jpg&rf=LaDigue_UHD.jpg "安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度")
+
+
+---
+### 2026 9月 10：俯瞰大地拼图
+#### 奥尔韦拉航拍图，安达卢西亚，西班牙（© Marco Bottigelli/Getty Images）
+![俯瞰大地拼图](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_800x480.jpg&rf=LaDigue_800x480.jpg "俯瞰大地拼图")
+你是否想过，安达卢西亚为何是西班牙最著名的地区之一？弗拉门戈、塔帕斯、摩尔式建筑和广阔的橄榄林都功不可没。在那些名城之外，还有奥尔韦拉这样的历史古镇。这座村庄被200多万棵橄榄树环绕，作为战略边境聚落发展而来，并在数百年的变迁中成形。奥尔韦拉城堡依然俯瞰着全镇，下方的化身圣母教堂则主导着天际线。前往拉西利亚文化中心，可以了解奥尔韦拉的中世纪历史与传统。
+
+奥尔韦拉的摩尔式城堡建于12世纪末，坐落在海拔约623米的高处。
+
+[下载480](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_800x480.jpg&rf=LaDigue_800x480.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_UHD.jpg&rf=LaDigue_UHD.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
