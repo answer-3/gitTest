@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
 [下载1080](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
 [下载UHD](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_UHD.jpg&rf=LaDigue_UHD.jpg "奥尔韦拉航拍图，安达卢西亚，西班牙")
+
+
+---
+### 2026 9月 11：地中海风情尽显
+#### 滨海自由城，法国里维埃拉，法国（© StockByM/Getty Images）
+![地中海风情尽显](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_800x480.jpg&rf=LaDigue_800x480.jpg "地中海风情尽显")
+九月，法国里维埃拉沐浴在更柔和的光线中，地中海植被也逐渐恢复生机。山丘间弥漫着阿勒颇松、迷迭香和野百里香的芳香。内陆地区，百年橄榄树和山顶村庄讲述着一个由希腊、罗马和普罗旺斯影响共同塑造的故事。
+
+滨海自由城的圣埃尔姆城堡奉萨伏依公爵埃马努埃莱·菲利贝托之命，于1557年建成，用于加强海岸防御。
+
+[下载480](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_800x480.jpg&rf=LaDigue_800x480.jpg "滨海自由城，法国里维埃拉，法国")
+[下载720](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_1024x768.jpg&rf=LaDigue_1024x768.jpg "滨海自由城，法国里维埃拉，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "滨海自由城，法国里维埃拉，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_UHD.jpg&rf=LaDigue_UHD.jpg "滨海自由城，法国里维埃拉，法国")
