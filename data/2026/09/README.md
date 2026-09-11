@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_1024x768.jpg&rf=LaDigue_1024x768.jpg "滨海自由城，法国里维埃拉，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "滨海自由城，法国里维埃拉，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_UHD.jpg&rf=LaDigue_UHD.jpg "滨海自由城，法国里维埃拉，法国")
+
+
+---
+### 2026 9月 12：海浪与海岸的高手
+#### 墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋（© Henley Spiers/Nature Picture Library）
+![海浪与海岸的高手](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_800x480.jpg&rf=LaDigue_800x480.jpg "海浪与海岸的高手")
+加州海狮在场时，海滩上的一天很少会安静。洪亮的吠叫、顽皮的个性，再加上抢尽风头的本领，让这些海洋哺乳动物深谙如何上演一场好戏。
+
+它们能潜至1,000英尺深处，并可屏息长达10分钟。
+
+[下载480](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_800x480.jpg&rf=LaDigue_800x480.jpg "墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋")
+[下载720](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_1024x768.jpg&rf=LaDigue_1024x768.jpg "墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋")
+[下载1080](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋")
+[下载UHD](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_UHD.jpg&rf=LaDigue_UHD.jpg "墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋")
