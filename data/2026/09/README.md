@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_1024x768.jpg&rf=LaDigue_1024x768.jpg "墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋")
 [下载1080](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋")
 [下载UHD](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_UHD.jpg&rf=LaDigue_UHD.jpg "墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋")
+
+
+---
+### 2026 9月 13：高处的珊瑚礁
+#### 米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利（© Vithun Khamsong/Getty Images）
+![高处的珊瑚礁](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_800x480.jpg&rf=LaDigue_800x480.jpg "高处的珊瑚礁")
+画面捕捉了意大利东北部威尼托大区米苏里纳群峰日出时的锯齿状天际线。前往附近三峰山的游客，往往本为那条著名路线而来，却发现自己的目光被米苏里纳群峰吸引。作为多洛米蒂山脉的一部分，这些针状山峰最高处超过9,300英尺，仿佛专为营造戏剧效果而雕琢。出人意料的是，它们最初是古老的珊瑚礁。
+
+联合国教科文组织的多洛米蒂山脉遗产地由九个组成部分构成，其中有18座海拔超过3000米的山峰。
+
+[下载480](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_800x480.jpg&rf=LaDigue_800x480.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_1024x768.jpg&rf=LaDigue_1024x768.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_UHD.jpg&rf=LaDigue_UHD.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
