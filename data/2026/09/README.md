@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_1024x768.jpg&rf=LaDigue_1024x768.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_UHD.jpg&rf=LaDigue_UHD.jpg "米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利")
+
+
+---
+### 2026 9月 14：坚韧在此扎根
+#### 地肤田，中国（© lingqi xie/Getty Images）
+![坚韧在此扎根](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_800x480.jpg&rf=LaDigue_800x480.jpg "坚韧在此扎根")
+在今天的画面中，中国大地上铺展着绿色与深红色的地肤。地肤原产于欧亚大陆部分地区，19世纪末作为观赏植物和制作扫帚的材料来源被引入美国。它耐旱、耐热、耐盐碱土壤和少雨环境的能力，帮助其扩散至美国大平原及美国西部大部分地区。
+
+地肤属于苋科，与甜菜、菠菜和藜麦有植物学上的亲缘关系。
+
+[下载480](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_800x480.jpg&rf=LaDigue_800x480.jpg "地肤田，中国")
+[下载720](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1024x768.jpg&rf=LaDigue_1024x768.jpg "地肤田，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地肤田，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_UHD.jpg&rf=LaDigue_UHD.jpg "地肤田，中国")
