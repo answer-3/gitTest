@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1024x768.jpg&rf=LaDigue_1024x768.jpg "地肤田，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地肤田，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_UHD.jpg&rf=LaDigue_UHD.jpg "地肤田，中国")
+
+
+---
+### 2026 9月 15：最炫者生存
+#### 红绿金刚鹦鹉（© markes51/Getty Images）
+![最炫者生存](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_800x480.jpg&rf=LaDigue_800x480.jpg "最炫者生存")
+进化偶尔也会偏爱繁复华丽。看看这些红绿金刚鹦鹉：它们拥有猩红色羽毛、鲜绿色翅膀和蓝色飞羽。它们生活在南美洲热带地区，日常活动以不易从地面察觉的方式将果实、种子与土壤联系在一起。
+
+大型金刚鹦鹉可产生数百磅每平方英寸的咬合压力，远高于普通人类，因而能轻松咬开坚硬的坚果和种子。
+
+[下载480](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_800x480.jpg&rf=LaDigue_800x480.jpg "红绿金刚鹦鹉")
+[下载720](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1024x768.jpg&rf=LaDigue_1024x768.jpg "红绿金刚鹦鹉")
+[下载1080](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红绿金刚鹦鹉")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_UHD.jpg&rf=LaDigue_UHD.jpg "红绿金刚鹦鹉")
