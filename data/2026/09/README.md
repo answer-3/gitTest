@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1024x768.jpg&rf=LaDigue_1024x768.jpg "红绿金刚鹦鹉")
 [下载1080](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红绿金刚鹦鹉")
 [下载UHD](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_UHD.jpg&rf=LaDigue_UHD.jpg "红绿金刚鹦鹉")
+
+
+---
+### 2026 9月 16：北极的新晋探索者
+#### 斯瓦尔巴群岛玩耍的北极熊幼崽，挪威（© Danny Green/Nature Picture Library）
+![北极的新晋探索者](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_800x480.jpg&rf=LaDigue_800x480.jpg "北极的新晋探索者")
+两只北极熊幼崽小心翼翼地穿行在斯瓦尔巴群岛的雪地上；这片偏远的挪威群岛深入北冰洋腹地，由冰川、山脉和冰封峡湾构成。这片荒野属于巴伦支海地区，生活着全球最大的北极熊种群之一，约有2,600只。
+
+在经历了约一个世纪的大规模捕猎后，斯瓦尔巴群岛的北极熊自1973年起受到保护。
+
+[下载480](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_800x480.jpg&rf=LaDigue_800x480.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
+[下载720](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
+[下载1080](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
+[下载UHD](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg&rf=LaDigue_UHD.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
