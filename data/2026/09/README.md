@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
 [下载1080](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
 [下载UHD](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg&rf=LaDigue_UHD.jpg "斯瓦尔巴群岛玩耍的北极熊幼崽，挪威")
+
+
+---
+### 2026 9月 17：为丰收举杯
+#### 桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国（© Marco Bottigelli/Getty Images）
+![为丰收举杯](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_800x480.jpg&rf=LaDigue_800x480.jpg "为丰收举杯")
+每年夏末秋初，法国最令人期待的传统之一——“vendanges”葡萄采摘季——如期而至。采摘时间因葡萄酒产区而异，并取决于天气状况、日照以及果实的成熟度。对许多葡萄园而言，采收仍主要依靠人工，工作人员会仔细挑选一串串葡萄，用于酿造法国一些最负盛名的葡萄酒。
+
+索林风车是伯恩丘现存最后一座仍可运转的公共风车；这座19世纪风车于1995年得到忠实修复。
+
+[下载480](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_800x480.jpg&rf=LaDigue_800x480.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
+[下载720](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1024x768.jpg&rf=LaDigue_1024x768.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg&rf=LaDigue_UHD.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
