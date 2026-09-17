@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1024x768.jpg&rf=LaDigue_1024x768.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg&rf=LaDigue_UHD.jpg "桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国")
+
+
+---
+### 2026 9月 18：穿越山口腹地
+#### 温纳茨山口，峰区国家公园，英格兰（© Daniel_Kay/Getty Images）
+![穿越山口腹地](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_800x480.jpg&rf=LaDigue_800x480.jpg "穿越山口腹地")
+在英格兰峰区，一条蜿蜒的长路从已有3亿多年历史的岩石间穿过。如此漫长的地质时间尺度本就令人惊叹，而这条路还穿越了温纳茨山口：这是一道狭窄的石灰岩峡谷，高耸的峭壁展现出远古海洋曾经覆盖英国这一地区的痕迹。
+
+温纳茨山口是峰区国家公园内一处壮观的石灰岩峡谷，位于卡斯尔顿附近，两侧峭壁陡峻嶙峋。
+
+[下载480](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_800x480.jpg&rf=LaDigue_800x480.jpg "温纳茨山口，峰区国家公园，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1024x768.jpg&rf=LaDigue_1024x768.jpg "温纳茨山口，峰区国家公园，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温纳茨山口，峰区国家公园，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg&rf=LaDigue_UHD.jpg "温纳茨山口，峰区国家公园，英格兰")
