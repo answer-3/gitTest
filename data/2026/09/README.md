@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1024x768.jpg&rf=LaDigue_1024x768.jpg "温纳茨山口，峰区国家公园，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "温纳茨山口，峰区国家公园，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg&rf=LaDigue_UHD.jpg "温纳茨山口，峰区国家公园，英格兰")
+
+
+---
+### 2026 9月 19：慕尼黑啤酒节的阿尔卑斯之声
+#### 阿尔卑斯长号演奏者，巴伐利亚州，德国（© U. J. Alexander/Shutterstock）
+![慕尼黑啤酒节的阿尔卑斯之声](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_800x480.jpg&rf=LaDigue_800x480.jpg "慕尼黑啤酒节的阿尔卑斯之声")
+慕尼黑啤酒节于今天开幕，抵达德国巴伐利亚州的游客或许会听到一种甚至比这一著名节日本身更古老的声音：阿尔卑斯长号深沉而浑厚的鸣响。这种传统的阿尔卑斯乐器与巴伐利亚、奥地利和瑞士的文化紧密相连；过去，牧羊人曾用它跨越山谷彼此传递信息。
+
+已知最早提及瑞士阿尔卑斯长号的文字记录可追溯至1527年，见于圣乌尔班修道院的账簿。
+
+[下载480](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_800x480.jpg&rf=LaDigue_800x480.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
