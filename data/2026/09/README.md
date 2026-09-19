@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
 [下载1080](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔卑斯长号演奏者，巴伐利亚州，德国")
+
+
+---
+### 2026 9月 20：终获巴黎青睐的铁塔
+#### 日落时分的埃菲尔铁塔，巴黎，法国（© Alexander Spatari/Getty Images）
+![终获巴黎青睐的铁塔](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_800x480.jpg&rf=LaDigue_800x480.jpg "终获巴黎青睐的铁塔")
+几乎没有哪座城市像巴黎这样被赋予如此多的浪漫想象。然而，这座法国首都的历史并非始终像埃菲尔铁塔背后的落日霞光一样绚丽。铁塔为1889年世界博览会而建；这届世博会纪念法国大革命爆发一百周年，而铁塔最初计划作为博览会入口处的核心建筑。由工程师古斯塔夫·埃菲尔及其团队设计的这座钢铁地标，从战神广场拔地而起，高度接近1,000英尺，并成为当时世界上最高的建筑。
+
+如今埃菲尔铁塔高330米；2022年安装一根新的数字广播天线后，塔身增高了6米。
+
+[下载480](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_800x480.jpg&rf=LaDigue_800x480.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
