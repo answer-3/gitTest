@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg&rf=LaDigue_UHD.jpg "日落时分的埃菲尔铁塔，巴黎，法国")
+
+
+---
+### 2026 9月 21：皮毛与海洋之间的生命
+#### 正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国（© Suzi Eszterhas/Minden Pictures）
+![皮毛与海洋之间的生命](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_800x480.jpg&rf=LaDigue_800x480.jpg "皮毛与海洋之间的生命")
+很少有动物既能称得上梳理皮毛的高手，又是水下森林的守护者。正因如此，每年9月最后一个完整周举行的海獭认知周鼓励人们进一步了解这些非凡的海洋哺乳动物，以及它们面临的种种挑战。
+
+海獭每平方英寸可长有多达100万根毛，因此拥有所有哺乳动物中最浓密的皮毛。
+
+[下载480](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_800x480.jpg&rf=LaDigue_800x480.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_1024x768.jpg&rf=LaDigue_1024x768.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg&rf=LaDigue_UHD.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
