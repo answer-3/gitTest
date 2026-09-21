@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_1024x768.jpg&rf=LaDigue_1024x768.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg&rf=LaDigue_UHD.jpg "正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国")
+
+
+---
+### 2026 9月 22：金色时节
+#### 瓜兹曼山口附近的秋日山杨林，犹他州，美国（© Danita Delimont/Shutterstock）
+![金色时节](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_800x480.jpg&rf=LaDigue_800x480.jpg "金色时节")
+在犹他州瓜兹曼山口附近，季节的变化以金色写满山坡。为美国西部染上色彩的山杨中，有许多是美洲山杨——北美分布最广的本土树种。眼前看似由一棵棵独立树木组成的森林，往往有着截然不同的真相：许多山杨形成彼此相连的无性系群落，树干从共享的根系网络中长出，并与相邻树干拥有相同的遗传密码。
+
+犹他州的“潘多”（Pando）颤杨林被认为是世界上最大且最古老的生物体之一；它由超过40,000棵基因完全相同的树干组成，这些树干通过一个延伸超过100英亩的巨大地下根系紧密相连。
+
+[下载480](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_800x480.jpg&rf=LaDigue_800x480.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg&rf=LaDigue_UHD.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
