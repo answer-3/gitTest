@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1024x768.jpg&rf=LaDigue_1024x768.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg&rf=LaDigue_UHD.jpg "瓜兹曼山口附近的秋日山杨林，犹他州，美国")
+
+
+---
+### 2026 9月 23：金秋平分，地坛染黄
+#### 地坛公园秋日美景，北京，中国（© by Wei/Adobestock）
+![金秋平分，地坛染黄](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_800x480.jpg&rf=LaDigue_800x480.jpg "金秋平分，地坛染黄")
+金色地毯通常只出现在童话世界里，但在金秋时节的北京，它们却铺展在你的脚下。地坛公园（方泽坛）著名的银杏大道汇聚了200多株历史悠久的银杏树。每当秋风掠过，数以万计的扇形金叶翩翩飘落，将这座古老的皇家坛庙铺垫成一片如梦似幻的金黄海洋。
+
+秋分标志着昼夜平分，也预示着老北京最美丽的仲秋金色画卷正式展开。
+
+[下载480](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_800x480.jpg&rf=LaDigue_800x480.jpg "地坛公园秋日美景，北京，中国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1024x768.jpg&rf=LaDigue_1024x768.jpg "地坛公园秋日美景，北京，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地坛公园秋日美景，北京，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg&rf=LaDigue_UHD.jpg "地坛公园秋日美景，北京，中国")
