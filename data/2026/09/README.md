@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1024x768.jpg&rf=LaDigue_1024x768.jpg "地坛公园秋日美景，北京，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "地坛公园秋日美景，北京，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg&rf=LaDigue_UHD.jpg "地坛公园秋日美景，北京，中国")
+
+
+---
+### 2026 9月 24：火山灰与浪花相遇
+#### 黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙（© Westend61/Adobe Stock）
+![火山灰与浪花相遇](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_800x480.jpg&rf=LaDigue_800x480.jpg "火山灰与浪花相遇")
+在西班牙加那利群岛的兰萨罗特岛，大自然的地质创造力尽情挥洒。赭黄与铁锈色条纹交错的悬崖之下，深色沙滩与大西洋相接，这是延续数百万年的火山活动留下的杰作。这段地质故事中有一章发生在距今并不久远的年代：1730年至1736年间，兰萨罗特岛各处出现了众多火山喷口，熔岩覆盖数十平方英里的土地，掩埋了道路、村庄和农田。
+
+兰萨罗特岛与奇尼霍群岛共同构成一座联合国教科文组织世界地质公园，范围涵盖陆地及周边海域。
+
+[下载480](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_800x480.jpg&rf=LaDigue_800x480.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_1024x768.jpg&rf=LaDigue_1024x768.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_UHD.jpg&rf=LaDigue_UHD.jpg "黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙")
