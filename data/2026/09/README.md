@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_1024x768.jpg&rf=LaDigue_1024x768.jpg "庆祝中秋节的中国灯笼")
 [下载1080](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "庆祝中秋节的中国灯笼")
 [下载UHD](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg&rf=LaDigue_UHD.jpg "庆祝中秋节的中国灯笼")
+
+
+---
+### 2026 9月 26：写在大地上的故事
+#### 熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国（© Jeff Clay/Tandem Stills + Motion）
+![写在大地上的故事](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_800x480.jpg&rf=LaDigue_800x480.jpg "写在大地上的故事")
+熊的耳朵、着火的房屋和遍布急转弯的道路有什么共同之处？它们都是犹他州东南部公共土地故事的一部分。
+
+熊耳委员会汇集五个部落民族，共同参与指导这座国家纪念区的管理与保护。
+
+[下载480](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_800x480.jpg&rf=LaDigue_800x480.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_1024x768.jpg&rf=LaDigue_1024x768.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_UHD.jpg&rf=LaDigue_UHD.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
