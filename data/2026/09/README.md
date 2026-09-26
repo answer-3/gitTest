@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_1024x768.jpg&rf=LaDigue_1024x768.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_UHD.jpg&rf=LaDigue_UHD.jpg "熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国")
+
+
+---
+### 2026 9月 27：深海夜花园
+#### 海笔上的装饰蟹，科莫多国家公园，印度尼西亚（© Alex Mustard/Nature Picture Library）
+![深海夜花园](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_800x480.jpg&rf=LaDigue_800x480.jpg "深海夜花园")
+不妨把这看作一场水下捉迷藏：海笔格外醒目，螃蟹却融入其中。今天的图片拍摄于印度尼西亚科莫多国家公园周边水域。该公园成立于1980年，以世界上现存最大的蜥蜴科莫多巨蜥命名。这片保护区包括岛屿、红树林、海草床和珊瑚礁。公园位于太平洋与印度洋之间，强劲洋流塑造了这里的生态环境，孕育出丰富多样的海洋生物，其中也包括依靠伪装生存的物种。
+
+科莫多国家公园于1991年被列入联合国教科文组织《世界遗产名录》。
+
+[下载480](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_800x480.jpg&rf=LaDigue_800x480.jpg "海笔上的装饰蟹，科莫多国家公园，印度尼西亚")
+[下载720](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_1024x768.jpg&rf=LaDigue_1024x768.jpg "海笔上的装饰蟹，科莫多国家公园，印度尼西亚")
+[下载1080](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海笔上的装饰蟹，科莫多国家公园，印度尼西亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_UHD.jpg&rf=LaDigue_UHD.jpg "海笔上的装饰蟹，科莫多国家公园，印度尼西亚")
