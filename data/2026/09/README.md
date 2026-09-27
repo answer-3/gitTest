@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_1024x768.jpg&rf=LaDigue_1024x768.jpg "海笔上的装饰蟹，科莫多国家公园，印度尼西亚")
 [下载1080](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "海笔上的装饰蟹，科莫多国家公园，印度尼西亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_UHD.jpg&rf=LaDigue_UHD.jpg "海笔上的装饰蟹，科莫多国家公园，印度尼西亚")
+
+
+---
+### 2026 9月 28：可览美景的历史胜地
+#### 斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度（© R.M. Nunes/Getty Images）
+![可览美景的历史胜地](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_800x480.jpg&rf=LaDigue_800x480.jpg "可览美景的历史胜地")
+大多数初次到访印度拉贾斯坦邦斋浦尔的游客都知道这座城市有“粉红之城”的美誉，但更早的王都以琥珀堡为中心。这个王朝的大部分政治与建筑史正是在那里书写的。琥珀堡的营建历时一个多世纪，始于1592年拉贾·曼·辛格一世统治时期，之后由历代卡奇瓦哈统治者续建；他们统治的王国后来成为斋浦尔土邦。王室于 1727 年迁往新规划的斋浦尔城，但琥珀堡仍继续承担礼仪功能。
+
+琥珀堡是联合国教科文组织世界遗产“拉贾斯坦邦的山地要塞”所包含的六座堡垒之一；该遗产于 2013 年列入《世界遗产名录》。
+
+[下载480](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_800x480.jpg&rf=LaDigue_800x480.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_1024x768.jpg&rf=LaDigue_1024x768.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_UHD.jpg&rf=LaDigue_UHD.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
