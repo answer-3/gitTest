@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_1024x768.jpg&rf=LaDigue_1024x768.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_UHD.jpg&rf=LaDigue_UHD.jpg "斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度")
+
+
+---
+### 2026 9月 29：冰川孕育之河
+#### 卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国（© jared lloyd/Getty Images）
+![冰川孕育之河](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_800x480.jpg&rf=LaDigue_800x480.jpg "冰川孕育之河")
+从空中俯瞰，卡西洛夫河宛如一条绿松石色的丝带，蜿蜒穿过阿拉斯加州的基奈半岛。鲜艳的蓝色河水源于从图斯图梅纳湖向下游输送的冰川粉砂；该湖是阿拉斯加州最大的淡水湖之一。河流全长约17英里，最终注入库克湾。它虽比著名的邻河基奈河短，却同样不同凡响。
+
+卡西洛夫河畔的克鲁克德溪州立休闲地在 5 月和 6 月最受欢迎，此时游客可从河岸垂钓帝王鲑。
+
+[下载480](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_800x480.jpg&rf=LaDigue_800x480.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
