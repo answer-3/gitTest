@@ -404,3 +404,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1024x768.jpg&rf=LaDigue_1024x768.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg "卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国")
+
+
+---
+### 2026 9月 30：一张令人过目难忘的脸
+#### 雄性文须雀，诺福克郡，英格兰（© Andrew Sproule/Shutterstock）
+![一张令人过目难忘的脸](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_800x480.jpg&rf=LaDigue_800x480.jpg "一张令人过目难忘的脸")
+在英格兰诺福克郡，一只雄性文须雀稳稳地立在纤细的茎秆上。今天图片中的它有着浅蓝灰色的头部、亮橙色的喙，以及令这个物种得名的黑色面部斑纹，格外引人注目。尽管外表醒目，这种小鸟一生中的大部分时间却藏身于沼泽、湖岸和芦苇荡茂密的湿地植被中。
+
+文须雀广泛分布于欧洲和亚洲，从英国的湿地一直延伸到中亚和东亚的芦苇荡。
+
+[下载480](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_800x480.jpg&rf=LaDigue_800x480.jpg "雄性文须雀，诺福克郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1024x768.jpg&rf=LaDigue_1024x768.jpg "雄性文须雀，诺福克郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雄性文须雀，诺福克郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&rf=LaDigue_UHD.jpg "雄性文须雀，诺福克郡，英格兰")
