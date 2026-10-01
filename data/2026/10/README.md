@@ -12,3 +12,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_1024x768.jpg&rf=LaDigue_1024x768.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg&rf=LaDigue_UHD.jpg "奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国")
+
+
+---
+### 2026 10月 2：一条值得保护的河流
+#### 查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国（© mtilghma/Getty Images）
+![一条值得保护的河流](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_800x480.jpg&rf=LaDigue_800x480.jpg "一条值得保护的河流")
+长期以来，河流在美国各地的生活中发挥着重要作用，为社区、野生动物和工业提供支持。1968年10月2日，林登·B·约翰逊总统签署《野生与风景河流法》，使其成为法律。该法建立了一个国家体系，用于保护具有卓越景观、休闲、地质、鱼类和野生动物、历史或文化价值的河流及河段。该法使指定河流保持自由流动状态，保护其水质，并旨在守护使它们值得获此指定的特质。
+
+查图加河在约50英里的流程中平均每英里下降49英尺，最终流入图加卢湖。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_800x480.jpg&rf=LaDigue_800x480.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_1024x768.jpg&rf=LaDigue_1024x768.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg "查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国")
