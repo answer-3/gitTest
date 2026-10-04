@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_1024x768.jpg&rf=LaDigue_1024x768.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
 [下载1080](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
 [下载UHD](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_UHD.jpg&rf=LaDigue_UHD.jpg "阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日")
+
+
+---
+### 2026 10月 5：纵身一跃，一次一课
+#### 南极洲的阿德利企鹅（© Otto Plantema/Minden Pictures）
+![纵身一跃，一次一课](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_800x480.jpg&rf=LaDigue_800x480.jpg "纵身一跃，一次一课")
+一只身高28英寸的鸟能教给我们哪些人生道理？非常多。在世界教师日这一天，阿德利企鹅带来了一份充满足智多谋、坚韧不拔和些许顽皮的课程计划。这一物种分布于南极海岸，以法国探险家儒勒·迪蒙·迪维尔的妻子阿黛尔之名命名；在1840年的一次远征中，人们发现了这些企鹅。
+
+阿德利企鹅没有牙齿，但它们的舌头和上腭长有被称为乳突的尖锐倒刺。
+
+[下载480](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_800x480.jpg&rf=LaDigue_800x480.jpg "南极洲的阿德利企鹅")
+[下载720](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1024x768.jpg&rf=LaDigue_1024x768.jpg "南极洲的阿德利企鹅")
+[下载1080](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南极洲的阿德利企鹅")
+[下载UHD](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_UHD.jpg&rf=LaDigue_UHD.jpg "南极洲的阿德利企鹅")
