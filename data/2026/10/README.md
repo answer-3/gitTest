@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1024x768.jpg&rf=LaDigue_1024x768.jpg "南极洲的阿德利企鹅")
 [下载1080](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "南极洲的阿德利企鹅")
 [下载UHD](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_UHD.jpg&rf=LaDigue_UHD.jpg "南极洲的阿德利企鹅")
+
+
+---
+### 2026 10月 6：条纹中的地球故事
+#### 丹霞地貌，张掖国家地质公园，甘肃省，中国（© Weiquan Lin/Getty Images）
+![条纹中的地球故事](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_800x480.jpg&rf=LaDigue_800x480.jpg "条纹中的地球故事")
+如果一座山能用一道道条纹向你展示它的地质历史，会是什么样？在中国的张掖国家地质公园，岩石正是如此。红色、橙色、黄色、棕色以及其他大地色调的条带在山脊间绵延起伏。这种壮丽景观被称为丹霞地貌，由地质年代中沉积形成的多层沉积岩塑造而成。后来，构造力使岩石抬升并发生褶皱，而风化和侵蚀则将它们雕琢成山脊、峭壁、沟壑和山峰。
+
+张掖地质公园拥有577处文化遗址，展现当地历史及包括裕固族在内的多个族群文化。
+
+[下载480](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_800x480.jpg&rf=LaDigue_800x480.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1024x768.jpg&rf=LaDigue_1024x768.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg&rf=LaDigue_UHD.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
