@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1024x768.jpg&rf=LaDigue_1024x768.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg&rf=LaDigue_UHD.jpg "丹霞地貌，张掖国家地质公园，甘肃省，中国")
+
+
+---
+### 2026 10月 7：迷惑不解？沿着小径走
+#### 覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰（© Fulcanelli_AOS/Getty Images）
+![迷惑不解？沿着小径走](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_800x480.jpg&rf=LaDigue_800x480.jpg "迷惑不解？沿着小径走")
+如果一片森林能让你每转一个弯都捉摸不透，会是什么样？英国格洛斯特郡谜林位于英格兰迪恩森林的科尔福德附近，蜿蜒的小径穿过扭曲的树木、覆满苔藓的岩石和幽深的石质沟壑。这里不同寻常的岩层被称为“斯科尔斯”，是一种天然地质特征，随着时间推移逐渐裸露并发生改变，后来在罗马时期、甚至可能在更早以前被人们开采铁矿石。1848年，一名工人在一个岩洞内的陶罐中发现了3,000多枚罗马时代的钱币，使这片林地变成了一场现实中的寻宝之旅。
+
+英国格洛斯特郡谜林位于迪恩森林，是极为罕见的内陆温带雨林生态系统残片。
+
+[下载480](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_800x480.jpg&rf=LaDigue_800x480.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1024x768.jpg&rf=LaDigue_1024x768.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg&rf=LaDigue_UHD.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
