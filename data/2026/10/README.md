@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1024x768.jpg&rf=LaDigue_1024x768.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg&rf=LaDigue_UHD.jpg "覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰")
+
+
+---
+### 2026 10月 8：现在你“海”能看见我……
+#### 印度洋马约特岛，一只呈防御姿态的章鱼（© Gabriel Barathieu/Minden Pictures）
+![现在你“海”能看见我……](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_800x480.jpg&rf=LaDigue_800x480.jpg "现在你“海”能看见我……")
+显然有什么东西越界了。在印度洋马约特岛近海，这只章鱼摆出了一副防御姿态，仿佛在说：无论是什么正在靠近，都该重新考虑一下自己的生命选择。
+
+章鱼的化学触觉受体由古老的神经递质受体演化而来，并能检测难溶性分子。
+
+[下载480](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_800x480.jpg&rf=LaDigue_800x480.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
+[下载720](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_1024x768.jpg&rf=LaDigue_1024x768.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
+[下载1080](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
+[下载UHD](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
