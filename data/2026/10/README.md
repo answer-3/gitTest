@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_1024x768.jpg&rf=LaDigue_1024x768.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
 [下载1080](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
 [下载UHD](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_UHD.jpg&rf=LaDigue_UHD.jpg "印度洋马约特岛，一只呈防御姿态的章鱼")
+
+
+---
+### 2026 10月 9：科西嘉岛的岩石前哨
+#### 桑吉奈尔群岛景观，摄自科西嘉岛，法国（© Francesco Riccardo Iacomino/Getty Images）
+![科西嘉岛的岩石前哨](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_800x480.jpg&rf=LaDigue_800x480.jpg "科西嘉岛的岩石前哨")
+桑吉奈尔群岛就在法国科西嘉岛近海，从地中海中拔地而起，是一个由四座崎岖岩石岛屿组成的小型群岛。从一座历史悠久的瞭望塔望去，它们坐落在阿雅克肖湾的入口处。陡峭的悬崖、历经数百年的地标和开阔的海景，世世代代吸引着游客来到这一地区。尽管最远的岛屿距离海岸仅约1.2英里，但这片群岛给人的感觉却出奇地偏远：它四周被开阔水域环绕，并受到风、海浪和盐雾的塑造。
+
+建造桑吉奈尔灯塔时，石料必须用驳船运到岛上，再从岩石海岸吊运上去。
+
+[下载480](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_800x480.jpg&rf=LaDigue_800x480.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
+[下载720](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_1024x768.jpg&rf=LaDigue_1024x768.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg&rf=LaDigue_UHD.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
