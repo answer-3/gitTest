@@ -124,3 +124,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_1024x768.jpg&rf=LaDigue_1024x768.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg&rf=LaDigue_UHD.jpg "桑吉奈尔群岛景观，摄自科西嘉岛，法国")
+
+
+---
+### 2026 10月 10：迁飞路线上的生命
+#### 蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国（© Hiroya Minakuchi/Minden Pictures）
+![迁飞路线上的生命](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_800x480.jpg&rf=LaDigue_800x480.jpg "迁飞路线上的生命")
+世界候鸟日旨在庆祝大自然最壮观的旅程之一。这项全球性活动于每年5月和10月举行，反映世界各地的迁徙模式，并强调保护鸟类赖以生存的栖息地和迁飞路线的重要性。“每一只鸟都很重要——您的观察至关重要！”是2026年的主题，着重说明个人和社区的观察可以如何为鸟类研究、监测和保护贡献力量，帮助科学家更好地了解迁徙。
+
+鸟类迁徙可以采取多种形式：有些鸟向北或向南迁徙，而另一些则迁往不同海拔或不同栖息地。
+
+[下载480](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_800x480.jpg&rf=LaDigue_800x480.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_UHD.jpg&rf=LaDigue_UHD.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
