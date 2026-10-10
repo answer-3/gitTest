@@ -138,3 +138,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_1024x768.jpg&rf=LaDigue_1024x768.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_UHD.jpg&rf=LaDigue_UHD.jpg "蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国")
+
+
+---
+### 2026 10月 11：秋色中转动的水轮
+#### 格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国（© dszc/Getty Images）
+![秋色中转动的水轮](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_800x480.jpg&rf=LaDigue_800x480.jpg "秋色中转动的水轮")
+格莱德溪磨坊坐落在西弗吉尼亚州巴布科克州立公园内格莱德溪的岩石水域上方，周围红色、橙色和金色交错。尽管它看起来像是拓荒时代的遗迹，但这座磨坊实际上是为致敬阿巴拉契亚地区的磨坊传统而精心建造的。
+
+20世纪30年代，民间资源保护队的海狸营和李营共同参与了巴布科克州立公园的建设。
+
+[下载480](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_800x480.jpg&rf=LaDigue_800x480.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_1024x768.jpg&rf=LaDigue_1024x768.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_UHD.jpg&rf=LaDigue_UHD.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
