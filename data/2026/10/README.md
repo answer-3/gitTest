@@ -152,3 +152,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_1024x768.jpg&rf=LaDigue_1024x768.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_UHD.jpg&rf=LaDigue_UHD.jpg "格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国")
+
+
+---
+### 2026 10月 12：从铁轨到潮汐
+#### 曼布尔斯码头，斯旺西，威尔士（© Helen Hotson/Shutterstock）
+![从铁轨到潮汐](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_800x480.jpg&rf=LaDigue_800x480.jpg "从铁轨到潮汐")
+当铁路、救生艇站和海滨一日游在水边相遇，会得到什么？答案是曼布尔斯码头。这座维多利亚时代的地标向斯旺西湾延伸255米，于1898年5月10日开放，自此一直是威尔士海岸的一部分。
+
+曼布尔斯铁路曾在车厢上安装风帆，短暂试验以风力驱动车辆，但这项尝试并未持续多久。
+
+[下载480](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_800x480.jpg&rf=LaDigue_800x480.jpg "曼布尔斯码头，斯旺西，威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_1024x768.jpg&rf=LaDigue_1024x768.jpg "曼布尔斯码头，斯旺西，威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼布尔斯码头，斯旺西，威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_UHD.jpg&rf=LaDigue_UHD.jpg "曼布尔斯码头，斯旺西，威尔士")
