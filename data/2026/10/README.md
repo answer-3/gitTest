@@ -166,3 +166,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_1024x768.jpg&rf=LaDigue_1024x768.jpg "曼布尔斯码头，斯旺西，威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "曼布尔斯码头，斯旺西，威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_UHD.jpg&rf=LaDigue_UHD.jpg "曼布尔斯码头，斯旺西，威尔士")
+
+
+---
+### 2026 10月 13：蓝与绿的交响曲
+#### 普利特维采湖群国家公园，克罗地亚（© Jan Wlodarczyk/Alamy）
+![蓝与绿的交响曲](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_800x480.jpg&rf=LaDigue_800x480.jpg "蓝与绿的交响曲")
+在克罗地亚的普利特维采湖群国家公园，水似乎无处不在。十六个阶梯状湖泊由瀑布、溪流和层叠而下的水流组成的网络连接起来，蜿蜒穿过森林覆盖的石灰岩峡谷。湖水的颜色不断变化，从翠绿到深蓝不等，这是由矿物质、阳光和不断变化的倒影共同造就的。普利特维采湖群国家公园成立于1949年，是克罗地亚历史最悠久、面积最大的国家公园。这里以石灰华屏障闻名，这种天然石灰岩构造是富含矿物质的水在数百年间沉积碳酸钙形成的。这些屏障仍在继续生长和变化，逐渐改变着公园内的瀑布和湖泊。
+
+普利特维采拥有84公顷的山毛榉和冷杉原始林，也是棕熊、灰狼和猞猁的家园。
+
+[下载480](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_800x480.jpg&rf=LaDigue_800x480.jpg "普利特维采湖群国家公园，克罗地亚")
+[下载720](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1024x768.jpg&rf=LaDigue_1024x768.jpg "普利特维采湖群国家公园，克罗地亚")
+[下载1080](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普利特维采湖群国家公园，克罗地亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_UHD.jpg&rf=LaDigue_UHD.jpg "普利特维采湖群国家公园，克罗地亚")
