@@ -180,3 +180,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1024x768.jpg&rf=LaDigue_1024x768.jpg "普利特维采湖群国家公园，克罗地亚")
 [下载1080](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "普利特维采湖群国家公园，克罗地亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_UHD.jpg&rf=LaDigue_UHD.jpg "普利特维采湖群国家公园，克罗地亚")
+
+
+---
+### 2026 10月 14：穿越时间的螺旋
+#### 侏罗纪时期的菊石化石（© J Nemchinova/Getty Images）
+![穿越时间的螺旋](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_800x480.jpg&rf=LaDigue_800x480.jpg "穿越时间的螺旋")
+我们如何知道早在人类出现之前地球是什么样子？化石提供了许多线索。国家化石日旨在赞颂古生物学，以及那些帮助科学家重建过去环境、追溯生命演化并了解数百万年前消失生物的发现。从恐龙到微小的海洋生物，这些过去的遗存保存着早已不复存在的远古世界的一个个瞬间。
+
+化石不一定非得是骨骼。足迹、洞道、巢穴以及古代生命留下的其他痕迹也可以成为化石。
+
+[下载480](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_800x480.jpg&rf=LaDigue_800x480.jpg "侏罗纪时期的菊石化石")
+[下载720](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_1024x768.jpg&rf=LaDigue_1024x768.jpg "侏罗纪时期的菊石化石")
+[下载1080](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "侏罗纪时期的菊石化石")
+[下载UHD](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_UHD.jpg&rf=LaDigue_UHD.jpg "侏罗纪时期的菊石化石")
