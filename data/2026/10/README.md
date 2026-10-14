@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_1024x768.jpg&rf=LaDigue_1024x768.jpg "侏罗纪时期的菊石化石")
 [下载1080](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "侏罗纪时期的菊石化石")
 [下载UHD](https://cn.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_UHD.jpg&rf=LaDigue_UHD.jpg "侏罗纪时期的菊石化石")
+
+
+---
+### 2026 10月 15：桥梁、屋顶与暮色
+#### 弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰（© Piotr Mitelski/Shutterstock）
+![桥梁、屋顶与暮色](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_800x480.jpg&rf=LaDigue_800x480.jpg "桥梁、屋顶与暮色")
+暮色降临弗罗茨瓦夫，金色光芒洒满屋顶、教堂塔楼和中欧最引人注目的历史中心之一。这座位于波兰西南部的城市横跨多座岛屿和水道，由100多座桥梁连接，将中世纪建筑与充满活力的现代生活融为一体。城市中心是热闹的雷内克(Rynek)集市广场，该广场建于13世纪，哥特式老市政厅便坐落于此，它是弗罗茨瓦夫最易辨认的地标之一。
+
+弗罗茨瓦夫百年厅于1913年建成时，拥有当时世界上最大的钢筋混凝土穹顶。
+
+[下载480](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_800x480.jpg&rf=LaDigue_800x480.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
+[下载720](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_1024x768.jpg&rf=LaDigue_1024x768.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
+[下载1080](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg&rf=LaDigue_UHD.jpg "弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰")
