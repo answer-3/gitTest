@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_1024x768.jpg&rf=LaDigue_1024x768.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_UHD.jpg&rf=LaDigue_UHD.jpg "斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国")
+
+
+---
+### 2026 10月 17：发掘尘封的过去
+#### 肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国（© Audrey Poree/Alamy）
+![发掘尘封的过去](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_800x480.jpg&rf=LaDigue_800x480.jpg "发掘尘封的过去")
+有些发现始于一把铲子，另一些则始于洞穴墙壁上的一幅图画。国际考古日既颂扬抽丝剥茧般的考古工作，也重视支撑发现的证据。这项年度活动由美国考古学会主办，始于2011年；随着参与范围扩展至全球，活动于2013年更名为“国际考古日”。如今，它通过讲座、博物馆项目、遗址参观、模拟发掘和动手实践活动，让公众更加贴近考古学。
+
+肖维岩洞保存着一名史前青少年的足迹，大约3万年前，这名青少年曾赤脚走过洞内通道。
+
+[下载480](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_800x480.jpg&rf=LaDigue_800x480.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
+[下载720](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_1024x768.jpg&rf=LaDigue_1024x768.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
+[下载1080](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
+[下载UHD](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_UHD.jpg&rf=LaDigue_UHD.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
