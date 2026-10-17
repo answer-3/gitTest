@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_1024x768.jpg&rf=LaDigue_1024x768.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
 [下载1080](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
 [下载UHD](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_UHD.jpg&rf=LaDigue_UHD.jpg "肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国")
+
+
+---
+### 2026 10月 18：75载，风华正茂
+#### 多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士（© joe daniel price/Getty Images）
+![75载，风华正茂](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_800x480.jpg&rf=LaDigue_800x480.jpg "75载，风华正茂")
+如果公园也能写生日手记，威尔士斯诺登尼亚国家公园一定有许多精彩故事可讲。今天是这座公园成立75周年，纪念它于1951年获指定为国家公园。斯诺登尼亚占地823平方英里，拥有九条山脉和74英里海岸线，栖息地类型从泥炭地、原生林地到高地景观不一而足。斯诺登山海拔超过3,500英尺，是斯诺登尼亚的最高点。附近的卡内道山脉和格利德赖山脉群峰耸立，卡代尔伊德里斯山则矗立在南部。这些受保护的景观为野生动物提供了栖息地，其中包括17处国家级自然保护区和56处特殊科学价值地点。
+
+2015年，斯诺登尼亚被认定为国际暗夜保护区，以表彰其卓越的夜空质量和限制光污染的努力。
+
+[下载480](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_800x480.jpg&rf=LaDigue_800x480.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
+[下载720](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1024x768.jpg&rf=LaDigue_1024x768.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
+[下载1080](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
+[下载UHD](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_UHD.jpg&rf=LaDigue_UHD.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
