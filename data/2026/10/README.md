@@ -250,3 +250,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1024x768.jpg&rf=LaDigue_1024x768.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
 [下载1080](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
 [下载UHD](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_UHD.jpg&rf=LaDigue_UHD.jpg "多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士")
+
+
+---
+### 2026 10月 19：水上通衢
+#### 大运河，威尼斯，意大利（© Juan Romero/Cavan Images）
+![水上通衢](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_800x480.jpg&rf=LaDigue_800x480.jpg "水上通衢")
+如果一座城市最繁忙的街道根本没有路，会是什么样？在意大利威尼斯，交通沿着大运河往来。这条长2.4英里的水道以巨大的反S形蜿蜒穿过城市。当地人称它为“大运河”，它是威尼斯主要的水上交通通道，水上巴士、水上出租车、贡多拉、警用艇和其他船只都在此穿行。大运河沿着一条古河道延伸，这条河过去曾流入威尼斯潟湖。
+
+威尼斯及其潟湖于1987年列入联合国教科文组织世界遗产名录，并符合该遗产地全部六项文化标准。
+
+[下载480](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_800x480.jpg&rf=LaDigue_800x480.jpg "大运河，威尼斯，意大利")
+[下载720](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1024x768.jpg&rf=LaDigue_1024x768.jpg "大运河，威尼斯，意大利")
+[下载1080](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河，威尼斯，意大利")
+[下载UHD](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_UHD.jpg&rf=LaDigue_UHD.jpg "大运河，威尼斯，意大利")
