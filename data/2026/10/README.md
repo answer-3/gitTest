@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1024x768.jpg&rf=LaDigue_1024x768.jpg "大运河，威尼斯，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "大运河，威尼斯，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_UHD.jpg&rf=LaDigue_UHD.jpg "大运河，威尼斯，意大利")
+
+
+---
+### 2026 10月 20：慢节奏生活
+#### 褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加（© Suzi Eszterhas/Minden Pictures）
+![慢节奏生活](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_800x480.jpg&rf=LaDigue_800x480.jpg "慢节奏生活")
+稳扎稳打才能赢得比赛——而褐喉三趾树懒似乎很乐意彻底放弃比赛。在国际树懒日，这种三趾哺乳动物为生存之道带来了另一番启示：保存能量，牢牢抓住，慢慢来。
+
+褐喉三趾树懒每天可能睡15至18小时，通常只在夜间短暂活动。
+
+[下载480](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_800x480.jpg&rf=LaDigue_800x480.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
+[下载720](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_1024x768.jpg&rf=LaDigue_1024x768.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
+[下载1080](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
+[下载UHD](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_UHD.jpg&rf=LaDigue_UHD.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
