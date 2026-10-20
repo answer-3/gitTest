@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_1024x768.jpg&rf=LaDigue_1024x768.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
 [下载1080](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
 [下载UHD](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_UHD.jpg&rf=LaDigue_UHD.jpg "褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加")
+
+
+---
+### 2026 10月 21：飞掠河面
+#### 香江上的阮潢桥，顺化，越南（© VU PHAM VAN/Getty Images）
+![飞掠河面](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_800x480.jpg&rf=LaDigue_800x480.jpg "飞掠河面")
+阮潢桥弥合了新旧之间的距离，为顺化的天际线增添了一道崭新的纽带。这座横跨越南香江的现代钢拱地标于2025年3月26日通车。其设计名为“鹤望天姥”，灵感源自当地传说和附近的天姥寺。
+
+阮黄桥长约380米、宽43米，设有六条机动车道和两条人行步道。
+
+[下载480](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_800x480.jpg&rf=LaDigue_800x480.jpg "香江上的阮潢桥，顺化，越南")
+[下载720](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_1024x768.jpg&rf=LaDigue_1024x768.jpg "香江上的阮潢桥，顺化，越南")
+[下载1080](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香江上的阮潢桥，顺化，越南")
+[下载UHD](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_UHD.jpg&rf=LaDigue_UHD.jpg "香江上的阮潢桥，顺化，越南")
