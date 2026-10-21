@@ -292,3 +292,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_1024x768.jpg&rf=LaDigue_1024x768.jpg "香江上的阮潢桥，顺化，越南")
 [下载1080](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "香江上的阮潢桥，顺化，越南")
 [下载UHD](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_UHD.jpg&rf=LaDigue_UHD.jpg "香江上的阮潢桥，顺化，越南")
+
+
+---
+### 2026 10月 22：静水映斑斓
+#### 内藏山国立公园的秋景，韩国（© Twenty47studio/Getty Images）
+![静水映斑斓](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_800x480.jpg&rf=LaDigue_800x480.jpg "静水映斑斓")
+在韩国，很少有地方能像内藏山国立公园一样尽显秋日的魔力，这里的山坡闪耀着猩红、橙色、黄色和金色的绚丽光彩。公园位于韩国西南部，尤以鲜艳的枫叶色彩闻名，是韩国首屈一指的赏秋胜地之一。其名称意为“山中藏有许多秘密”，体现了这一地区丰富多样的景观。
+
+内藏山于1971年获指定，成为韩国第八座国家公园，其山地景观由此受到国家公园制度保护。
+
+[下载480](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_800x480.jpg&rf=LaDigue_800x480.jpg "内藏山国立公园的秋景，韩国")
+[下载720](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_1024x768.jpg&rf=LaDigue_1024x768.jpg "内藏山国立公园的秋景，韩国")
+[下载1080](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "内藏山国立公园的秋景，韩国")
+[下载UHD](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg "内藏山国立公园的秋景，韩国")
