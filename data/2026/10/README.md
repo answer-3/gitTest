@@ -306,3 +306,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_1024x768.jpg&rf=LaDigue_1024x768.jpg "内藏山国立公园的秋景，韩国")
 [下载1080](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "内藏山国立公园的秋景，韩国")
 [下载UHD](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg "内藏山国立公园的秋景，韩国")
+
+
+---
+### 2026 10月 23：荒野伙伴
+#### 两只灰狼，黄石国家公园，怀俄明州，美国（© John Morrison/Getty Images）
+![荒野伙伴](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_800x480.jpg&rf=LaDigue_800x480.jpg "荒野伙伴")
+两只灰狼穿行在怀俄明州黄石国家公园的山艾灌丛中，这里生活着北美洲一些最受密切关注的狼群。厚实的皮毛帮助它们抵御严冬，敏锐的感官则使它们成为技艺高超的猎手和交流者。
+
+灰狼可以通过嚎叫、肢体语言、气味标记以及多种发声方式进行交流，包括吠叫、呜咽和低吼。
+
+[下载480](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_800x480.jpg&rf=LaDigue_800x480.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_1024x768.jpg&rf=LaDigue_1024x768.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_UHD.jpg&rf=LaDigue_UHD.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
