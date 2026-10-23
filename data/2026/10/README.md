@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_1024x768.jpg&rf=LaDigue_1024x768.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_UHD.jpg&rf=LaDigue_UHD.jpg "两只灰狼，黄石国家公园，怀俄明州，美国")
+
+
+---
+### 2026 10月 24：书香里的极致华美
+#### 皇家葡萄牙语阅览室，里约热内卢，巴西（© Antonio Salaverry/Shutterstock）
+![书香里的极致华美](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_800x480.jpg&rf=LaDigue_800x480.jpg "书香里的极致华美")
+今天，我们走进巴西里约热内卢的皇家葡萄牙语阅览室。在这里，翻开一本书这一朴素举动，被赋予了宏伟的建筑抱负。巴西独立仅15年后，43名葡萄牙移民于1837年创办了这家机构；约半个世纪后，机构最终迁入眼前这座以华丽的新曼努埃尔式建成的建筑。书架环绕宽阔的阅览大厅，高逾70英尺；大厅上方覆盖着一扇巨型彩绘玻璃天窗，让自然光也成为设计的一部分。
+
+据场馆官网介绍，皇家葡萄牙语阅览室工作日10时至17时免费开放参观。
+
+[下载480](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_800x480.jpg&rf=LaDigue_800x480.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
+[下载720](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_1024x768.jpg&rf=LaDigue_1024x768.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
+[下载1080](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
+[下载UHD](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_UHD.jpg&rf=LaDigue_UHD.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
