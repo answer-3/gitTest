@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_1024x768.jpg&rf=LaDigue_1024x768.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
 [下载1080](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
 [下载UHD](https://cn.bing.com/th?id=OHR.PortugueseLibrary_ZH-CN7096893027_UHD.jpg&rf=LaDigue_UHD.jpg "皇家葡萄牙语阅览室，里约热内卢，巴西")
+
+
+---
+### 2026 10月 25：群峰与宁静相遇之地
+#### 玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大（© Andrey Popov/Getty Images）
+![群峰与宁静相遇之地](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_800x480.jpg&rf=LaDigue_800x480.jpg "群峰与宁静相遇之地")
+夜幕降临加拿大艾伯塔省的贾斯珀国家公园时，群山便有了全新的背景。该公园于2011年被指定为暗夜天空保护区，面积超过11,000平方千米，并采取了减少光污染的措施。在这里，繁星、行星和银河系联袂上演天幕奇观，让游客不由得仰望天空。晨光到来后，视线又从头顶的天空转向脚下的景致。
+
+据加拿大公园管理局介绍，精灵岛距玛琳湖北岸14公里，只能乘船抵达。
+
+[下载480](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_800x480.jpg&rf=LaDigue_800x480.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
+[下载720](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_1024x768.jpg&rf=LaDigue_1024x768.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
+[下载1080](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
+[下载UHD](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg&rf=LaDigue_UHD.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
