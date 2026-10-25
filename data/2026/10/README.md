@@ -348,3 +348,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_1024x768.jpg&rf=LaDigue_1024x768.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
 [下载1080](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
 [下载UHD](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg&rf=LaDigue_UHD.jpg "玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大")
+
+
+---
+### 2026 10月 26：大自然的秋日乐章
+#### 秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚（© Nadya85/Getty Images）
+![大自然的秋日乐章](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的秋日乐章")
+在保加利亚的西罗多彼山脉，秋叶汇聚在奔腾的西托沃瀑布旁。瀑布位于普罗夫迪夫西南方向的西托沃村附近，从一座古老石桥下倾泻而下；桥拱如画框般圈住飞瀑，宛若童话书中的场景。覆满苔藓的石头和松树为秋日景观添上层层绿意，落叶则堆积在水边，或漂过一汪汪水潭。雨后和春季融雪期间，瀑布尤其奔涌欢腾，湍急水声回荡在周围的林地间。
+
+西罗多彼山脉被认定为关键生物多样性区域，这是对全球生物多样性至关重要地点的一项全球认定。
+
+[下载480](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_800x480.jpg&rf=LaDigue_800x480.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
+[下载720](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
+[下载1080](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
+[下载UHD](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg&rf=LaDigue_UHD.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
