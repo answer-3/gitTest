@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
 [下载1080](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
 [下载UHD](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg&rf=LaDigue_UHD.jpg "秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚")
+
+
+---
+### 2026 10月 27：大自然的金色明镜
+#### 秋叶缤纷的池杉林，乔治亚州，美国（© Chris Moore/Getty Images）
+![大自然的金色明镜](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_800x480.jpg&rf=LaDigue_800x480.jpg "大自然的金色明镜")
+这片池杉林倒映在平静的水面上，在落日余晖中熠熠生辉，呈现出色彩与对称之美，令人叹为观止。池杉原产于美国东南部，通常生长在浅水池塘、洼地和湿地生境中。这张照片拍摄于乔治亚州，当地的奥克弗诺基沼泽及其他低洼湿地中均可见这些树木。
+
+池杉会长出被称为“膝根”的瘤状根部结构，高出树木周围的水面或土壤。
+
+[下载480](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_800x480.jpg&rf=LaDigue_800x480.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_UHD.jpg&rf=LaDigue_UHD.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
