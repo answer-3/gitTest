@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1024x768.jpg&rf=LaDigue_1024x768.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_UHD.jpg&rf=LaDigue_UHD.jpg "秋叶缤纷的池杉林，乔治亚州，美国")
+
+
+---
+### 2026 10月 28：历史守望之地
+#### 库涅季采山城堡，波希米亚，捷克（© Marek Saroch/Alamy）
+![历史守望之地](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_800x480.jpg&rf=LaDigue_800x480.jpg "历史守望之地")
+这些城墙会讲述怎样的故事？库涅季采山城堡高踞于捷克波希米亚东部，见证了数百年的历史。城堡的历史可追溯至14世纪末，后来逐渐发展为一座宏伟的要塞和贵族宅邸。它地势高耸，可俯瞰周围乡野，也因此成为一处重要据点。
+
+1645年，一支瑞典军队攻占库涅季采山城堡，并在撤离前将其焚毁，加速了城堡此后的长期衰败。
+
+[下载480](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_800x480.jpg&rf=LaDigue_800x480.jpg "库涅季采山城堡，波希米亚，捷克")
+[下载720](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1024x768.jpg&rf=LaDigue_1024x768.jpg "库涅季采山城堡，波希米亚，捷克")
+[下载1080](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库涅季采山城堡，波希米亚，捷克")
+[下载UHD](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg&rf=LaDigue_UHD.jpg "库涅季采山城堡，波希米亚，捷克")
