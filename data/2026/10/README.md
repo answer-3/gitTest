@@ -390,3 +390,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1024x768.jpg&rf=LaDigue_1024x768.jpg "库涅季采山城堡，波希米亚，捷克")
 [下载1080](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "库涅季采山城堡，波希米亚，捷克")
 [下载UHD](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg&rf=LaDigue_UHD.jpg "库涅季采山城堡，波希米亚，捷克")
+
+
+---
+### 2026 10月 29：薄雾邂逅千年时光
+#### 立石，埃夫伯里，威尔特郡，英格兰（© George W Johnson/Getty Images）
+![薄雾邂逅千年时光](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_800x480.jpg&rf=LaDigue_800x480.jpg "薄雾邂逅千年时光")
+晨雾在英格兰威尔特郡埃夫伯里的立石间飘荡，眼前景象仿佛超越了时间。这些古老的巨石构成了世界上最非凡的史前景观之一，其核心是一座约建于4500年前的宏大新石器时代纪念性建筑。埃夫伯里拥有世界上最大的史前石圈，还有一座巨型环形遗址，以及延伸至周围乡野的石列大道。它与附近的锡尔伯里山、西肯尼特大道等遗迹共同组成一处规模宏大的新石器时代遗址群，令一代又一代游客、研究人员和考古学家为之着迷。
+
+20世纪30年代，考古学家亚历山大·凯勒重新竖起了许多倒伏的埃夫伯里巨石，并用混凝土标出缺失巨石的位置。
+
+[下载480](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_800x480.jpg&rf=LaDigue_800x480.jpg "立石，埃夫伯里，威尔特郡，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1024x768.jpg&rf=LaDigue_1024x768.jpg "立石，埃夫伯里，威尔特郡，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "立石，埃夫伯里，威尔特郡，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg&rf=LaDigue_UHD.jpg "立石，埃夫伯里，威尔特郡，英格兰")
