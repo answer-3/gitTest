@@ -418,3 +418,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1024x768.jpg&rf=LaDigue_1024x768.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg&rf=LaDigue_UHD.jpg "沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国")
+
+
+---
+### 2026 10月 31：往昔帝国的幽影
+#### 圣巴尔多禄茂教堂，法兰克福，德国（© AlxeyPnferov/Getty Images）
+![往昔帝国的幽影](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_800x480.jpg&rf=LaDigue_800x480.jpg "往昔帝国的幽影")
+忘了烟雾机吧。德国法兰克福有更能烘托气氛的景物：一座哥特式大教堂，塔楼仿佛随时能上演一场午夜招魂会。画面中的圣巴尔多禄茂教堂有着中世纪风格的轮廓，简直像是万圣节特意挑选的布景。不过，这个节日本身的历史更加离奇。
+
+1562年至1792年，神圣罗马帝国的当选皇帝曾在法兰克福的圣巴尔多禄茂教堂举行加冕仪式。
+
+[下载480](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_800x480.jpg&rf=LaDigue_800x480.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
+[下载720](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1024x768.jpg&rf=LaDigue_1024x768.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg&rf=LaDigue_UHD.jpg "圣巴尔多禄茂教堂，法兰克福，德国")
