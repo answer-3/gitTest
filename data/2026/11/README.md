@@ -1,0 +1,14 @@
+## 必应今日图片
+
+---
+### 2026 11月 1：林间迷雾
+#### 黑森林，巴登-符腾堡州，德国（© Britus/Getty Images）
+![林间迷雾](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_800x480.jpg&rf=LaDigue_800x480.jpg "林间迷雾")
+今天，我们一起欣赏笼罩在黑森林上空的朦胧景色。黑森林绵延约160公里，横跨德国西南部，汇集了葱郁的山丘、幽深的山谷、湖泊和迷人的小镇。最高峰费尔德贝格山海拔1,493米；多瑙河和内卡河也发源于黑森林。这里同样不乏历史与传统。林业长期以来在当地占据重要地位，而延续数百年的钟表制造传统，更让别具特色的布谷鸟钟名扬德国以外。
+
+黑森林传统民俗头饰“绒球帽”上有14个羊毛绒球；未婚女性传统上佩戴红色绒球帽。
+
+[下载480](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_800x480.jpg&rf=LaDigue_800x480.jpg "黑森林，巴登-符腾堡州，德国")
+[下载720](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1024x768.jpg&rf=LaDigue_1024x768.jpg "黑森林，巴登-符腾堡州，德国")
+[下载1080](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "黑森林，巴登-符腾堡州，德国")
+[下载UHD](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg&rf=LaDigue_UHD.jpg "黑森林，巴登-符腾堡州，德国")
