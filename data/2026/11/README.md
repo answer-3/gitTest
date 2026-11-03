@@ -40,3 +40,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1024x768.jpg&rf=LaDigue_1024x768.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
 [下载1080](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
 [下载UHD](https://cn.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg&rf=LaDigue_UHD.jpg "布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利")
+
+
+---
+### 2026 11月 4：泛舟如画秋林
+#### 五彩落羽杉间划船的人们，宣城，安徽省，中国（© Jackal Pan/Getty Images）
+![泛舟如画秋林](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_800x480.jpg&rf=LaDigue_800x480.jpg "泛舟如画秋林")
+在安徽省宣城，人们划船穿过色彩斑斓的落羽杉林。秋天将这片被水淹没的林地变成由琥珀色、铜色和深铁锈色交织而成的锦绣景致。落羽杉的学名是“Taxodium distichum”，它在针叶树中颇为特别：每年秋季，柔软如羽毛的针叶会先变成红褐色，然后脱落。在北美洲，落羽杉因能生长在沼泽、河漫滩等湿地环境而闻名，常长出称为“膝状根”的瘤状根部突起，露出周围的泥土和水面。
+
+落羽杉木材耐腐朽，历史上曾被用于制作木桶、铁路枕木和屋顶木瓦。
+
+[下载480](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_800x480.jpg&rf=LaDigue_800x480.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
+[下载720](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1024x768.jpg&rf=LaDigue_1024x768.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
+[下载1080](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
+[下载UHD](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg&rf=LaDigue_UHD.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
