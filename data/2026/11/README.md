@@ -54,3 +54,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1024x768.jpg&rf=LaDigue_1024x768.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
 [下载1080](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
 [下载UHD](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg&rf=LaDigue_UHD.jpg "五彩落羽杉间划船的人们，宣城，安徽省，中国")
+
+
+---
+### 2026 11月 5：向山巅再迈一步
+#### 石墙边的木制翻越梯，黑岩，湖区，英格兰（© Alex Treadway/Getty Images）
+![向山巅再迈一步](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_800x480.jpg&rf=LaDigue_800x480.jpg "向山巅再迈一步")
+一座简朴的木制翻越梯，将人们引向英格兰最负盛名的风景区之一。被列为联合国教科文组织世界遗产的湖区，湖泊波光粼粼，山丘崎岖起伏，古老的石墙纵横其间；自然力量与世代相传的农耕传统共同塑造了这片景观。
+
+英格兰湖区于2017年被列入联合国教科文组织世界遗产名录，其独特的文化景观由此获得认可。
+
+[下载480](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_800x480.jpg&rf=LaDigue_800x480.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
+[下载720](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_1024x768.jpg&rf=LaDigue_1024x768.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
+[下载1080](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
+[下载UHD](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_UHD.jpg&rf=LaDigue_UHD.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
