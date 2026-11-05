@@ -68,3 +68,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_1024x768.jpg&rf=LaDigue_1024x768.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
 [下载1080](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
 [下载UHD](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_UHD.jpg&rf=LaDigue_UHD.jpg "石墙边的木制翻越梯，黑岩，湖区，英格兰")
+
+
+---
+### 2026 11月 6：穿越毛伊岛的绿色隧道
+#### 竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国（© MNStudio/Getty Images）
+![穿越毛伊岛的绿色隧道](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_800x480.jpg&rf=LaDigue_800x480.jpg "穿越毛伊岛的绿色隧道")
+火山、雨林和竹林？毛伊岛上的哈莱亚卡拉国家公园三者兼有。公园的范围从毛伊岛上海拔10023英尺的山顶一直延伸到海岸，保护着随海拔、降雨量和气温变化而呈现迥异面貌的景观。它于1916年作为夏威夷国家公园的一部分设立，1961年成为独立的国家公园。哈莱阿卡拉意为“太阳之家”，这一名称呼应了夏威夷口述传说“moʻolelo”中毛伊捉住太阳、延长白昼的故事。
+
+前往哈莱阿卡拉山顶观赏日出的游客须提前预约；名额最多提前60天开放。
+
+[下载480](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_800x480.jpg&rf=LaDigue_800x480.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_1024x768.jpg&rf=LaDigue_1024x768.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_UHD.jpg&rf=LaDigue_UHD.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
