@@ -82,3 +82,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_1024x768.jpg&rf=LaDigue_1024x768.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_UHD.jpg&rf=LaDigue_UHD.jpg "竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国")
+
+
+---
+### 2026 11月 7：归来的草原巨兽
+#### 草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国（© Tandem Stock/Adobe Stock）
+![归来的草原巨兽](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_800x480.jpg&rf=LaDigue_800x480.jpg "归来的草原巨兽")
+再艰难的环境，也挡不住野牛吃草的脚步。美国全国野牛日赞颂这种北美哺乳动物：它体重可达2000磅(约907千克)，奔跑时速却能达到35英里(约56千米)。这个节日定在每年11月的第一个星期六，旨在向2016年成为美国国家哺乳动物的野牛致敬。
+
+野牛在泥土中打滚形成的浅坑可能积水，为草原植物和动物提供栖息地。
+
+[下载480](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_800x480.jpg&rf=LaDigue_800x480.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_1024x768.jpg&rf=LaDigue_1024x768.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg&rf=LaDigue_UHD.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
