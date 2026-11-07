@@ -96,3 +96,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_1024x768.jpg&rf=LaDigue_1024x768.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg&rf=LaDigue_UHD.jpg "草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国")
+
+
+---
+### 2026 11月 8：光芒四射的节日
+#### 排灯节灯笼，孟买，马哈拉施特拉邦，印度（© Dinodia Photo/Getty Images）
+![光芒四射的节日](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_800x480.jpg&rf=LaDigue_800x480.jpg "光芒四射的节日")
+一年中最黑暗的夜晚遇上最明亮的庆典，会是什么景象？答案就是排灯节。世界各地数百万人庆祝这个灯节，点亮油灯和灯笼，绘制兰戈利彩绘，祈祷、品尝甜点，并与家人团聚。
+
+排灯节持续五天，但由于它遵循印度教阴历，每年在公历上的日期都会变化。
+
+[下载480](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_800x480.jpg&rf=LaDigue_800x480.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
+[下载720](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_1024x768.jpg&rf=LaDigue_1024x768.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
+[下载1080](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
+[下载UHD](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg&rf=LaDigue_UHD.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
