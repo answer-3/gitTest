@@ -110,3 +110,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_1024x768.jpg&rf=LaDigue_1024x768.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
 [下载1080](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
 [下载UHD](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg&rf=LaDigue_UHD.jpg "排灯节灯笼，孟买，马哈拉施特拉邦，印度")
+
+
+---
+### 2026 11月 9：艺术与韵律交汇之地
+#### 特里亚纳历史街区，塞维利亚，西班牙（© Andrzej Rostek/Getty Images）
+![艺术与韵律交汇之地](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_800x480.jpg&rf=LaDigue_800x480.jpg "艺术与韵律交汇之地")
+在西班牙安达卢西亚地区首府塞维利亚，跨过瓜达尔基维尔河，城市的节奏似乎便悄然改变。河对岸是色彩缤纷的特里亚纳街区，陶艺、弗拉门戈和当地传统融入日常生活。自19世纪以来，伊莎贝尔二世桥——又称特里亚纳桥——一直连接着这里与塞维利亚的历史中心。
+
+特里亚纳市场下方保留着圣豪尔赫城堡的遗址；这座城堡曾是宗教裁判所的总部，如今设有历史展览。
+
+[下载480](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_800x480.jpg&rf=LaDigue_800x480.jpg "特里亚纳历史街区，塞维利亚，西班牙")
+[下载720](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_1024x768.jpg&rf=LaDigue_1024x768.jpg "特里亚纳历史街区，塞维利亚，西班牙")
+[下载1080](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "特里亚纳历史街区，塞维利亚，西班牙")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_UHD.jpg&rf=LaDigue_UHD.jpg "特里亚纳历史街区，塞维利亚，西班牙")
