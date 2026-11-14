@@ -194,3 +194,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_1024x768.jpg&rf=LaDigue_1024x768.jpg "中国香港维多利亚港")
 [下载1080](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "中国香港维多利亚港")
 [下载UHD](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_UHD.jpg&rf=LaDigue_UHD.jpg "中国香港维多利亚港")
+
+
+---
+### 2026 11月 15：霜染枝叶
+#### 覆霜的红叶杜鹃（© avoferten/Shutterstock）
+![霜染枝叶](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_800x480.jpg&rf=LaDigue_800x480.jpg "霜染枝叶")
+随着秋天的第一场霜降临南方，冰晶在常绿灌木的叶片上凝结，就像这株杜鹃。春日花朵的粉色、橙色和黄色早已褪去，但新的色彩盛宴即将上演：绿色的叶片渐渐变成深浅不一的红色和紫色。对植物而言，这些新形成的色素能在气温下降时保护叶片；对园丁而言，白霜映衬下则是一幅绚丽的秋日景象。春天到来时，新芽会让灌木重披绿装，缤纷的色彩轮回也将重新开始。
+
+使杜鹃叶片呈现红色或紫色的色素叫作花青素。
+
+[下载480](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_800x480.jpg&rf=LaDigue_800x480.jpg "覆霜的红叶杜鹃")
+[下载720](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_1024x768.jpg&rf=LaDigue_1024x768.jpg "覆霜的红叶杜鹃")
+[下载1080](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "覆霜的红叶杜鹃")
+[下载UHD](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_UHD.jpg&rf=LaDigue_UHD.jpg "覆霜的红叶杜鹃")
