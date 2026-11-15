@@ -208,3 +208,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_1024x768.jpg&rf=LaDigue_1024x768.jpg "覆霜的红叶杜鹃")
 [下载1080](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "覆霜的红叶杜鹃")
 [下载UHD](https://cn.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_UHD.jpg&rf=LaDigue_UHD.jpg "覆霜的红叶杜鹃")
+
+
+---
+### 2026 11月 16：历经岁月，屹立不倒
+#### 美国新墨西哥州吉拉悬崖民居国家纪念地（© Chiara Salvadori/Getty Images）
+![历经岁月，屹立不倒](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_800x480.jpg&rf=LaDigue_800x480.jpg "历经岁月，屹立不倒")
+壮丽的景色和坚实的岩石地基，是这些嵌在新墨西哥州悬崖上的古老民居的魅力所在。游牧者早已将崖居溪上方的天然洞穴用作临时栖身之所，但真正将这里当作家园的，是美洲原住民莫戈隆文化的族人。考古学家认为，他们在13世纪70至80年代，于五处岩穴中建造了数十个房间。这里一度同时住着多达15个家庭；他们在此抚养子女、制作陶器，俯瞰肥沃的吉拉河谷，并在那里种植作物、狩猎野生动物。大约在1300年，莫戈隆人出于未知原因离开，留下了美国西南部最重要的考古遗址之一。1907年11月16日，西奥多·罗斯福总统将此地指定为吉拉悬崖民居国家纪念地，帮助确保它得到保护，留存给后代。
+
+吉拉悬崖民居的原始屋顶木梁至今仍保存着；木梁的年轮帮助考古学家确定这些古老建筑的年代。
+
+[下载480](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_800x480.jpg&rf=LaDigue_800x480.jpg "美国新墨西哥州吉拉悬崖民居国家纪念地")
+[下载720](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_1024x768.jpg&rf=LaDigue_1024x768.jpg "美国新墨西哥州吉拉悬崖民居国家纪念地")
+[下载1080](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美国新墨西哥州吉拉悬崖民居国家纪念地")
+[下载UHD](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_UHD.jpg&rf=LaDigue_UHD.jpg "美国新墨西哥州吉拉悬崖民居国家纪念地")
