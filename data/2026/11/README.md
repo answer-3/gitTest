@@ -236,3 +236,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪松林步道，冰川国家公园，蒙大拿州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪松林步道，冰川国家公园，蒙大拿州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_UHD.jpg&rf=LaDigue_UHD.jpg "雪松林步道，冰川国家公园，蒙大拿州，美国")
+
+
+---
+### 2026 11月 18：从黄昏狩猎到黎明
+#### 一对仓鸮（© Zahoor Salmi/Getty Images）
+![从黄昏狩猎到黎明](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_800x480.jpg&rf=LaDigue_800x480.jpg "从黄昏狩猎到黎明")
+沐浴在傍晚光线中的这对仓鸮，正等待狩猎开始。夜幕降临时，这些猛禽便迅速行动，倾听鼠类和田鼠类在草丛或落叶中发出的细微动静。它们心形的面庞有助于将声音汇集到耳朵，使其听觉跻身动物界最敏锐的行列。这让它们能在黑暗中精准定位猎物，然后悄无声息地俯冲而下，柔软的羽毛掩盖了它们靠近的声响。秋天，年轻的仓鸮会离开巢穴，寻找自己的领地。随着夜晚变长，你可能会在傍晚更早地看到它们掠过田野，寻找晚餐。
+
+仓鸮不会发出‘咕咕’声；它们会发出令人毛骨悚然的尖叫声，这或许解释了为什么它们被视为厄运的预兆。
+
+[下载480](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_800x480.jpg&rf=LaDigue_800x480.jpg "一对仓鸮")
+[下载720](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_1024x768.jpg&rf=LaDigue_1024x768.jpg "一对仓鸮")
+[下载1080](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "一对仓鸮")
+[下载UHD](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_UHD.jpg&rf=LaDigue_UHD.jpg "一对仓鸮")
