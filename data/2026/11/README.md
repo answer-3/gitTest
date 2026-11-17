@@ -222,3 +222,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_1024x768.jpg&rf=LaDigue_1024x768.jpg "美国新墨西哥州吉拉悬崖民居国家纪念地")
 [下载1080](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "美国新墨西哥州吉拉悬崖民居国家纪念地")
 [下载UHD](https://cn.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_UHD.jpg&rf=LaDigue_UHD.jpg "美国新墨西哥州吉拉悬崖民居国家纪念地")
+
+
+---
+### 2026 11月 17：走进广阔的大自然
+#### 雪松林步道，冰川国家公园，蒙大拿州，美国（© DBushue Photography/Getty Images）
+![走进广阔的大自然](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_800x480.jpg&rf=LaDigue_800x480.jpg "走进广阔的大自然")
+全国徒步日快乐！是时候呼吸清爽的秋日空气，走进广阔的大自然了。今天的图片展示的是蒙大拿州冰川国家公园的雪松林步道；公园内的徒步步道总长达700英里。这条长0.9英里的环形步道设有高架栈道，穿行于北美乔柏和铁杉属树木之间。公园拥有适合不同能力水平游客的路线，沿途可欣赏高山湖泊、野花草甸、山口，以及一直延伸至加拿大边境的荒野。不过，即使家门口没有壮丽风景，随着白昼渐短，沿着绿树成荫的街道散散步，也能轻松庆祝这个日子，享受出门走走的益处。
+
+在冰川国家公园的雪松林步道，游客可观赏雪崩峡谷，并在雪崩溪附近留意聆听美洲河乌的鸣声。
+
+[下载480](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_800x480.jpg&rf=LaDigue_800x480.jpg "雪松林步道，冰川国家公园，蒙大拿州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_1024x768.jpg&rf=LaDigue_1024x768.jpg "雪松林步道，冰川国家公园，蒙大拿州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雪松林步道，冰川国家公园，蒙大拿州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_UHD.jpg&rf=LaDigue_UHD.jpg "雪松林步道，冰川国家公园，蒙大拿州，美国")
