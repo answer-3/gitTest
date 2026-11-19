@@ -264,3 +264,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_ZH-CN3168800853_1024x768.jpg&rf=LaDigue_1024x768.jpg "雕塑《知识之躯》，由豪梅·普兰萨创作，位于德国法兰克福的法兰克福歌德大学")
 [下载1080](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_ZH-CN3168800853_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "雕塑《知识之躯》，由豪梅·普兰萨创作，位于德国法兰克福的法兰克福歌德大学")
 [下载UHD](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_ZH-CN3168800853_UHD.jpg&rf=LaDigue_UHD.jpg "雕塑《知识之躯》，由豪梅·普兰萨创作，位于德国法兰克福的法兰克福歌德大学")
+
+
+---
+### 2026 11月 20：在峡湾中大快朵颐
+#### 正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛（© Espen Bergersen/Minden Pictures）
+![在峡湾中大快朵颐](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_800x480.jpg&rf=LaDigue_800x480.jpg "在峡湾中大快朵颐")
+在挪威北部特罗姆斯的克瓦尔岛近海，座头鲸穿行于寒冷的北极海水中，寻找一顿丰盛的美餐。冬季，它们追随迁徙的鲱鱼进入峡湾，来到这一地区。座头鲸以气泡网捕食闻名：这种非凡的狩猎技巧是鲸鱼吹出一圈圈气泡，将鱼群围拢，然后张开大嘴向上猛冲，捕获猎物。在今天的图片中，一头座头鲸在柔和的霞光下潜入冰冷的波浪，定格了挪威北部荒野中宁静的一刻。
+
+座头鲸尾鳍上的独特斑纹、形状和伤疤，能帮助研究人员识别不同个体，并长期追踪它们的行踪。
+
+[下载480](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_800x480.jpg&rf=LaDigue_800x480.jpg "正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛")
+[下载720](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_1024x768.jpg&rf=LaDigue_1024x768.jpg "正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛")
+[下载1080](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛")
+[下载UHD](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_UHD.jpg&rf=LaDigue_UHD.jpg "正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛")
