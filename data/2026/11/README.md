@@ -278,3 +278,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_1024x768.jpg&rf=LaDigue_1024x768.jpg "正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛")
 [下载1080](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛")
 [下载UHD](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_UHD.jpg&rf=LaDigue_UHD.jpg "正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛")
+
+
+---
+### 2026 11月 21：陶瓦屋顶下的梦
+#### 法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯（© Siripong Kaewla-iad/Getty Images）
+![陶瓦屋顶下的梦](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_800x480.jpg&rf=LaDigue_800x480.jpg "陶瓦屋顶下的梦")
+在今天的图片中，尼斯沐浴在温暖的阳光下：赤陶色屋顶、历史悠久的教堂和柔和色调的建筑外墙，拼成法国蔚蓝海岸的一幅斑斓图景。尼斯由古希腊人建立，长期与意大利王室萨伏依王朝有着渊源，并于1860年正式成为法国的一部分。如今，在这座位于法国南部的海滨城市，那段层层叠叠的历史依然随处可见：古老的建筑与蔚蓝的地中海海水、蔚蓝海岸阳光照耀的山丘交相辉映。
+
+1824年，英国游客在尼斯海滨开辟了一条小路，后来逐渐发展为享有盛誉的英国人步行大道（Promenade des Anglais）。
+
+[下载480](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_800x480.jpg&rf=LaDigue_800x480.jpg "法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯")
+[下载720](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_1024x768.jpg&rf=LaDigue_1024x768.jpg "法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯")
+[下载1080](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯")
+[下载UHD](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_UHD.jpg&rf=LaDigue_UHD.jpg "法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯")
