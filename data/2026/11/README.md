@@ -320,3 +320,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_1024x768.jpg&rf=LaDigue_1024x768.jpg "蕨类植物的卷曲嫩叶")
 [下载1080](https://cn.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "蕨类植物的卷曲嫩叶")
 [下载UHD](https://cn.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_UHD.jpg&rf=LaDigue_UHD.jpg "蕨类植物的卷曲嫩叶")
+
+
+---
+### 2026 11月 24：秋日的保护色
+#### 红松鼠，凯恩戈姆斯国家公园，苏格兰高地（© Scotland: The Big Picture/Minden Pictures）
+![秋日的保护色](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_800x480.jpg&rf=LaDigue_800x480.jpg "秋日的保护色")
+红松鼠是英国唯一的本土松鼠物种，在苏格兰的凯恩戈姆斯国家公园繁衍生息。这座公园是它们的重要庇护地：古老的喀里多尼亚欧洲赤松林和较新形成的针叶林，为松鼠提供了充足的栖息空间和食物，让它们一年四季都能觅食欧洲赤松的种子、坚果和其他美味。今天的照片中，一只红松鼠栖身于橙黄相间的秋叶间，仿佛与苏格兰高地的景色融为一体，正盘算着下一步要去哪里。
+
+英国约八成的现存红松鼠生活在苏格兰；它们用树枝交织成巢，内部铺上树叶。这种巢称为“松鼠巢”（drey）。
+
+[下载480](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_800x480.jpg&rf=LaDigue_800x480.jpg "红松鼠，凯恩戈姆斯国家公园，苏格兰高地")
+[下载720](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_1024x768.jpg&rf=LaDigue_1024x768.jpg "红松鼠，凯恩戈姆斯国家公园，苏格兰高地")
+[下载1080](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红松鼠，凯恩戈姆斯国家公园，苏格兰高地")
+[下载UHD](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg&rf=LaDigue_UHD.jpg "红松鼠，凯恩戈姆斯国家公园，苏格兰高地")
