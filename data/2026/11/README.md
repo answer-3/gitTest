@@ -334,3 +334,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_1024x768.jpg&rf=LaDigue_1024x768.jpg "红松鼠，凯恩戈姆斯国家公园，苏格兰高地")
 [下载1080](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "红松鼠，凯恩戈姆斯国家公园，苏格兰高地")
 [下载UHD](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg&rf=LaDigue_UHD.jpg "红松鼠，凯恩戈姆斯国家公园，苏格兰高地")
+
+
+---
+### 2026 11月 25：美国西南部的一场雪
+#### 日落观景点，布莱斯峡谷国家公园，犹他州（© Colin D. Young/Alamy）
+![美国西南部的一场雪](https://cn.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_800x480.jpg&rf=LaDigue_800x480.jpg "美国西南部的一场雪")
+白雪让布莱斯峡谷国家公园焕然一新：大地披上银装，鲜艳的橙红色石林在雪地上拔地而起。从公园最著名的观景点之一——日落观景点望去，这些奇特的岩石造型属于克拉伦组。构成它们的石灰岩约在5000万年前沉积，后来又经风化和侵蚀塑造成形。由于公园大部分地区海拔超过8000英尺，早在10月就可能降雪。今天的照片中，积雪覆着峡谷的山脊和石柱，薄雾从崖壁间飘过，呈现出美国西南部标志性的冬日景象。
+
+在布莱斯峡谷，一年中有超过170个夜晚的气温会跨越冰点。渗入岩缝的水结冰膨胀，帮助将岩石逐渐塑造成石林柱。
+
+[下载480](https://cn.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_800x480.jpg&rf=LaDigue_800x480.jpg "日落观景点，布莱斯峡谷国家公园，犹他州")
+[下载720](https://cn.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_1024x768.jpg&rf=LaDigue_1024x768.jpg "日落观景点，布莱斯峡谷国家公园，犹他州")
+[下载1080](https://cn.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "日落观景点，布莱斯峡谷国家公园，犹他州")
+[下载UHD](https://cn.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_UHD.jpg&rf=LaDigue_UHD.jpg "日落观景点，布莱斯峡谷国家公园，犹他州")
