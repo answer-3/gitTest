@@ -376,3 +376,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_1024x768.jpg&rf=LaDigue_1024x768.jpg "夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg&rf=LaDigue_UHD.jpg "夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国")
+
+
+---
+### 2026 11月 28：跨越时光的桥梁
+#### 捷克布拉格老城区与伏尔塔瓦河（© Lara_Uhryn/Getty Images）
+![跨越时光的桥梁](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_800x480.jpg&rf=LaDigue_800x480.jpg "跨越时光的桥梁")
+从莱特纳公园望去，秋色中的布拉格沿捷克伏尔塔瓦河两岸铺展。照片中，河水穿过历史悠久的老城区和小城区，从前景的马内斯桥下流过。如今，伏尔塔瓦河上横跨着许多美丽的桥梁，但数百年间只有一座查理大桥，即照片中从下往上数第二座桥。1357年，查理四世在位期间，这座桥奠下第一块基石；直到1841年，它都是步行过河的唯一通道。如今，石拱、哥特式桥塔和桥上的雕像吸引大批游客，想拍到好照片，最好黎明时就来。也可以继续走到下一座军团桥，那里人少一些，还能欣赏布拉格国家剧院、布拉格城堡和热闹的查理大桥。
+
+布拉格的查理大桥原称石桥或布拉格桥；自1870年起沿用如今的名称。
+
+[下载480](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_800x480.jpg&rf=LaDigue_800x480.jpg "捷克布拉格老城区与伏尔塔瓦河")
+[下载720](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_1024x768.jpg&rf=LaDigue_1024x768.jpg "捷克布拉格老城区与伏尔塔瓦河")
+[下载1080](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "捷克布拉格老城区与伏尔塔瓦河")
+[下载UHD](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_UHD.jpg&rf=LaDigue_UHD.jpg "捷克布拉格老城区与伏尔塔瓦河")
