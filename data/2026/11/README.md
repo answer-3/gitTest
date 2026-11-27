@@ -362,3 +362,17 @@
 [下载720](https://cn.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_1024x768.jpg&rf=LaDigue_1024x768.jpg "怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国")
 [下载1080](https://cn.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国")
 [下载UHD](https://cn.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_UHD.jpg&rf=LaDigue_UHD.jpg "怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国")
+
+
+---
+### 2026 11月 27：灰金交织的峡谷
+#### 夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国（© Jeff Foott/Minden）
+![灰金交织的峡谷](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_800x480.jpg&rf=LaDigue_800x480.jpg "灰金交织的峡谷")
+脸峡谷隐于古老的砂岩地貌之中，是美国犹他州南部鲍威尔湖沿岸96座峡谷之一。许多峡谷远离公路，若非1963年修建格伦峡谷大坝形成的湖水淹入，此前很难抵达。湖水沿溪流和峡谷向上游延伸约186英里（约300公里），你可以乘船、划皮划艇或驾驶摩托艇探索。
+
+鲍威尔湖附近的彩虹桥是当地美洲原住民的圣地；这座天然石桥高约290英尺。
+
+[下载480](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_800x480.jpg&rf=LaDigue_800x480.jpg "夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国")
+[下载720](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_1024x768.jpg&rf=LaDigue_1024x768.jpg "夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国")
+[下载1080](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_1920x1080.jpg&rf=LaDigue_1920x1080.jpg "夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国")
+[下载UHD](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg&rf=LaDigue_UHD.jpg "夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国")
